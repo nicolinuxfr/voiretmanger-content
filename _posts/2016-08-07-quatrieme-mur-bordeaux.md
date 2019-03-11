@@ -1,0 +1,40 @@
+---
+ID: 16441
+post_title: Le Quatrième Mur à Bordeaux
+post_name: quatrieme-mur-bordeaux
+author: Nicolas
+post_date: 2016-08-07 00:49:05
+post_excerpt: "Cette brasserie ouverte par Philippe Etchebest au cœur du Bordeaux historique propose une cuisine de qualité, simple et moderne, mais dans le respect de la tradition. Une bonne adresse, même si elle est peut-être un petit peu chère pour ce qu'elle propose."
+layout: post
+link: >
+  https://voiretmanger.fr/quatrieme-mur-bordeaux/
+published: true
+tags:
+  - Bistronomique
+  - Bordeaux
+  - Brasserie
+  - Cuisine française
+categories:
+  - À manger
+---
+En face du Pressoir d'Argent ouvert par Gordon Ramsay, Philippe Etchebest a ouvert son restaurant au cœur du Bordeaux historique, dans le Grand Théâtre. Une opposition pleine de symbole pour les deux chefs médiatiques qui adorent torturer leurs pairs, mais deux adresses qui n'ont rien à voir. Face à la gastronomie étoilée du britannique, le chef français a ouvert une brasserie plus simple, où l'on doit manger vite et bien. [**Le Quatrième Mur**](http://www.quatrieme-mur.com/index.html) propose une carte simple et des assiettes recherchées, mais sans être trop complexes. Le résultat est très plaisant, même si on paye le lieu et le chef, malheureusement. Le pari est toutefois réussi pour cette brasserie modernisée et séduisante !
+
+<img src="https://voiretmanger.fr/wp-content/uploads/2016/08/quatrieme-mur-bordeaux-salle.jpg" alt="quatrieme-mur-bordeaux-salle" width="2100" height="1400" class="aligncenter size-full wp-image-16455" />
+
+Si vous ne savez pas qu'il existe, vous passerez forcement à côté du restaurant. Le Grand Théâtre de Bordeaux et ses colonnes majestueuses ne laissent aucune place à une devanture en bonne et due forme. La seule chose qui distingue **Le Quatrième Mur**, c'est le nom inscrit sur les portes vitrées de l'entrée… autant dire que ce n'est pas visible facilement et beaucoup plus sobre que l'adresse d'en face, avec ses énormes photos de Gordon Ramsay. À l'intérieur en revanche, la sobriété n'est plus de mise : tout en longueur, le restaurant a gardé toutes les caractéristiques architecturales du bâtiment, avec de nombreuses colonnes et surtout un plafond très impressionnant, tout en dorures et en fresques, ponctuées par d'immenses lustres à l'ancienne. L'aménagement intérieur a maximisé le nombre de places assises et il peut y avoir du monde dans la salle, beaucoup de monde. Ce samedi soir d'été, le restaurant était plein et l'ambiance était bruyante. Il faut saluer la disposition des tables qui évite au maximum d'être trop proches de ses voisins : c'est plutôt astucieux, néanmoins on ne viendra pas ici en quête d'une ambiance intimiste. Pensez bien à réserver aussi, la place disponible est vite une denrée rare et le succès est manifestement toujours au rendez-vous.
+
+<img src="https://voiretmanger.fr/wp-content/uploads/2016/08/quatrieme-mur-bordeaux-menu.jpg" alt="quatrieme-mur-bordeaux-menu" width="3024" height="4032" class="aligncenter size-full wp-image-16460" />
+
+La simplicité a été le maître mot pour la conception de la carte, et c'est encore plus visible les soirs, où il n'y a qu'[un seul menu au programme](https://voiretmanger.fr/wp-content/uploads/2016/08/quatrieme-mur-menu.jpg). Un tarif unique de 49 € — avec quelques suppléments ici ou là, comme c'est souvent le cas — et il n'y a aucune échappatoire : impossible de ne commander qu'un plat, c'est tout le menu, ou rien. Ce menu justement est composé de trois entrées, trois plats et trois desserts au choix. On y retrouve le plat signature du chef, la raviole de champignons accompagnée de foie gras, et des assiettes qui oscillent toutes entre classique et moderne. Les associations terre-mer sont monnaie courante, on retrouve aussi des fruits là où on ne s'y attend pas forcément. Sans aller jusqu'à la cuisine moléculaire, Philippe Etchebest essaie de sortir des sentiers battus, tout en ayant une excellente maîtrise des bases de la gastronomie française. C'est sa marque de fabrique et ces choix ne surprendront aucunement les fans de *Top Chef*, tant on y retrouve le sens de l'excellence tel qu'il est porté par l'émission. Cette carte gourmande fait très envie en tout cas et le choix n'est pas facile.
+
+[gallery type="rectangular" link="file" size="large" ids="16447,16448" orderby="rand"]
+
+Bordeaux oblige, une généreuse carte des vins accompagne le repas et **Le Quatrième Mur** a opté pour une formule originale, avec des tablettes pour choisir ce que l'on veut boire. Une bonne idée, même si elle souffrait de quelques ralentissements et problèmes ergonomiques, et même si on regrette l'absence de proposition pour associer chaque assiette à un verre de vin. À peine le temps de finir l'apéritif et les entrées arrivent déjà : ici, du thon saisi et mi-cuit, là l'entrée mythique du chef, la raviole aux champignons et le foie gras. Commençons par le classique, avec ce qui est aussi la plus belle assiette du restaurant, sans aucune discussion ce soir-là. La pâte très fine permet de profiter des champignons cuits et relevés à la perfection et la raviole baigne dans un jus de champignons crémé savoureux. C'est un vrai délice, même sans le morceau de foie gras qui surmonte le tout et une assiette assez simple au fond, mais qui est si bien maîtrisée que l'on touche à la perfection. Le thon souffre de la comparaison, mais c'est une entrée fraiche très séduisante pour l'été, avec ses dés d'ananas et ses tranches de speck qui viennent réveiller les papilles. L'ensemble est excellent, mais faute de service : les plats principaux arrivent alors que les entrées sont à peine terminées. L'esprit brasserie, c'est bien, mais un soir de week-end, on aimerait profiter !
+
+[gallery type="rectangular" link="file" size="large" ids="16450,16451,16452" orderby="rand"]
+
+Qu'à cela ne tienne, les trois plats proposés à la carte arrivent sur la table. On a du très classique, avec ce gigot d'agneau bien rosé, accompagné d'un jus de viande concentré qui manquait malheureusement d'assaisonnement, pour une assiette classique et efficace, sans plus. Plus originale, un suprême de volaille servi avec du boulgour et un accompagnement façon paëlla. On est entre la terre et la mer, le chorizo est bien présent et c'est un ensemble rondement mené, malgré une viande un peu sèche… mais avec un tel morceau, c'est difficile de faire autrement. Moyennant un supplément de 6 € tout de même, le troisième plat met la mer à l'honneur : quenelle de merlu et de homard breton, pince de homard, risotto et une sauce homardine. Le crustacé est à l'honneur et ici, c'est surtout la sauce parfaite que l'on retient. Le goût de homard est puissant en bouche, la petite touche d'estragon est présente sans s'imposer, bref, c'est un délice. Qu'importe alors si la quenelle un peu sèche est quelconque, on n'a qu'une envie, c'est de manger ce pavé de risotto poêlé avec le jus, puis de saucer le fond de l'assiette avec le pain, d'ailleurs fort bon. On réclame une pause au serveur pour mieux profiter des desserts : le cheesecake est très classique, mais bien maîtrisé, on a bien le goût de vanille, le fond de Spéculoos est un incontournable qui fonctionne toujours et les petites touches citronnées tout autour allègent et réveillent l'assiette. Quant à la compote de mangue prise, elle prend la forme d'un entremet original, un peu trop sucré peut-être.
+
+[gallery type="rectangular" link="file" size="large" ids="16457,16458" orderby="rand"]
+
+Philippe Etchebest n'est pas vraiment derrière les fourneaux, comme tous les chefs de sa stature, il a trop à faire avec la télévision et tous ses autres projets, mais cela ne veut pas dire que **Le Quatrième Mur** est une mauvaise adresse. Bien au contraire, cette brasserie met en avant des exigences dignes des plus grandes tables, pour une cuisine assez simple et des tarifs relativement modestes. C'est moins cher qu'un étoilé, certes, mais c'est sans doute trop cher pour les prestations offertes : on paye aussi pour le cadre et le nom du chef. Ces réserves mises de côté, c'est une excellente adresse au cœur de Bordeaux !
