@@ -1,0 +1,47 @@
+---
+ID: 19523
+post_title: '<em>Matrix</em>, Lana et Lilly Wachowski'
+post_name: matrix-wachowski
+author: Nicolas
+post_date: 2017-11-25 13:02:26
+layout: post
+link: >
+  https://voiretmanger.fr/matrix-wachowski/
+published: true
+tags:
+  - Action
+  - Apocalypse
+  - Dystopie
+  - Informatique
+  - Intelligence artificielle
+  - Philosophie
+  - Rêve
+  - Science-Fiction
+  - Société
+categories:
+  - À voir
+---
+Le succès a été tel dès sa sortie que *Matrix* est entré directement dans le classement des films cultes et même des phénomènes planétaires. À tel point, d’ailleurs, que le deuxième long-métrage réalisé par les sœurs Wachowski est devenu un phénomène, largement copié et même parodié dans les années qui ont suivi. Tout le monde connaît désormais le concept de matrice, sans même savoir exactement d’où il vient et rares sont les œuvres à avoir eu une telle influence que celle-ci. Revoir *Matrix* aujourd'hui, alors que son vingtième anniversaire est à l’horizon, permet de comprendre sans peine d’où vient cette aura et cette influence. L’univers créé par les Wachowski se construit sur une myriade de références universelles, dans la science-fiction traditionnelle et le cinéma — notamment asiatique — certes, mais aussi dans la littérature, la philosophie, les religions et encore les mythes antiques. Cette masse de références forme un tout parfaitement cohérent qui semble familier à tout le monde, une clé de son succès, indéniablement. *Matrix* n’est pas une œuvre culte sans raison, c’est un excellent film de science-fiction, un classique qui mérite complètement sa réputation et qui se revoit avec toujours autant de plaisir. 
+
+<a href="https://fr.wikipedia.org/wiki/Matrix"><img src="https://voiretmanger.fr/wp-content/uploads/2017/11/matrix-wachowski.jpg" alt="" width="2100" height="3156" class="aligncenter size-full wp-image-19526" /></a>
+
+Avant de lancer les caméras, avant de créer les décors, avant de choisir des acteurs, avant même d’écrire la moindre ligne de scénario, les Wachowski ont probablement passé quelques années à réfléchir et imaginer un univers. C’est quelque chose de flagrant quand on (re)découvre *Matrix*, le projet repose sur un univers extrêmement cohérent et particulièrement bien pensé, une fondation solide qui est la première réussite du projet. On retrouve ici l’épaisseur d’un univers à la [*Star Wars*](https://voiretmanger.fr/saga/star-wars/) ou bien dans l’esprit du [*Seigneur des Anneaux*](https://voiretmanger.fr/saga/le-seigneur-des-anneaux/) et on sent bien dans ce premier film de plus de deux heures qu’il y a une histoire infiniment plus complexe que celle qui est racontée. Lana et Lilly Wachowski ont créé bien plus qu’un long-métrage, le projet était une trilogie dès le départ, mais même au-delà, c’est un monde, tout simplement. Dans le premier volet, des indices sont disséminés ici ou là pour évoquer les origines de ce monde, tandis que des arcs narratifs sont esquissés et laissés encore de côté. On sait maintenant que deux suites seront ajoutées pour explorer certains de ces arcs, mais en attendant, cela donne à *Matrix* une crédibilité incontestable. C’est important, d’autant que la dystopie imaginée est très classique : après avoir créé des machines dotées de l’intelligence artificielle, les humains doivent affronter les robots et tentent, pour l’emporter, de les priver de soleil. Hélas, ce choix a entraîné la chute de l’humanité, puisque les machines ont puisé leur énergie dans les corps d’humains qu’elles produisent à la chaîne. Pour améliorer le rendement, ces intelligences artificielles découvrent qu’elles doivent créer l’illusion d’une vie normale : la matrice était née. Ce programme informatique simule un monde à la fin des années 1990 dans lequel tous les humains en culture évoluent, sans avoir conscience qu’il ne s’agit pas de la réalité. Quand le film commence, on est, sans le savoir encore, dans cette matrice et le scénario nous amène à prendre conscience de sa réalité en même temps que Neo, un jeune hacker informatique contacté par la résistance. Les machines n’ont pas réussi à détruire totalement l’humanité et il reste quelques poches de résistance, hors de la matrice et dans le monde réel. Les bases sont posées, l’ultime affrontement entre robots et humains peut commencer… même si ce n’est pas encore le sujet dans ce premier film. 
+
+<img src="https://voiretmanger.fr/wp-content/uploads/2017/11/matrix-carie-anne-moss-keanu-reeves.jpg" alt="" width="3300" height="2200" class="aligncenter size-full wp-image-19527" />
+
+Pour introduire un tel univers, les Wachowski prennent leur temps et préfèrent poser les concepts plutôt que lancer l’action à outrance. C’est peut-être parce que le budget de leur film, quoi qu’énorme pour un projet un petit peu sorti de nulle part, était limité. Mais c’est aussi sans doute parce que les deux cinéastes avaient bien compris qu’il était important d’avoir des bases solides. Elles ont été jusqu’à exiger du casting la lecture de plusieurs œuvres philosophiques qui avaient nourri leur imagination, avant de leur donner le script. Sans aller jusque-là pour les spectateurs, *Matrix* est une œuvre assez bavarde, bien plus que la moyenne du genre. Ce n’est pas un blockbuster d’action où les séquences spectaculaires s’enchaînent à un rythme soutenu, c’est un long-métrage posé, qui maintient plusieurs scènes uniquement de dialogues sans oublier quelques séquences d’action pure, tout de même. On a souvent retenu en priorité ces séquences et il faut dire que l’on avait des raisons de le faire : les réalisatrices ont exploité des idées nouvelles et les ont popularisées avec leur film. Les ralentis omniprésents dans les séquences d’action sont devenus un cliché, tout comme les personnages qui rebondissent sur les murs. C’est tout spécialement la technique du *bullet-time* qui est associée avec *Matrix*. Même si ce n’est pas la première fois qu’on pouvait la voir sur un écran, c’est ce film qui a présenté cette idée au plus grand nombre. Le principe est une action filmée au ralenti, mais avec une caméra qui évolue à vitesse normale dans la scène. À l’époque, il fallait beaucoup d’équipement et de travail pour un tel résultat, qui sera nettement plus simple à obtenir grâce à l’avènement des effets spéciaux numériques. Ajoutez à cela une bonne dose d’action venue du cinéma hong-kongais et vous obtiendrez un mélange original, même s’il ressemble aujourd'hui à un cliché, tant il a été pillé et repris à toutes les sauces. Cette action est bien présente, mais elle n’est pas envahissante : *Matrix* est remarquablement bien équilibré, avec autant d’action que de séquences plus cérébrales. Comme on le disait en ouverture, les Wachowski ont puisé dans un large spectre d’influences pour imaginer leur univers et les concepts sur lesquels il repose. De Platon à Lewis Carroll, de la Bible à Baudrillard, en passant par Descartes et [*Ghost in the Shell*](https://voiretmanger.fr/ghost-shell-oshii/), le corpus d’œuvres citées directement, référencées indirectement ou parfois simplement utilisées comme base est large et varié. Le film ne cherche pas à les multiplier gratuitement, tout a sa place logique. Et le spectateur n’est jamais mis de côté, les explications sont très claires et permettent de suivre facilement l’intrigue principale.
+
+<img src="https://voiretmanger.fr/wp-content/uploads/2017/11/matrix-hugo-weaving.jpg" alt="" width="3300" height="2200" class="aligncenter size-full wp-image-19528" />
+
+Il y aurait encore beaucoup à dire sur *Matrix*, par exemple sur la photographie extrêmement verdâtre de la matrice, sur la mise en scène inventive et qui parvient souvent à trouver l’angle parfait, sur l’écriture des personnages, tout particulièrement celui de l’agent Smith, parfaitement effrayant. On pourrait aussi évoquer le casting, féliciter le choix de Keanu Reeves pour le rôle de Neo, saluer celui de Laurence Fishburne dans le rôle de Morpheus et de Carie-Anne Moss dans celui de Trinity. Les Wachowski ont sans doute eu beaucoup de chance, probablement aussi beaucoup d’intuition, parce que tout colle dans ce film, cohérent des fondations à la réalisation. *Matrix* s’est imposé dès sa sortie dans les salles comme une référence du genre et il n’a jamais perdu ce statut pour une très bonne raison : c’est une réussite incontestable sur tous les points. Lana et Lilly Wachowski excellent à créer des univers cohérent : [*Cloud Atlas*](https://voiretmanger.fr/cloud-atlas-wachowski-tykwer/) à [*Sense8*](https://voiretmanger.fr/sense8-straczynski-wachowski-netflix/) l'ont bien prouvé[^1], mais celui de *Matrix* reste peut-être le plus fort et le plus inoubliable. 
+
+<div class="amazon" markdown="1">
+### Vous voulez [m'aider](https://voiretmanger.fr/soutien/) ?
+
+- [Acheter le film en Blu-ray sur Amazon](http://amzn.to/2A90r2D)
+- [Acheter le film en DVD sur Amazon](http://amzn.to/2A8U3IT)
+- [Acheter ou louer le film sur l'iTunes Store](https://itunes.apple.com/fr/movie/matrix/id368968381)
+- [Regarder le film sur Netflix](https://www.netflix.com/title/20557937)
+</div>
+
+[^1]: Je n’ai pas vraiment oublié [*Jupiter : le Destin de l’Univers*](https://voiretmanger.fr/jupiter-destin-univers-wachowski/), mais le long-métrage ne mérite sans doute pas d’être cité comme une référence… même si ce n’est pas l’incohérence ou la pauvreté de son univers qui ont posé problème.
