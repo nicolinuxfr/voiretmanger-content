@@ -1,0 +1,34 @@
+---
+ID: 9127
+post_title: 'Les 3C à Collonges au Mont d&rsquo;Or'
+post_name: 3c-collonges-mont-or
+author: Nicolas
+post_date: 2013-04-11 23:08:57
+post_excerpt: "Les 3C est un restaurant élégant dans le centre de Collonges au Mont d'Or. Il promet beaucoup par son cadre contemporain et chic, mais il peine à convaincre avec sa cuisine sans âme…"
+layout: post
+link: >
+  https://voiretmanger.fr/3c-collonges-mont-or/
+published: true
+tags:
+  - Cuisine française
+  - Cuisine moderne
+categories:
+  - À manger
+---
+<p>À Collonges au Mont d'Or, dans la proche banlieue lyonnaise, on retient surtout le nom de Paul Bocuse et de <a href="https://voiretmanger.fr/2013/01/04/auberge-pont-collonges-bocuse/" title="L'Auberge du Pont de Collonges, à Collonges au Mont d'Or (Paul Bocuse) - À voir et à manger"><strong>L'Auberge du Pont de Collonges</strong></a>, mais ce n'est pas le seul restaurant de la commune. Sur la place de la Tour, dans un quartier neuf, le restaurant <a href="http://les3crestaurant.fr"><strong>Les 3C</strong></a> — pour café, comptoir et Collonges — surprend par son cadre très moderne, moins par sa carte conventionnelle. </p>
+
+<div style="text-align:center;"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2013/04/les-3c-collonges-salle.jpg" alt="Les 3c collonges salle" title="les-3c-collonges-salle.JPG" width="100%" /></div>
+
+<p>Contrairement à la fameuse adresse de Paul Bocuse, <strong>Les 3C</strong> est un restaurant tout neuf qui arbore une décoration moderne et assez sobre. On la voit mal de l'extérieur, mais la salle est grande, très grande même pour un restaurant aussi isolé. Ce soir-là, en semaine, le public est composé exclusivement de gens du coin, pour une moyenne d'âge logiquement assez élevée. L'ambiance devrait être assez calme, mais le propriétaire du restaurant a la drôle idée de mettre de la musique assez forte et pas toujours du meilleur goût. Avis aux amateurs, les soirs de foot on peut regarder les matchs accoudés au bar, mais toute la salle en profite aussi… <strong>Les 3C</strong> n'appellent aucun commentaire particulier, c'est une adresse moderne comme on en voit des centaines, surtout dans les grandes villes. L'été, on pourra aussi profiter de la terrasse extérieur, même s'il faut bien avouer que le cadre contemporain de cette place manque un peu de charme…</p>
+
+<div style="text-align:center;"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2013/04/les-3c-collonges-salade-.jpg" alt="Les 3c collonges salade" title="les-3c-collonges-salade-.JPG" width="100%" /></div>
+
+<p>À <a href="http://les3crestaurant.fr/pdf/Carte-les3c.pdf">la carte</a>, <strong>Les 3C</strong> propose une cuisine sans grande originalité, sans non plus qu'une tendance nette se dégage. On est ici dans la cuisine française assez traditionnelle, entre bistrot et restauration un petit peu plus moderne. On trouve ainsi l'incontournable steak tartare ou l'inévitable salade César, mais aussi quelques touches asiatiques qui sont censées apporter un peu d'originalité. Contexte lyonnais oblige, on a aussi sur cette carte décidément hétéroclite une quenelle et quelques abats. Rien ne ressort vraiment, c'est une restauration traditionnelle où aucun chef ne propose de création, mais où l'on peut se restaurer sans chichi. Petite particularité du lieu tout de même, sa cave vitrée qui trône au milieu de la salle. Le client ne va pas chercher lui-même sa bouteille, mais c'est une touche moderne plutôt bien vue. Notons que cette cave peut aussi servir à acheter une bouteille à emporter, reste à savoir si les <a href="http://les3crestaurant.fr/pdf/Vins-les3c.pdf">tarifs du restaurant</a> sont appliqués là aussi. Avec un magnum de champagne facturé 900 €, <strong>Les 3C</strong> joue à nouveau la carte de l'éclectisme, sachant que la majorité des vins sont à un prix plus raisonnables. Dommage en revanche que le verre de vin blanc commandé en apéritif nous ait été servi si froid, à tel point que le viognier commandé n'avait plus vraiment de goût.</p>
+
+<div style="text-align:center;"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2013/04/les-3c-poisson-collonges-mont-d-or.jpg" alt="Les 3c poisson collonges mont d or" title="les-3c-poisson-collonges-mont-d-or.JPG" width="100%" /></div>
+
+<p>Les plats à la carte ne sont pas vraiment bon marché, on s'en tire souvent pour une vingtaine d'euros. L'unique menu qui allie entrée, plat et dessert pour 25 € est ainsi beaucoup plus raisonnable et c'est vers lui que nous nous tournons. Les verrines du marché qui ne sont en fait que des veloutés de légumes n'inspirant personne, on se tourne vers la salade dite « Curato » composée de roquette, de mozzarelle de buffle, de copeaux de parmesan et de jambon de parme, vers une terrine maison qui était ce soir-là faite de ris de veau et de foie gras ou encore vers des nems de crevettes et porc. La salade n'était pas mauvaise, avec de bons produits de base, mais l'assaisonnement annoncé — une vigrainette balsamique citronnée — manquait à l'appel ; heureusement qu'il y avait sur la table vinaigre et huile d'olive. Les deux autres entrées ont eu plus de succès, mais <strong>Les 3C</strong> a déçu sur le plat. L'entrecôte de bœuf Black Angus était trop cuite et surtout bien trop petite, mais c'est surtout le poisson du jour qui a déçu. On nous annonce un filet façon thaï, on a finalement une papillote avec jus vaguement aromatisé à la citronnelle et plein de petits pois simplement cuits à l'eau, accompagné d'un riz sans intérêt. Pis, le poisson manquait de fraicheur et avait un arrière-goût assez désagréable, bref un plat médiocre, tout simplement. Les desserts n'ont guère relevé le niveau : d'une banalité affligeante (fromage blanc, glace…), ils ont été corrects, sans plus, à l'image de ce baba au rhum mollasson que le rhum trop dilué qui l'accompagnait n'est pas parvenu à relever.</p>
+
+<div style="text-align:center;"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2013/04/3c-baba-au-rhum.jpg" alt="3c baba au rhum" title="3c-baba-au-rhum.JPG" width="100%" /></div>
+
+<p>Avec sa décoration moderne et chic, <strong>Les 3C</strong> promet beaucoup sur le papier, mais la cuisine s'avère trop décevante. La carte hétéroclite et, semble-t-il, très stable n'est pas vraiment passionnante, mais des assiettes de qualité auraient fait l'affaire. Las, nous avons été globalement déçus par des plats sans âme et même, pour le poisson du jour, à la limite du correct. Difficile en l'état de faire de l'ombre à <strong>L'Auberge du Pont de Collonges</strong>, même si ce n'est évidemment pas l'ambition de cette adresse.</p>
