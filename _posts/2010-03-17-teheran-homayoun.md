@@ -1,0 +1,42 @@
+---
+ID: 3033
+post_title: Téhéran, Nader T. Homayoun
+post_name: teheran-homayoun
+author: Nicolas
+post_date: 2010-03-17 23:42:40
+post_excerpt: "Téhéran, le premier film de Nader T. Homayoun, a des allures de documentaire réalisé à partir d'images volées. C'est un portrait passionnant de l'Iran d'aujourd'hui, mais c'est aussi un thriller assez efficace. Une bonne surprise."
+layout: post
+link: >
+  https://voiretmanger.fr/teheran-homayoun/
+published: true
+tags:
+  - Mafia
+  - Religion
+  - Société
+  - Thriller
+categories:
+  - À voir
+---
+<strong><span style="text-decoration: underline;">À lire</span> : j’ai été invité par Haut et Court à une projection de presse pour voir <em>Téhéran</em>. Je n’ai reçu aucun paiement pour cette critique, et je ne pense pas que mon jugement a été influencé par cette invitation. Si cela vous dérange, votre navigateur Internet dispose d’une fonction « Fermer la fenêtre ». Sinon, je vous remercie pour votre confiance et vous propose de continuer votre lecture.</strong>
+
+<em>Téhéran</em> est le premier film du franco-iranien Nader T. Homayoun. Je n'avais jamais entendu du film avant d'être invité à le voir, et je ne savais pas bien à quoi m'attendre. L'affiche promet "un polar à l'iranienne" et même une "petite révolution" et si, comme d'habitude, c'est exagéré, <em>Téhéran</em> ne m'a pas déplu.
+
+<a href="http://www.allocine.fr/film/fichefilm_gen_cfilm=177037.html"> </a>
+<p style="text-align: center;"><a href="http://www.allocine.fr/film/fichefilm_gen_cfilm=177037.html"></a></p>
+<a href="http://www.allocine.fr/film/fichefilm_gen_cfilm=177037.html">
+<div style="text-align: center;"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2010/03/teheran-homayoun-affiche.jpg" border="0" alt="teheran-homayoun-affiche.jpg" width="690" height="920" /></div>
+</a>
+
+Le film s'ouvre sur un carrefour encombré de véhicules en tout genre. Un homme, un nourrisson dans les bras, frappe à toutes les fenêtres, suppliant qu'on lui offre quelques pièces pour survivre après la mort de sa femme. Très vite, le doute s'installe : il tient le bébé comme une poupée, semble n'avoir aucune considération pour lui. Certes, il est dans une situation délicate et dans ce pays marqué par un machisme omniprésent, on peut imaginer qu'il n'avait jamais géré lui-même son enfant. Néanmoins, quelque chose cloche, surtout quand il donne de l'argent à une personne qui inspecte alors l'enfant comme s'il s'agissait d'un cheval. On finit par comprendre qu'il loue le bébé pour gagner plus d'argent en mendiant. Plusieurs réseaux de mafia élèvent ainsi des écuries de bébés et enfants qu'ils louent ou vendent aux plus fortunées. Un bébé s'échange ainsi jusqu'à 10 millions de rials iraniens soit... <a href="http://irr.cer24.com/eur/?q=10000000">740 €</a>.
+
+<em>Téhéran</em> n'est pas l'adaptation d'une histoire vraie, mais plutôt, d'après le réalisateur, une création à partir de rumeurs qui courent en Iran. Apparemment, l'idée du trafic de jeunes enfants est répandue et c'est par cet angle que Nader T. Homayoun a choisi de parler de l'Iran d'aujourd'hui, et de sa capitale. L'histoire est d'abord un prétexte pour montrer ce pays complexe, mélange de traditionalisme empreint de l'Islam, et de modernité capitaliste et mondialisée. Les voitures les plus récentes et luxueuses côtoient ainsi dans les mêmes rues des épaves qui roulent encore pour une raison que Dieu, sans doute, seul connaît. Un métro moderne circule sous une ville frappée par la pauvreté et la misère, même si des quartiers riches et occidentalisés sont juste à côté. La ségrégation sociospatiale, caractéristique principale de toutes les villes des pays dits en voie de développement est ainsi clairement marquée et bien rendue par le film.
+<div style="text-align: center;"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2010/03/teheran-nader-t-homayoun.jpg" border="0" alt="teheran-nader-t-homayoun.jpg" width="690" height="389" /></div>
+Le film de Homayoun présente aussi une société duale, encore marquée par la religion islamique, mais aussi en partie libérée des carcans religieux, quitte à aller dans le libéralisme à outrance. Dans Téhéran, c'est un peu la loi du plus fort qui règne. <em>Téhéran</em> ne montre jamais une seule fois les forces de l'ordre, ni même d'ailleurs une quelconque figure de l'autorité étatique. Tout au plus, voit-on à un moment un imam, mais sinon les personnages évoluent dans un monde dirigé par des bandes mafieuses ou par des petits groupes de voleurs qui commettent leurs méfaits déguisés en policier. Le déguisement semble, d'ailleurs, être une règle courante à l'image de cette prostituée qui se déguise en étudiante pour mieux tromper ses cibles. Le personnage principal, en inventant une histoire de veuvage et en louant un bébé, entre d'ailleurs dans le mensonge, un mensonge qui ne semble même pas étonner sa vraie femme qui attend leur enfant. Comme si la société iranienne était devenue blasée : c'est d'ailleurs ce qu'indique le réalisateur dans le dossier de presse quand il évoque "<em>le triomphe du cynisme, de la démagogie et de l'impunité</em>".
+
+Mais si <em>Téhéran</em> a des allures de documentaires et une ambition clairement affichée de montrer l'Iran d'aujourd'hui, il s'agit aussi d'un thriller assez efficace. L'intrigue du thriller n'a rien d'original, il s'agit de rembourser au plus vite un mafieux d'une somme que le personnage principal, réduit à mendier, ne pourrait imaginer obtenir en un mois. Tous les moyens sont bons, de part et d'autre, pour faire pression ou obtenir le plus d'argent possible, quitte à le faire illégalement. Le suspense n'envahit jamais vraiment le spectateur, mais j'ai trouvé que le thriller fonctionnait assez bien. Certes, on reste loin des super productions hollywoodiennes, mais en même temps ça n'était pas l'ambition du réalisateur. Disons que la partie fictionnelle n'est pas aussi intéressante, à mes yeux, que la partie plus attachée à montrer les différentes facettes de la société iranienne.
+<div style="text-align: center;"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2010/03/homayoun-teheran.jpg" border="0" alt="homayoun-teheran.jpg" width="690" height="388" /></div>
+Les conditions de tournage d'un tel film ont été exceptionnelles et cela se voit à l'écran. En Iran, il faut encore en 2010 demander une autorisation officielle pour réaliser un film. Autant dire que l'autorisation ne serait jamais accordée à un film qui critique si ouvertement le pays. Néanmoins, on peut tourner à l'aide de caméras numériques, jugées apparemment incapables de faire des films par le régime. <em>Téhéran</em> a ainsi été tourné à l'aide de matériel numérique semi-pro, ce qui explique une image souvent floue, souvent marquée par un grain important, et même de gros défauts dans les couleurs. L'image n'est pas très belle, et fait un peu film volé… ce qu'il est finalement en grande partie puisqu'il faut aussi une autorisation pour filmer dans un lieu public, ce que Nader T. Homayoun n'a pas eu alors que son film s'y déroule essentiellement. Il raconte ainsi une le tournage n'a duré que 18 jours et que pour la majorité des scènes, ils n'ont eu droit qu'à une prise unique. Le tout avec la peur permanente de se faire saisir le matériel et les images, et donc la nécessité de dupliquer et disperser le plus rapidement possible des copies. L'image est imparfaite, mais elle fait aussi le charme du film et contribue surtout à son réalisme. Ces difficultés techniques ont été en outre corsées par les difficultés morales d'acteurs qui ont catégoriquement refusé de tourner des scènes avec des femmes dévoilées, par exemple.
+
+<em>Téhéran</em> n'est sans doute pas la "petite révolution" annoncée par l'affiche ((Quoique, c'est pratique comme formule finalement, ça ne veut pas dire grand-chose…)), mais c'est en tout cas un premier film au moins intéressant, pour un réalisateur qu'il faudra suivre de près. Le film est meilleur dans sa partie "documentaire" que sur la partie purement thriller, mais même cette dernière est assez efficace, suffisamment en tout cas pour tenir en haleine le spectateur.
+
+Le film ne sort en France que le 14 avril, mais il ne sortira sans doute jamais en Iran, comme c'était le cas pour les récents <em><a href="https://voiretmanger.fr/?p=2370">Chats persans</a></em>.
