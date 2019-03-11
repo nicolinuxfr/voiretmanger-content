@@ -1,0 +1,40 @@
+---
+ID: 4739
+post_title: '<em>Rio</em>, Carlos Saldanha'
+post_name: rio-saldanha
+author: Nicolas
+post_date: 2011-04-18 00:02:57
+post_excerpt: "Rio est un film d'animation classique, très classique, trop classique. S'il s'avère assez efficace, surtout avec les enfants, il est desservi par un scénario qui manque d'ambition et par une histoire déjà vue et revue."
+layout: post
+link: https://voiretmanger.fr/rio-saldanha/
+published: true
+tags:
+  - Amour
+  - Animation
+  - Animaux
+  - Blockbuster
+  - Vite oublié
+categories:
+  - À voir
+---
+<p>« Par les créateurs de <a href="https://voiretmanger.fr/saga/lage-de-glace/"><em>L'Âge de Glace</em></a> ». Procédé classique, mais efficace il faut bien l'avouer, pour attirer l'œil sur cet énième film d'animation. Vérifications faites, Carlos Saldanha a réalisé ou co-réalisé la célèbre trilogie qui, en son temps, avait changé la façon de concevoir l'animation pour enfant en la modernisant. Mais la série a mal vieilli tandis qu'elle donnait naissance à une infinité de films d'animation reprenant toujours la même recette. <em>Rio</em> appartient clairement à cette tendance, et ce n'est pas vraiment un compliment. C'est un film taillé pour un public jeune manifestement jugé incapable de comprendre autre chose qu'une romance mignonne, mais tellement téléphonée. Résultat, les enfants s'amusent, les grands s'ennuient un peu…</p>
+<div style="text-align: center;"><a href="http://www.allocine.fr/film/fichefilm_gen_cfilm=146550.html"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2011/04/rio-saldanha.jpeg" border="0" alt="Rio saldanha" width="690" height="927" /></a></div>
+
+<p>On prend (encore) les mêmes et on recommence. Sur le fond, on ne trouve pas tant de différences entre <em>Rio</em> et <em>L'Âge de Glace</em> : l'histoire de Blu, ce perroquet bleu, dernier représentant mâle de son espèce, en quête de l'amour à Rio de Janeiro, son pays natal, n'a rien d'original. Comme on peut s'y attendre dès la lecture du synopsis, le dernier film de Carlos Saldanha est une quête initiatrice comme on en a vu tant. Au départ, Blu est un oiseau domestique qui ne sait ni voler, ni survivre en environnement hostile, mais qui sait faire fonctionner un grille-pain, qui se lave les dents et qui fait des câlins avec sa maîtresse. Bref, un parfait animal de compagnie, parfaitement inadapté à son environnement naturel qu'il va devoir brutalement fréquenter. L'intrigue de <em>Rio</em> est simple : l'espèce de Blu est menacée, il ne reste que lui et une femelle qu'il va rencontrer au Brésil pour tenter de perpétuer son espèce. Bien entendu, rien ne va se dérouler selon ce plan et les deux tourtereaux bien malgré eux vont devoir affronter de terribles dangers et éviter les contrebandiers qui volent les espèces protégées pour les revendre une fortune en Occident.</p>
+<p>La perpétuation de l'espèce ne saurait faire l'objet d'un document dans un film d'animation grand public et destiné avant tout aux enfants. <em>Rio</em> est donc d'abord une histoire d'amour entre deux oiseaux, un amour très anthropomorphique pour parler au plus large public. La quête initiatrice du jeune Blu passe ainsi par la découverte de l'amour en parallèle de la découverte de son environnement naturel. Autant le dire, l'amour est ici cousu de fil blanc : on sait d'emblée que le couple se formera à la fin, mais que les deux tourtereaux vont se chamailler pendant tout le reste du film. Cela ne loupe pas dans <em>Rio</em> qui réunit de force les deux oiseaux alors que seul un des deux vole. Cette astuce scénaristique offre de nombreuses opportunités pour des gags visuels peu élaborés, mais relativement efficaces. On sourit plus qu'on ne rigole dans <em>Rio</em>, même si quelques gags sont plutôt bien vus, quoique souvent trop systématiques (la transformation d'un personnage supposé dangereux et viril en danseur un peu efféminé est amusante une fois, pas quatre).</p>
+
+<div style="text-align: center;"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2011/04/saldanha-rio.jpeg" border="0" alt="Saldanha rio" width="690" height="300" /></div>
+<p>Finalement, le principal problème de <em>Rio</em> est qu'il arrive après tous les autres. Le film se contente de recycler des idées déjà vues des dizaines de fois ailleurs et il faut le dire, une certaine lassitude sera ressentie par tous ceux qui ont vu des films d'animation ces dix dernières années. Tout est là, le couple qui se chamaille puis forme une famille, les vilains méchants très méchants, mais un peu bêtas, qui sont finalement condamnés, le happy-end dégoulinant et familial, les personnages secondaires censés servir de caution comique et même les chansons. Ces dernières posent un vrai problème, au moins en version française. Si elles tiennent la route musicalement, les paroles niaises les desservent complètement. C'est en fait un problème plus général dans <em>Rio</em> : le film est d'abord pensé pour les enfants et il est animé d'une conception assez rétrograde de ce qui plait aux enfants. On reste ainsi dans le premier degré constant (alors que le second degré était une force de <em>L'Âge de Glace</em>) et dans l'humour simple, pour ne pas dire simpliste.</p>
+<p>Le palmarès n'est pas très positif pour <em>Rio</em>, mais le film se rattrape toutefois sur le plan visuel. La technique est indéniablement au point, même si on n'atteint pas le niveau des plus gros studios Pixar ou Dreamworks, mais l'animation est très fluide et s'oublie vite, tandis que le Rio reconstitué est assez réussi, même s'il accumule les clichés de carte postale. Au-delà de la technique pure, on apprécie l'explosion de couleurs proposée par le film, avec un côté exotique qui fonctionne plutôt bien. Le carnaval était attendu, mais il est bien intégré au film et offre quelques séquences bien menées, à défaut d'être originales. Comme tout film d'animation moderne, la 3D est au rendez-vous et on sent que <em>Rio</em> a été pensé pour cette technique. Elle reste confinée au gadget, mais elle s'avère plutôt efficace et ne gêne pas le film outre mesure.</p>
+
+<div style="text-align: center;"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2011/04/rio-animation.jpeg" border="0" alt="Rio animation" width="690" height="300" /></div>
+<p>Dans le cinéma d'animation pour enfants, deux écoles semblent s'affronter. D'un côté, il y a les partisans des animaux qui parlent, suivant là une vieille tradition qui remonte, pour l'animation au moins, à quelques grands classiques de Walt Disney. De l'autre, il y a ceux qui estiment que les enfants n'ont pas besoin d'animaux qui parlent et que l'on peut faire rêver avec autre chose, comme des jouets ou un petit robot rouillé. Les studios Blue Sky continuent de parier sur les animaux parlant, mais <em>Rio</em> prouve bien que ce n'est pas une bonne idée. L'histoire fonctionne bien sûr, mais faire parler des animaux ne suffit pas et le scénario est vraiment trop pauvre dans ce film d'animation, et c'est bien dommage. Le film n'est pas déplaisant pour autant, non, mais il est insipide et oublié dès la sortie du cinéma. Cela conviendra pour un cinéma en famille, mais c'est à peu près tout.</p>
+
+<div class="amazon">
+<h3>Vous voulez m'aider ?</h3>
+<ul>
+	<li><a href="http://www.amazon.fr/gp/product/B004UPIDGY/ref=as_li_ss_tl?ie=UTF8&tag=leblogdenic07-21&linkCode=as2&camp=1642&creative=19458&creativeASIN=B004UPIDGY">Acheter le film en Blu-Ray sur Amazon</a></li>
+	<li><a href="http://www.amazon.fr/gp/product/B004UPIDDC/ref=as_li_ss_tl?ie=UTF8&tag=leblogdenic07-21&linkCode=as2&camp=1642&creative=19458&creativeASIN=B004UPIDDC">Acheter le film en DVD sur Amazon</a></li>
+	<li><a href="http://itunes.apple.com/fr/movie/rio-2011/id438417222">Acheter le film sur l'iTunes Store</a></li>
+</ul>
+</div>
