@@ -1,0 +1,46 @@
+---
+ID: 17362
+post_title: '<em>Boardwalk Empire</em>, Terence Winter (HBO)'
+post_name: boardwalk-empire-winter-hbo
+author: Nicolas
+post_date: 2017-01-29 11:11:44
+layout: post
+link: >
+  https://voiretmanger.fr/boardwalk-empire-winter-hbo/
+published: true
+tags:
+  - Adaptation littéraire
+  - Alcool
+  - Argent
+  - Drame
+  - Famille
+  - Film de gangsters
+  - Histoire
+  - Histoire vraie
+  - Mafia
+  - Prohibition
+  - Série
+categories:
+  - À voir
+---
+<p>Terence Winter s'est fait conna&icirc;tre pour son travail en tant que sc&eacute;nariste avec l'excellente s&eacute;rie&nbsp;<em><a href="https://voiretmanger.fr/soprano-chase-hbo/">Les Soprano</a></em>. Et apr&egrave;s avoir imagin&eacute; une famille de mafieux du New Jersey,&nbsp;<em>Boardwalk Empire</em> suit &agrave; nouveau les pas d'un groupe de mafieux du New Jersey. Il y a une diff&eacute;rence de taille toutefois : cette nouvelle s&eacute;rie HBO se d&eacute;roule cette fois au c&oelig;ur de la Prohibition, dans les ann&eacute;es 1920. C'est une vision traditionnelle de la mafia qui est propos&eacute;e cette fois et la pr&eacute;sence de Martin Scorsese qui a r&eacute;alis&eacute; le pilote et produit le reste de la s&eacute;rie n'est pas un hasard.&nbsp;<em>Boardwalk Empire</em> repr&eacute;sente l'arch&eacute;type du film de gangster, mais sur petit &eacute;cran. Le r&eacute;sultat est une reconstitution historique du meilleur niveau, un casting superbe et des premi&egrave;res saisons qui valent absolument le d&eacute;tour. Terence Winter tourne un petit peu en rond sur la fin, mais ce n'est pas une raison pour bouder l'ensemble. Avis aux amateurs du genre, ne passez pas &agrave; c&ocirc;t&eacute; !</p>
+
+<img class="aligncenter size-full wp-image-17372" src="https://voiretmanger.fr/wp-content/uploads/2017/01/boardwalk-empire-steve-buscemi-shea-whigham.jpg" alt="" width="3300" height="2200" />
+
+<p><em>Boardwalk Empire</em> commence en 1920 et ce n'est nullement un hasard. C'est cette ann&eacute;e-l&agrave; que le <em><a href="https://fr.wikipedia.org/wiki/Volstead_Act">Volstead Act</a></em>&nbsp;entre en vigueur et interdit l'alcool sur tout le territoire des&nbsp;&Eacute;tats-Unis. La prohibition est appliqu&eacute;e en th&eacute;orie &agrave; partir du 16 janvier 1920, mais &agrave; Atlantic City, cette interdiction est avant tout une mani&egrave;re bien pratique de gagner encore davantage d'argent. Dans le pilote r&eacute;alis&eacute; par Martin Scorsese et qui a des allures de long-m&eacute;trage, on voit notamment les dirigeants de la ville c&eacute;l&eacute;brer la prohibition avec des litres d'alcool. Au milieu, Enoch Thompson, dit Nucky, n'est que tr&eacute;sorier du comt&eacute;, mais derri&egrave;re ce titre se cache l'homme le plus puissant de la ville puisque c'est lui qui est &agrave; la t&ecirc;te de l'organisation criminelle qui g&egrave;re tous les aspects de la vie d'Atlantic City. C'est aussi le h&eacute;ros de la s&eacute;rie et il s'inspire directement d'un <a href="https://fr.wikipedia.org/wiki/Enoch_L._Johnson">personnage historique</a>. L'intrigue se construit autour de lui et autour du trafic d'alcool qui se met rapidement en place. La ville est situ&eacute;e sur le littoral atlantique, ce qui simplifie l'import de whisky depuis l'Europe et de rhum depuis les Cara&iuml;bes. Les bouteilles sont ensuite distribu&eacute;es dans la ville et dans tout le pays, de New York &agrave; Chicago. Progressivement, l'effet pervers de la prohibition se d&eacute;voile, avec de l'alcool qui continue de couler &agrave; flot et qui enrichit la mafia. Les prix explosent, l'alcool frelat&eacute; de mauvaise qualit&eacute; appara&icirc;t partout et la faiblesse des autorit&eacute;s est ridicule face &agrave; l'organisation et &agrave; l'argent des gangsters. Les premi&egrave;res saisons s'attachent tout particuli&egrave;rement &agrave; d&eacute;crire l'impuissance du gouvernement &agrave; appliquer sa propre loi et souvent la complaisance de ceux qui gouvernent. Nucky peut agir librement, c'est lui qui contr&ocirc;le les &eacute;lections locales et il paie aussi le s&eacute;nateur, les juges, les procureurs&hellip; qui s'en prendrait &agrave; lui ? Pas les autorit&eacute;s bien s&ucirc;r, mais les autres mafieux qui jalousent son empire. La violence est omnipr&eacute;sente dans&nbsp;<em>Boardwalk Empire</em> comme elle l'&eacute;tait &agrave; l'&eacute;poque et les cadavres commencent &agrave; s'empiler d&egrave;s le pilote. Les gangsters attaquent les autres gangsters, Nucky prot&egrave;ge ses int&eacute;r&ecirc;ts &agrave; n'importe quel prix et la police ne peut rien faire, ou bien souvent ne veut rien faire. Toute cette m&eacute;canique de la prohibition est d&eacute;j&agrave; bien connue, mais Terence Winter fait un excellent travail pour la remettre en &oelig;uvre et la d&eacute;monstration est assez brillante.&nbsp;</p>
+
+<img class="aligncenter size-full wp-image-17373" src="https://voiretmanger.fr/wp-content/uploads/2017/01/boardwalk-empire-stephen-graham.jpg" alt="" width="3246" height="2164" />
+
+<p>Le travail de reconstitution historique est excellent, notamment gr&acirc;ce au d&eacute;cor cr&eacute;&eacute; pour les besoins de la s&eacute;rie, avec cette jet&eacute;e d'Atlantic City qui a donn&eacute; son titre &agrave; l'&oelig;uvre. Les costumes sont eux aussi soign&eacute;s et l'ensemble est remarquable de cr&eacute;dibilit&eacute;. C'est d&eacute;j&agrave; une belle r&eacute;ussite, mais&nbsp;<em>Boardwalk Empire</em> ne serait rien sans de bons personnages et une intrigue personnelle int&eacute;ressante. C'&eacute;tait d'ailleurs la plus grande r&eacute;ussite de David Chase avec&nbsp;<em>Les Soprano</em> : en creusant la psychologie de ses personnages, la s&eacute;rie avait atteint des sommets de narration et elle reste toujours aussi forte des ann&eacute;es apr&egrave;s. C'est un petit peu moins le cas pour celle de Terence Winter, mais cela ne veut pas dire que ses personnages ne sont pas int&eacute;ressants. Bien au contraire, Nucky est un homme complexe et les cinq saisons parviennent bien &agrave; la montrer. Il peut se r&eacute;v&eacute;ler extr&ecirc;mement dur et dangereux, tuant ses plus proches collaborateurs sans h&eacute;siter et sans regret s'il s'estime roul&eacute;. Et en m&ecirc;me temps, il est capable d'amour et de g&eacute;n&eacute;rosit&eacute;, il peut faire un bon p&egrave;re de substitution quand la situation se pr&eacute;sente et derri&egrave;re l'horreur du mafieux se cache un homme bon. Cette h&eacute;sitation est constante et il fallait un bon acteur pour la transmettre : le choix de Steve Buscemi est &eacute;vident et son jeu est parfait du d&eacute;but &agrave; la fin.&nbsp;<em>Boardwalk Empire</em> m&eacute;rite d'&ecirc;tre vu ne serait-ce que pour lui, ce serait n&eacute;anmoins injuste de ne pas saluer le travail de ceux qui l'entourent. Il n'y a aucune fausse note et le seul regret &agrave; formuler est que certains personnages auraient m&eacute;rit&eacute; une plus grande pr&eacute;sence. Pour ne citer qu'un exemple, l'agent Van Alden (incarn&eacute; par un Michael Shannon vraiment, comme d'habitude) a un parcours extr&ecirc;mement int&eacute;ressant, mais il manque un petit peu d'&eacute;paisseur psychologique et on ne comprend pas toujours son &eacute;volution. Dans un autre domaine, un des personnages essentiels dans les d&eacute;buts dispara&icirc;t &agrave; un moment dans la s&eacute;rie et c'est une perte sensible par la suite. Le sc&eacute;nario aurait peut-&ecirc;tre mieux fait de le garder en suivant une autre direction.</p>
+
+<img class="aligncenter size-full wp-image-17374" src="https://voiretmanger.fr/wp-content/uploads/2017/01/boardwalk-empire-michael-pitt.jpeg" alt="" width="2575" height="1713" />
+
+<p>De mani&egrave;re g&eacute;n&eacute;rale, <em>Boardwalk Empire</em>&nbsp;est vraiment excellente dans ses d&eacute;buts avec au moins trois saisons d'un tr&egrave;s grand niveau. Elle perd toutefois sur la fin, surtout parce que l'intrigue devient r&eacute;p&eacute;titive. Nucky conna&icirc;t des d&eacute;boires, revient sur le devant de la sc&egrave;ne, il est attaqu&eacute; &agrave; nouveau, parvient &agrave; s'en sortir, mais un nouvelle menace survient&hellip; on comprend l'id&eacute;e. HBO aurait probablement gagn&eacute; &agrave; ne garder que trois saisons et la condenser, ou bien alors d'oser davantage, comme la cinqui&egrave;me saison le fait. Terence Winter va alors chercher dans le pass&eacute; de ses personnages et il parvient &agrave; relancer l'int&eacute;r&ecirc;t de la s&eacute;rie&hellip; le temps de huit &eacute;pisodes seulement.&nbsp;<em>Boardwalk Empire</em> se termine sur une note moins positive, c'est vrai, mais il ne faudrait pas oublier l'excellence des d&eacute;buts. En moyenne, elle reste ainsi une s&eacute;rie tr&egrave;s convaincante qui m&eacute;rite amplement d'&ecirc;tre vue.</p>
+
+<div class="amazon" markdown="1">
+### Vous voulez [m'aider](https://voiretmanger.fr/soutien/) ?
+
+- [Acheter la série en Blu-ray sur Amazon](http://amzn.to/2kAXyQ7)
+- [Acheter la série en DVD sur Amazon](http://amzn.to/2kg27ly)
+- [Acheter ou louer la série sur l'iTunes Store](https://itunes.apple.com/fr/tv-season/boardwalk-empire-saison-1/id433184048)
+</div>
