@@ -1,0 +1,41 @@
+---
+ID: 17617
+post_title: '<em>Logan</em>, James Mangold'
+post_name: logan-mangold
+author: Nicolas
+post_date: 2017-03-12 15:45:06
+layout: post
+link: https://voiretmanger.fr/logan-mangold/
+published: true
+tags:
+  - Action
+  - Adaptation bande-dessinée
+  - Comics
+  - Drame
+  - Science-Fiction
+  - Sorties du moment
+  - Superhéros
+categories:
+  - À voir
+---
+Wolverine a toujours été le personnage le plus intéressant de la saga [*X-Men*](https://voiretmanger.fr/saga/x-men/) et ce n’est pas surprenant qu’il ait bénéficié d’un traitement de faveur et d’une mini-saga parallèle. *Logan* est le troisième et dernier volet de cette trilogie consacrée à ce mutant doté de griffes et c’est à nouveau James Mangold qui est derrière les caméras. Le cinéaste avait déjà réalisé [*Wolverine : le combat de l’immortel*](https://voiretmanger.fr/wolverine-combat-immortel-mangold/), un volet imparfait, mais qui était passionnant, parce qu’il montrait pour la première fois la mutation comme une malédiction. C’était ainsi une vision beaucoup plus sombre des superhéros et *Logan* suit cette voie et va encore plus loin. Violent et sombre, ce nouveau film de superhéros est une véritable réussite dans la veine réaliste où régnait en maître la [saga *Batman*](https://voiretmanger.fr/saga/batman-christopher-nolan/) de Christopher Nolan. James Mangold s’enfonce encore plus profondément dans l’humanité de ses héros et il parvient à concilier action spectaculaire et souffrances intimes d’une manière remarquable. Un excellent blockbuster, à ne pas rater.
+
+<a href="https://fr.wikipedia.org/wiki/Logan_(film)"><img src="https://voiretmanger.fr/wp-content/uploads/2017/03/logan-mangold.jpg" alt="" width="1561" height="2126" class="aligncenter size-full wp-image-17618"></a>
+
+La première scène de *Logan* est un manifeste qui définit le reste du film. On découvre un Logan, alias Wolverine, vieilli et négligé&nbsp;: bien loin de l’image habituelle des superhéros, il ressemble beaucoup plus à un sans-abris. Il est réveillé dans sa voiture, alors que des malandrins tentent de voler l’une des roues, il sort et évidemment, l’affrontement dégénère. Néanmoins, James Mangold ne se contente pas de reproduire l’une des séquences des films précédents, il filme le combat entre le héros et les voleurs avec une violence frontale inattendue dans une production hollywoodienne. Tout est parfaitement réaliste, sans les astuces habituelles pour masquer la violence ou le sang. En bref, c’est une scène bien plus brutale que ce que l’on attendait et c’est un signe pour la suite&nbsp;: *Logan* ne fait pas dans la dentelle, c’est une œuvre souvent frontalement violente et qui n’essaie jamais d’enjoliver sa violence, ou alors de la tourner en ridicule. L’intrigue déployée ici est au premier degré et il n’est pas question de montrer n’importe quoi, tout est crédible, à commencer par l’univers à peine futuriste. On apprend indirectement que l’histoire se déroule dans un futur proche, en 2028, et James Mangold distingue cet univers du nôtre par quelques détails, comme cette limousine qui ne ressemble à rien de ce qui existe aujourd’hui. C’est toujours subtil toutefois et ce monde ressemble à deux gouttes d’eau au nôtre. Dans la saga complète, l’action se déroule dans la continuité de [*X-Men&nbsp;: Apocalypse*](https://voiretmanger.fr/x-men-apocalypse-singer/), soit après le redémarrage opéré dans [*X-Men&nbsp;: Days of Future Past*](https://voiretmanger.fr/x-men-days-future-past-singer/). Logan est vieux et fatigué et il est accompagné d’un Charles-Xavier encore plus vieux et fatigué, sénile même. À cette époque, les mutants ont presque tous été exterminés et les derniers vivent cachés dans la société. Quand le film commence, Logan est d’ailleurs chauffeur de limousine et il économise pour acheter un bateau et finir sa vie avec le professeur et un autre mutant. Cette retraite va exploser quand Laura entre dans sa vie et qu’elle les force à fuir. Commence une sorte de *road-movie* qui se termine en bain de sang, apportant au passage la dose d’action nécessaire, même si *Logan* se distingue des autres volets dans la saga par son rythme et surtout son ambiance très différente.
+
+<img src="https://voiretmanger.fr/wp-content/uploads/2017/03/logan-hugh-jackman-patrick-stewart.jpg" alt="" width="3300" height="2200" class="aligncenter size-full wp-image-17620">
+
+Le scénario de *Logan* est assez simple, car James Mangold a eu la bonne idée de se concentrer sur un petit nombre de personnages. C’est la principale différence avec les long-métrages dédiés aux X-Men, ce film est centré sur Wolverine et c’est l’un de ses plus gros points forts. Même si on découvre de nouveaux mutants à la fin et sans doute la fondation d’un nouveau départ pour la saga, on ne tombe jamais dans l’effet collection de superhéros et l’intrigue reste toujours focalisée sur Logan, Charles-Xavier et Laura. Ce personnage est très intéressant&nbsp;: cette jeune fille fait partie d’un groupe de mutants créé en laboratoire pour développer une arme. On ne peut pas dire que l’idée soit très originale, certes, mais c’est un point de départ solide et elle permet de créer un lien direct entre la fille et Logan, son père génétique. James Mangold ne verse jamais dans l’émotion en revanche, le traitement de cette relation est aussi brutale et sombre que le reste du film et ce personnage n’est absolument pas là pour attirer un public plus jeune, ou pour apporter un côté mignon à l’ensemble. Bien au contraire, Laura est présentée comme son père, c’est une bête furieuse et redoutable d’efficacité, qui sort ses griffes pour décapiter tous ceux qui viennent lui chercher des noises. C’est une petite sauvageonne, d’autant qu’elle reste souvent mutique, et la jeune actrice Dafne Keen est vraiment excellente dans ce rôle. *Logan* parvient à surprendre en créant malgré tout une sorte de relation père-fille, et même à toucher dans les dernières minutes. Le scénario est très bien écrit et il parvient à dresser un portrait tout en nuance, bien loin des caricatures que l’on a pu voir dans d’autres films de la saga. Il confirme au passage que le personnage de Wolverine est passionnant et Hugh Jackman n’a jamais été aussi bon qu’ici, en interprétant un ivrogne affaibli par un mystérieux poison qui l’empêche de guérir. Ce n’est plus vraiment un superhéros, ce qui est aussi le cas du professeur Charles-Xavier, interprété comme toujours par Patrick Stewart, et qui n’est plus que l’ombre de lui-même, un homme rendu extrêmement dangereux par la dégradation de son cerveau. Les scènes dans le réservoir sont très belles et James Mangold surprend, ici encore, par leur réalisme cru, loin de l’embellissement habituel dans le genre. Tout comme la violence, la vieillesse est montrée sans fard, frontalement, ce qui rend ces personnages humains et passionnants.
+
+<img src="https://voiretmanger.fr/wp-content/uploads/2017/03/logan-hugh-jackman-dafne-keen.jpg" alt="" width="3300" height="2200" class="aligncenter size-full wp-image-17619">
+
+Dix-sept ans après leur première apparition en tant que mutants au cinéma, Hugh Jackman et Patrick Stewart interprètent sans doute pour la dernière fois Wolverine et Charles-Xavier. *Logan* raconte ainsi une fin en même temps qu’un début et James Mangold a trouvé le ton juste pour le faire. Son long-métrage est absolument sérieux et il évite tous les pièges qui auraient pu le faire basculer dans le ridicule. Le récit est toujours réaliste et crédible, le fantastique présent par petites touches discrètes et les personnages sont extrêmement soignés. C’est ça, au fond, qui fait la réussite du projet, plus que les séquences d’action&nbsp;: les héros de *Logan* sont humains et faibles avant tout, ce qui les rend intéressants. La saga *X-Men* oppose souvent mutants et humains, ici le combat se fait intérieur et c’est une excellente idée. Belle réussite.
+
+<div class="amazon" markdown="1">
+### Vous voulez [m'aider](https://voiretmanger.fr/soutien/) ?
+
+- [Acheter le film en Blu-ray sur Amazon](http://amzn.to/2Cx5uva)
+- [Acheter le film en DVD sur Amazon](http://amzn.to/2CqjlWA)
+- [Acheter ou louer le film sur l'iTunes Store](https://itunes.apple.com/fr/movie/logan/id1207479497)
+</div>
