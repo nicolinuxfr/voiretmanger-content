@@ -1,0 +1,45 @@
+---
+ID: 6575
+post_title: '<em>Men In Black 3</em>, Barry Sonnenfeld'
+post_name: men-in-black-3-sonnenfeld
+author: Nicolas
+post_date: 2012-05-27 19:11:41
+post_excerpt: "La saga Men In Black revient dix ans après avec un nouvel épisode. Men In Black 3 se renouvelle un peu avec un retour dans le passé et le film de Barry Sonnenfeld est un blockbuster efficace et plaisant, à défaut d'être inoubliable…"
+layout: post
+link: >
+  https://voiretmanger.fr/men-in-black-3-sonnenfeld/
+published: true
+tags:
+  - Action
+  - Blockbuster
+  - Extra-terrestre
+  - Humour
+  - Saga
+  - Science-Fiction
+  - Vite oublié
+  - Voyage temporel
+categories:
+  - À voir
+---
+<p>Dix ans après <em><a href="https://voiretmanger.fr/2012/04/23/men-in-black-sonnenfeld/">MIIB</a></em>, le deuxième épisode des hommes en noir présents sur Terre pour contrôler les extraterrestres, la saga revient sur les écrans. Pour renouveler le plaisir et éviter la répétition, Barry Sonnenfeld utilise pour <em>Men In Black 3</em> une idée qui a toujours eu beaucoup de succès en science-fiction : le voyage dans le temps. Le résultat est plaisant, même si l'effet de surprise du tout premier film est bien passé. Un blockbuster sympa pour une séance ciné que l'on pourra ensuite vite oublier…</p>
+
+<div style="text-align: center;"><a href="http://www.allocine.fr/film/fichefilm_gen_cfilm=139622.html"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2012/05/men-in-black-3-sonnenfeld.jpg" alt="Men in black 3 sonnenfeld" width="100%" /></a></div>
+<p>L'agent J a été employé par l'agence des Men In Black depuis une quinzaine d'années. Il est toujours en équipe avec l'agent K, repêché dans un bureau de Poste de l'Amérique profonde dans <em>MIIB</em>, ce même agent qui l'avait embauché 15 ans auparavant, dans <a href="https://voiretmanger.fr/2012/04/23/men-in-black-sonnenfeld/"><em>Men In Black</em></a>. Les deux hommes ont fait un long chemin ensemble, mais J ignore toujours tout de K, ou presque. Le vieil agent ne semble pas particulièrement prêt à dévoiler tout son passé à son coéquipier et les deux agents ne se connaissent pas véritablement. Les évènements vont toutefois précipiter un retour vers le passé : le terriblement laid Boris s'échappe de sa prison lunaire construite spécialement pour le retenir. Il revient alors sur Terre, plus énervé que jamais et décide de remonter dans le temps. Été 1969, ce vil extraterrestre voulait déjà détruire notre planète, mais le tout jeune agent K des MIB l'arrête juste à temps et l'emprisonne pour quarante ans. Boris entend revenir sur ces faits et tuer cet agent pour détruire enfin la Terre. Pour sauver à la fois son équipier et la planète, l'agent J voyage à son tour dans le temps où il doit faire équipe avec le jeune agent K…</p>
+<p>Le voyage dans le temps est une idée qui fascine la science-fiction depuis que le genre existe. L'idée de pouvoir remonter le temps et vivre ce qui s'est passé il y a plusieurs années est l'objet de tous les fantasmes, mais c'est un exercice difficile. Le voyage temporel met à mal la logique en introduisant nécessairement la notion de réalités parallèles : si vous remontez le temps et que vous modifiez le passé, vous modifiez nécessairement le présent dans le même temps. <em>Men In Black 3</em> se frotte à cet exercice difficile, en prenant le parti plutôt avisé de rester assez simple. Barry Sonnenfeld en reste ainsi à un seul voyage temporel : l'agent J remonte en 1969 où il rencontre l'agent K qui n'a alors même pas 30 ans. Ils modifient ce passé en ne changeant qu'une seule chose : K tue Boris plutôt que de l'emprisonner comme il l'avait fait dans la réalité initiale. Au total, quand on revient au présent du film, rien n'a changé, ou presque. Nonobstant un changement de personnalité du côté de K, le présent n'a pas été bouleversé par ce voyage et la logique reste globalement en place. <em>Men In Black 3</em> n'est ainsi pas un de ces films qui imposent à ses spectateurs un véritable puzzle où les pièces doivent être replacées, souvent sans logique parfaite. Certains le regretteront peut-être, mais le film reste dans la logique des blockbusters et Barry Sonnenfeld a su proposer un troisième opus fun.</p>
+
+<div style="text-align: center;"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2012/05/mib-3-tommy-lee-jones-will-smith.jpg" alt="Mib 3 tommy lee jones will smith" width="100%" /></div>
+<p><em>Men In Black 3</em> reste globalement assez léger et on retrouve l'humour des deux premiers. Le sarcasme de l'agent K fait toujours son effet dans le présent du film, tandis que toute la partie située en 1969 joue sur les décalages de la société. L'agent J est noir, ce qui n'est pas anodin dans un pays encore profondément raciste. Barry Sonnenfeld s'amuse à intégrer à son récit l'histoire connue de tous : on croise ainsi un Andy Warhol devenu l'agent W. L'artiste travaille en fait pour les MIB et son statut n'est qu'une couverture dont il se lasse d'ailleurs : l'entendre dire qu'il n'a plus d'idées et qu'il en est réduit à peindre des boites de conserve est évidemment très efficace pour les contemporains. Comme Michael Bay avant lui dans <a href="https://voiretmanger.fr/2011/06/30/transformers-3-face-cachee-lune-bay/"><em>Transformers 3 : La Face cachée de la Lune</em></a>, le cinéaste utilise la conquête spatiale et en particulier les premiers pas de l'homme sur la Lune, mais <em>Men In Black 3</em> le fait de manière beaucoup plus subtile. Malgré ces touches légères, voire humoristiques, et malgré le renouvellement du couple de flic qui fonctionne plutôt bien, le dernier film de la saga ne fonctionne plus aussi bien qu'avant. L'effet de nouveauté est de l'histoire ancienne et <em>Men In Black 3</em> semble par moment aussi las que peut l'être l'agent K. Le résultat reste plaisant et parfait pour une séance du dimanche, mais on espère que la saga en restera là.</p>
+<p><em>Men In Black</em> et <em>MIIB</em> nous avaient habitué à un défilé de créatures toutes plus répugnantes les unes que les autres. <em>Men In Black 3</em> a réduit sensiblement la dose, mais son unique méchant est particulièrement réussi. En dix ans, les techniques ont évolué et les effets spéciaux de ce film sont bien fichus. Les scènes de combat sont intenses et bien fichues, même si le film accuse par moment de légères baisses de rythme. Barry Sonnenfeld fait toutefois son travail correctement et on ne s'ennuie pas, avec une 3D qui est, une fois n'est pas coutume, bien utilisée. On est ici dans le domaine du gadget, contrairement à ce que l'on a pu voir chez <a href="https://voiretmanger.fr/createur/james-cameron/">James Cameron</a> par exemple, mais c'est un gadget bien utilisé et on se prend plein de bouillie d'extraterrestres et autres projectiles à la figure. Si vous n'êtes pas allergique au procédé, on peut le recommander pour une fois. <em>Men In Black 3</em> emploie à nouveau Tommy Lee Jones et Will Smith pour ses rôles principaux et les deux acteurs n'ont plus rien à prouver. La bonne surprise vient plutôt d'un Josh Brolin épatant pour interpréter l'agent K, jeune. La ressemblance physique entre les deux acteurs n'est pas évidente au premier abord, mais il a su prendre les mêmes mimiques et expressions que Tommy Lee Jones et la comparaison est troublante, d'autant que la voix est extrêmement similaire.</p>
+
+<div style="text-align: center;"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2012/05/men-in-black-III-josh-brolin-will-smith.jpg" alt="Men in black III josh brolin will smith" width="100%" /></div>
+<p>Si vous avez aimé les deux premiers films de la saga, vous devriez apprécier <em>Men In Black 3</em> sans trop de problèmes. Même si l'effet de surprise du premier n'est plus là, même si l'humour n'est pas toujours aussi présent qu'avant, Barry Sonnenfeld a réussi à proposer un film qui tient la route et qui reste très fun à regarder. L'idée du retour dans le passé était risquée, mais elle est bien maîtrisée et l'ensemble reste plaisant. <em>Men In Black 3</em> a peut-être simplement comme défaut de se prendre un peu trop au sérieux, mais le spectacle est sans conteste au rendez-vous…</p>
+
+<div class="amazon">
+<h3>Vous voulez m'aider ?</h3>
+<ul>
+	<li><a href="http://www.amazon.fr/gp/product/B007SVG4UO/ref=as_li_ss_tl?ie=UTF8&tag=leblogdenic07-21&linkCode=as2&camp=1642&creative=19458&creativeASIN=B007SVG4UO">Acheter le film en Blu-Ray sur Amazon</a></li>
+	<li><a href="http://www.amazon.fr/gp/product/B002L73XTU/ref=as_li_ss_tl?ie=UTF8&tag=leblogdenic07-21&linkCode=as2&camp=1642&creative=19458&creativeASIN=B002L73XTU">Acheter le film en DVD sur Amazon</a></li>
+	<li><a href="http://www.amazon.fr/gp/product/B00865827O/ref=as_li_ss_tl?ie=UTF8&tag=leblogdenic07-21&linkCode=as2&camp=1642&creative=19458&creativeASIN=B00865827O">Acheter la trilogie en Blu-Ray sur Amazon</a></li>
+	<li><a href="http://itunes.apple.com/fr/movie/men-in-black-3/id550453639">Acheter ou louer le film sur l'iTunes Store</a></li>
+</ul>
+</div>
