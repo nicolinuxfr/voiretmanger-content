@@ -1,0 +1,45 @@
+---
+ID: 1868
+post_title: '<em>L&rsquo;armée du crime</em>, Robert Guédiguian'
+post_name: armee-du-crime-guediguian
+author: Nicolas
+post_date: 2009-09-27 23:46:55
+post_excerpt: "Robert Guédiguian s'empare d'un sujet qui lui tient à cœur et veut en faire une légende. Il aurait mieux d'en faire un film...."
+layout: post
+link: >
+  https://voiretmanger.fr/armee-du-crime-guediguian/
+published: true
+tags:
+  - Histoire
+  - Résistance
+  - Seconde guerre mondiale
+  - Vite oublié
+categories:
+  - À voir
+---
+<p>Depuis l'excellentissime <em>Promeneur du Champ de Mars</em>, Robert Guédiguian fait partie des quelques réalisateurs que je suis un peu à l'aveugle, par principe. Avec <em>L'armée du crime</em>, il revient à l'histoire et quelle histoire, puisqu'il s'agit de celle d'un groupe de résistants mené par un arménien ! Mais ce film à thèse ne m'a pas vraiment passionné...</p>
+<div style="text-align: center;"><a href="http://www.allocine.fr/film/fichefilm_gen_cfilm=135212.html"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2009/09/armee-crime-guediguian.jpg" border="0" alt="armee-crime-guediguian.jpg" width="600" height="800" /></a></div>
+<p><em>L'armée du crime</em> relate l'histoire d'un groupe de résistants français pendant l'occupation allemande à Paris. Ce groupe se construit autour du poète arménien Manouchian et se compose de Juifs ou de communistes (ou des deux), souvent d'origine étrangère. Ce sont tous des ennemis aux yeux des Allemands, mais aussi de la police française qui mène une traque sans merci contre ceux que l'on va rapidement regrouper en une "armée du crime". Leur principe est en effet de tuer autant d'Allemands que possible soit d'un coup de feu rapide dans une rue déserte, soit d'une grenade bien placée dans la rue ou dans les maisons closes que fréquentent les nazis...</p>
+<p>Le film ne laisse aucun doute sur le sort des membres du groupe puisqu'il ouvre sur leur transfert vers, on le suppose en tout cas, le lieu de leur exécution. De toute façon, le film s'inspire d'une histoire vraie qui laisse peu de place au doute. Il est étonnant que le réalisateur se soit senti obligé de préciser à la fin de son film qu'il a été contraint d'introduire un peu de romanesque parmi les faits historiques, comme si c'était un problème au cinéma.</p>
+<p>D'ailleurs, cet aveu est à mon sens un aveu de faiblesse du film. L'affiche, là encore, ne laissait aucun doute en écrivant, après la longue liste des nationalités, "Jeunes Héros Résistants". Guédiguian explicite à la fin qu'il a souhaité faire entrer cette histoire vraie dans la légende, en héroïsant donc un peu ses personnages. Oui, mais voilà : depuis quand une légende devrait se construire à coups de messages blancs sur fond noir ? C'est, je trouve, faire preuve d'un manque étonnant de confiance pour ses spectateurs. On a le sentiment que Robert Guédiguian a voulu appuyer l'héroïsme pour bien montrer qu'il s'agissait, justement, de héros, comme si ça n'était pas si évident que ça dans les faits. D'un point de vue intellectuel, ce message final ruine un peu tout ce qui précède je trouve : le spectateur ignorant de l'époque serait légitimement en droit de douter de ce qu'il a vu...</p>
+
+<div style="text-align: center;"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2009/09/armee-du-crime.jpg" border="0" alt="armee-du-crime.jpg" width="600" height="400" /></div>
+<p><em>L'armée du crime</em> est un film à thèse, cela ne fait aucun doute. Robert Guédiguian admire tous les résistants du groupe Manouchian, et il entend bien nous le montrer, nous le démontrer même. Que l'on se comprenne bien, je ne dis pas que c'est honteux d'être admiratif devant ces résistants, je le suis aussi d'autant que je suis bien en peine pour savoir ce que j'aurais fait à leur place. Résister à l'occupant était, sans nul doute, héroïque, mais quand on essaie de m'en convaincre à coups de violons et de plans bien appuyés, je me lasse vite.</p>
+<p>Était-il ainsi nécessaire que tous les résistants soient merveilleusement gentils, sauf quand il faut être méchants, qu'ils soient tous des héros stoïques façon tragédie grecque quand le jugement dernier vient à sonner ? Et était-il nécessaire au contraire de faire de tous les Allemands et tous les Français collabos des salauds impitoyables, prêts à écraser leur prochain par tous les moyens si jamais il était étranger, Juif ou pire, communiste ? Fallait-il vraiment nous montrer avec force effets pour bien insister sur la solennité de la scène, les rafles juives, l'envoi dans les wagons à bestiaux, ou dans un autre registre la torture ? À propos de torture, j'ai cru pendant un moment revoir l'horrible "film" de Mel Gibson sur les derniers jours du Christ : c'est vraiment, encore une fois, le héros grec impassible et impuissant face au monde extérieur plus mauvais que jamais.</p>
+<p>C'est quand même dingue, quand on y pense, que <a href="https://voiretmanger.fr/?p=1718">le dernier Tarantino</a>, pourtant un film déconnant au possible, soit plus réaliste sur les Allemands pendant l'occupation que <em>L'armée du crime</em>. Non, tous les soldats allemands n'étaient pas des salauds sans foi ni loi sanguinaires qui écrasaient de leurs bottes couvertes de fer tous les nourrissons qui se trouvaient sur leur chemin. Certains étaient de vrais salauds heureux de massacrer du Juif au kilomètre, d'autres des gars fort sympathiques, mécontents d'être envoyés dans un pays inconnu, loin de chez eux, et qui n'ont rien demandé. Quand on me montre un film supposé réaliste où l'ennemi est un bloc de méchanceté sans faille, je n'y crois pas plus que quand on me montre des héros sans faille.</p>
+
+<div style="text-align: center;"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2009/09/armee-crime-guediguian-1.jpg" border="0" alt="armee-crime-guediguian-1.jpg" width="600" height="400" /></div>
+<p><em>L'armée du crime</em> n'est pas un film désagréable pour autant. Nonobstant quelques passages dégoulinants de violons, la réalisation est énergique et efficace, même si assez conventionnelle. La reconstitution du Paris des années 1940 est réaliste, rien à dire. En outre, les acteurs sont tous bons, mention spéciale au passage à Simon Abkarian, très bon Manouchian (et Jean-Pierre Darroussin, jouissif en policier aussi bon pour trouver des résistants qu'impitoyable). D'aucuns ont néanmoins évoqué une reconstitution scolaire, je trouve ça assez juste...</p>
+<p>Le film dit aussi des choses intéressantes sur la résistance, comme le difficile abandon de valeurs que l'on pensait indépassables, comme le pacifisme, au profit d'une cause plus grande. On aurait aimé en savoir plus sur le côté politique de la résistance, sur le rôle du parti communiste par exemple, mais le film préfère s'attarder sur les vies humaines. Ce parti-pris n'est pas stupide d'ailleurs, si ce n'est, je l'ai dit, qu'il étouffe totalement toute piste déviant de l'héroïsme inconditionnel. On ne dit rien, aussi, de l'étrange fait que tous les membres du groupe ne sont pas d'origine française...</p>
+<p><em>In fine</em>, je suis déçu par <em>L'armée du crime</em>. En lieu et place d'un film passionnant sur la résistance, on a droit à un livre d'histoire où les images bougent, ni plus ni moins. Certes, l'intention est louable, et enseigner cette sombre période de l'histoire aux jeunes générations est un devoir pour tout le monde. Mais une bonne intention n'a jamais fait un bon film, et Guédiguian n'a pas su ajouter les failles qui auraient permis de passer d'un film manichéen et lisse à un film passionnant. Pour tout dire, L'armée du crime est un film très vite oublié, ce qui est bien le signe à mon sens qu'il passe à côté de son sujet. Au lieu d'en faire des légendes, il risque bien d'enfoncer le groupe Manouchian dans l'oubli...</p>
+
+<div style="text-align: center;"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2009/09/armee-crime-1.jpg" border="0" alt="armee-crime-1.jpg" width="600" height="400" /></div>
+<p>La critique est partagée sur ce film, à l'image de <em>Télérama</em> qui <a href="http://www.telerama.fr/cinema/films/l-armee-du-crime,374382,critique.php">publie une double critique</a>. Miracle, je suis pour une fois d'accord avec Pierre Murat, même s'il est encore plus sévère que moi. Les <em><a href="http://www.lesinrocks.com/cine/cinema-article/t/1252682940/article/larmee-du-crime/">Inrockuptibles</a></em>, tout comme <em><a href="http://www.critikat.com/L-Armee-du-crime.html">Critikat</a></em>, sont de mon avis (ou vice-versa).</p>
+
+<div class="amazon">
+<h3>Vous voulez m'aider ?</h3>
+<ul>
+	<li><a href="http://www.amazon.fr/gp/product/B002R0DR24/ref=as_li_ss_tl?ie=UTF8&tag=leblogdenic07-21&linkCode=as2&camp=1642&creative=19458&creativeASIN=B002R0DR24">Acheter le film en Blu-Ray sur Amazon</a></li>
+	<li><a href="http://www.amazon.fr/gp/product/B002R0DR1U/ref=as_li_ss_tl?ie=UTF8&tag=leblogdenic07-21&linkCode=as2&camp=1642&creative=19458&creativeASIN=B002R0DR1U">Acheter le film en DVD sur Amazon</a></li>
+</ul>
+</div>
