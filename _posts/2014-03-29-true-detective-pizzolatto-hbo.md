@@ -1,0 +1,86 @@
+---
+ID: 11433
+post_title: '<em>True Detective</em>, Nic Pizzolatto (HBO)'
+post_name: true-detective-pizzolatto-hbo
+author: Nicolas
+post_date: 2014-03-29 10:49:01
+post_excerpt: "<em>True Detective</em> est une série policière, certes, mais Nic Pizzolatto ne propose pas une série traditionnelle autour d'une enquête résolue à chaque épisode. Huit épisodes d'une heure suffisent à plonger le spectateur dans une ambiance poisseuse en Louisiane et cette saison renouvelle le genre avec énormément de force. Une réussite !"
+layout: post
+link: >
+  https://voiretmanger.fr/true-detective-pizzolatto-hbo/
+published: true
+tags:
+  - Drame
+  - Mafia
+  - Mort
+  - Police
+  - Politique
+  - Religion
+  - Serial-killer
+  - Série
+  - Thriller
+categories:
+  - À voir
+---
+Plus qu’une série, *True Detective* s’est rapidement imposée comme un phénomène. Sur le papier, cette série policière située en Louisiane dans les années 1990 n’a rien de bien nouveau, mais Nic Pizzolatto a su aller bien au-delà de la production habituelle du genre. Avec un duo de détectives atypiques, avec une histoire qui sait rester longtemps mystérieuse et surtout avec une mise en scène qui fait la part belle à l’ambiance, les huit épisodes de la première saison ont suffi à instituer quasiment une légende. Entièrement réalisée par Cary Fukunaga, la série fait preuve d’une cohérence interne exceptionnelle, à tel point que l’on a plus le sentiment de voir un long-métrage de huit heures, un sentiment renforcé par les moyens mis en œuvre. HBO opte pour un format différent, mais ne remet pas en cause ses exigences de production et le résultat est indéniablement à la hauteur des attentes. *True Detective* est une série à ne rater sous aucun prétexte, même si vous n’aimez pas tellement les séries policières en général.
+
+<div style="text-align:center;"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2014/03/true-detective-matthew-mcconaughey-woody-harrelson-hbo.jpg" alt="True detective matthew mcconaughey woody harrelson hbo" title="true-detective-matthew-mcconaughey-woody-harrelson-hbo.jpg" width="1800" height="1200" /></div>
+
+Dès les premières minutes du premier épisode, *True Detective* impose son rythme et un ton à part. Plutôt que de simplement raconter une enquête policière, et même si c’est le principal élément dans la saison, le scénario imagine une double temporalité. L’action principale se déroule au milieu des années 1990, mais le présent de la série est contemporain : Rust Cohle et Martin Hart, deux détectives de la police de Louisiane, ont enquêté en 1995 sur une série de meurtres dans l’État. En 2012, un nouveau meurtre très similaire à ceux sur lesquels ils avaient enquêté les convoque au commissariat. Ils ne sont pas suspectés, mais les policiers qui leur ont succédé aimeraient en savoir plus sur cette enquête qui avait fait beaucoup de bruit, quinze ans auparavant. C’est ainsi que Nic Pizzolatto raconte l’enquête originale, par une série de flashbacks racontés par chaque détective, l’un après l’autre. Cette idée n’a rien du caprice du scénariste qui ne veut pas faire comme tout le monde, elle permet d’emblée de montrer l’évolution des personnages. Quand l’enquête commence, les deux détectives viennent juste d’être associés en partenaires et l’enquête débute alors qu’ils apprennent à se connaître. Le duo de *True Detective* est atypique, dans le sens où Rust et Martin n’ont rien, mais absolument rien en commun. Le premier est un célibataire endurci, un asocial aux idées très tranchées, notamment sur la religion, quand le second est un père de famille tout à fait banal. Les relations entre les deux sont assez électriques, mais Rust est un excellent détective et c’est lui qui permet à l’enquête d’avancer quasiment à chaque fois. Martin voit l’opportunité pour sa carrière et il s’accommode tant bien que mal de ce partenaire qui ne lui plait pas vraiment. En 2012, on sent très vite que de l’eau a coulé sous le pont et que les deux anciens partenaires ne s’entendent plus du tout comme avant. La bonne idée de Nic Pizzolatto est de garder au maximum les informations sur ce qui s’est réellement passé. On comprend dès le départ qu’ils ne s’entendent plus, on ne comprendra que tardivement pourquoi.
+
+<div style="text-align:center;"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2014/03/true-detective-pizzolatto-woody-harrelson-matthew-mcconaughey.jpg" alt="True detective pizzolatto woody harrelson matthew mcconaughey" title="true-detective-pizzolatto-woody-harrelson-matthew-mcconaughey.jpg" width="1800" height="1198" /></div>
+
+Même si *True Detective* est une série policière, l’enquête à proprement parler n’est pas le plus important. De fait, c’est peut-être même l’élément le plus faible de cette série : on nous vend dans un premier temps un meurtre très mystérieux, l’enquête nous emmène ensuite sur des pistes énormes qui impliqueraient les dirigeants locaux, mais la résolution — que l’on se gardera bien de dévoiler — est assez décevante en comparaison. Quand cette première saison se termine, on peut se demander « tout ça pour ça ? », mais ce n’est pas vraiment un problème. Au-delà de la résolution de l’intrigue, qui est sans conteste importante malgré tout, on apprécie d’abord la série pour l’ambiance de la Louisiane et pour ses deux personnages principaux. Les amateurs de série policière seront peut-être un peu déçus, mais *True Detective* cherche à renouveler le genre et Nic Pizzolatto apporte incontestablement une âme supplémentaire, une profondeur scénaristique que l’on n’avait pas l’habitude de voir dans les autres productions du genre. On est tellement pris par l’histoire et par l’ambiance poisseuse que c’est sans conteste une réussite sur ce point, une réussite qui est d’abord due aux deux acteurs. Tout à la fois devant les caméras et producteurs, Woody Harrelson et Matthew McConaughey forment un couple de policiers délicieusement différents. Leur duo fonctionne à la merveille, à tel point que la saison et ses huit épisodes terminés, on a le sentiment étrange de l’avoir toujours connu. Chacun est dans un registre bien particulier, mais ils forment une paire vraiment réussie et le succès de *True Detective* leur doit beaucoup, même s’il convient aussi de saluer la réalisation. Contrairement à la majorité des séries actuelles, tous les épisodes de celle-ci sont réalisés par le même homme : Cary Fukunaga. Même s’il a à son actif deux longs-métrages, il se fera surtout connaître avec ce travail où il a pu profiter des ambiances naturelles de la Louisiane pour créer un mystère que l’on qualifierait de poisseux. C’est comme si le meurtrier n’était pas, au fond, un individu, mais la région tout entière. Un sentiment assez fort, pour une image souvent très belle.   
+
+<div style="text-align:center;"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2014/03/true-detective-hbo-nic-pizzolatto.jpg" alt="True detective hbo nic pizzolatto" title="true-detective-hbo-nic-pizzolatto.jpg" width="1800" height="1198" /></div>
+
+*True Detective* fonctionne sur le principe de saisons indépendantes, comme [*American Horror Story*](https://voiretmanger.fr/american-horror-story-murphy-falchuck/ "American Horror Story, Ryan Murphy et Brad Falchuk (FX)"). Après cette première saison en Louisiane, la suite est prévue dans un autre contexte et avec d’autres acteurs. On quitte à regret Woody Harrelson et Matthew McConaughey, mais confiants dans l’avenir de la série. Nic Pizzolatto a dépoussiéré la série policière de la meilleure façon et le résultat est excellent, tout simplement. Après ce premier essai réussi, on a hâte de découvrir ce que les scénaristes nous réservent. Et d’ici là, ne ratez pas cette saison de *True Detective*, c’est une vraie réussite !
+
+
+***
+
+## *True Detective*, Saison 2 {#2}
+
+<img src="https://voiretmanger.fr/wp-content/uploads/2014/03/true-detective-colin-farrell-rachel-mcadams.jpg" alt="true-detective-colin-farrell-rachel-mcadams" width="2100" height="1400" class="big size-full wp-image-14378" />
+
+(4 octobre 2015)
+
+
+Un an après, la deuxième saison de *True Detective* change la donne, comme prévu. Les personnages et le contexte ont changé, mais pas l'idée de base : un couple de détectives fatigués qui mènent une enquête. On retrouve d'ailleurs bien la même exigence de qualité et cette saison n'a pas baissé sur le plan technique. Néanmoins, elle n'est pas au niveau de la première, pour plusieurs raisons. L'histoire, pour commencer, est inutilement compliquée et surtout, elle est confuse. Là où la première saison cherchait le coupable de plusieurs meurtres, on a cette fois une intrigue à la fois criminelle et politique, sur un fond de mafia qui complique les choses. L'idée n'était pas mauvaise, mais le scénario n'est pas maîtrisé comme il se devrait et on s'y perd un peu. Le souci dans ce cas de figure, c'est qu'on finit par se désintéresser totalement de ce qui se passe et la saison en pâtit un peu. 
+
+*True Detective* ne faisait pas grand cas de l'intrigue policière elle-même toutefois, on ne peut pas en tenir rigueur à cette suite. Mais même en ne parlant pas de l'intrigue, la deuxième saison fonctionne moins bien, peut-être parce que les personnages importants sont trop nombreux. Il n'y a plus seulement un duo de flics, mais trois personnes qui enquêtent en même temps. Et à ce trio, il faut encore ajouter le rôle d'un mafieux local, car il est au moins aussi important que les trois autres. Résultat, aucun personnage n'a vraiment le temps de se poser et leur épaisseur psychologique en souffre. C'est dommage, car Colin Farrell est excellent, tout comme Rachel McAdams et les autres acteurs, mais on passe un petit peu à côté. Là encore, la première saison était plus resserrée et cela aurait du servir de leçon aux scénaristes, même si on comprend qu'ils aient cherché à changer de piste pour éviter la redite.
+
+<img src="https://voiretmanger.fr/wp-content/uploads/2014/03/true-detective-vince-vaughn.jpg" alt="true-detective-vince-vaughn" width="2100" height="1400" class="aligncenter size-full wp-image-14379" />
+
+Pouvait-on vraiment faire aussi bien que la première saison de *True Détective* ? Après avoir vu la seconde, la réponse s'impose d'elle-même : non, probablement pas. Il sera difficile, voire impossible, de réunir le même casting, d'imaginer des personnages différents, mais aussi intéressants, bref de retrouver l'alchimie des débuts. Néanmoins, cette deuxième saison est-elle mauvaise pour autant ? Pas du tout et prise pour elle-même, c'est même une réussite dans l'ensemble. Certes, il y a quelques défauts d'incohérences et certes, on aurait aimé mieux profiter des personnages, mais on est à un bon niveau malgré tout. Est-ce qu'une troisième saison sera lancée ? Si c'est le cas, peut-être que Nic Pozzolatto devrait plus s'éloigner du format original et chercher ailleurs, mais quoi qu'il en soit, on sera au rendez-vous pour voir ça…
+
+***
+
+## *True Detective*, saison 3 {#3}
+
+<img src="https://voiretmanger.fr/wp-content/uploads/2014/03/true-detective-mahershala-ali.jpeg" alt="" width="3300" height="2200" class="big size-full wp-image-21485" />
+
+(9 mars 2019)
+
+La deuxième saison de *True Detective* n’était pas à la hauteur de la première et on a bien cru que la saison n’allait pas passer le cap de la troisième. HBO a pris son temps, mais la chaîne n’a pas supprimé la série de son catalogue et Nic Pizzolatto peut présenter un troisième chapitre. On sent que l’ambition, pour ces huit nouveaux épisodes, était de renouer avec le succès des débuts. L’histoire se concentre à nouveau sur un duo de détectives que tout oppose et elle est encore une fois divisée sur plusieurs temporalités, trois cette fois. Le lien entre les deux saisons est si fort qu’il devient même explicite dans l’un des épisodes. Est-ce suffisant pour sauver *True Detective* ? Sans revenir au niveau des huit premiers épisodes, la faute sûrement à une réalisation moins spectaculaire ici, il faut reconnaître que cette troisième saison est très réussie, à la fois familière et renouvelée par une idée forte sur la mémoire, le tout sur fond de racisme ambiant.
+
+<img src="https://voiretmanger.fr/wp-content/uploads/2014/03/true-detective-saison-3.jpeg" alt="" width="3240" height="2160" class="aligncenter size-full wp-image-21483" />
+
+Le flashback est au cœur de cette troisième saison, comme dans la première de *True Detective*. Mais alors qu’il n’y avait que deux temporalités dans les huit premiers épisodes, le présent et le temps de l’enquête, il y en a ici principalement trois. L’enquête principale commence en 1980, alors qu’un garçon et sa sœur disparaissent dans une petite bourgade tranquille des Ozarks. La police intervient rapidement et un duo de détectives, Wayne Hays et Roland West, sont chargés de l’affaire. Ils patinent et peinent à faire avancer l’enquête, jusqu’à la folie meurtrière d’un habitant qui tue plusieurs policiers et devient le coupable parfait. Il est condamné par contumace pour le meurtre des deux enfants et l’affaire est fermée… jusqu’en 1990, où l’on retrouve les empreintes de Julie, qui était censée être morte dix ans auparavant. Naturellement, l’affaire est rouverte et les deux détectives reprennent leur enquête, mais elle est interrompue tout aussi brutalement par la mort du père des enfants, que des preuves accablent à nouveau. Vingt-cinq ans plus tard, en 2015, une équipe essaie de réaliser un documentaire sur ces affaires, pour montrer que la police a bâclé le travail et accusé trop facilement des coupables fabriqués de toute pièce. Face aux arguments de la réalisatrice, Wayne Hays alors à la retraite essaie de reprendre l’enquête pour savoir ce qui s’est vraiment passé. 
+
+<img src="https://voiretmanger.fr/wp-content/uploads/2014/03/true-detective-mahershala-ali-stephen-dorff.jpeg" alt="" width="3900" height="2600" class="aligncenter size-full wp-image-21486" />
+
+
+Trois temporalités, cela semble faire beaucoup et peut-être trop. Mais c’est sans compter sur le talent des acteurs principaux, et tout particulièrement de Mahershala Ali qui incarne Wayne Hays et qui est excellent pour jouer différemment sur ces trois temporalités. Le maquillage aide bien évidemment, et il faut saluer le travail réalisé pour 2015, avec un vieillissement naturel, loin de la caricature que l’on voit parfois. Mais au-delà du maquillage, c’est le jeu de l’acteur qui impressionne, il parvient par petites touches subtiles à marquer différemment les trois époques, si bien que l’on n’est jamais perdu. À ses côtés, Stephen Dorff est très bien dans le rôle de son partenaire et Carmen Ejogo s’en sort aussi remarquablement dans le rôle de sa femme, mais c’est bien lui la star de la saison. *True Detective* bénéficie également d’une très bonne idée, qui renouvelle la série tout en la maintenant dans cette atmosphère familière : la mémoire pose ici problème. L’ex-détective souffre d‘alzheimer en 2015, il a du mal à se souvenir de pans entiers de sa vie, et se perd régulièrement dans le présent, en se demandant ce qu’il faisait et ce qu’il comptait faire. Nic Pizzolatto a très bien exploité cette idée, avec une mémoire qui joue des tours régulièrement à son personnage, parfois dans des moments clés. C’est terrible de voir cet ancien détective si brillant se rapprocher de la vérité et de passer à côté parce que, brutalement, sa mémoire lui fait défaut. Autre bonne idée, la question du racisme ambiant est constamment présente tout au long de la saison. Quand l’enquête est terminée abruptement en 1980 et en 1990, Roland s’en sort indemne, alors que Wayne est puni par les institutions. Son entêtement à trouver la vérité et son refus du coupable trop facilement déniché lui coûte sa carrière et c’est l’une des formes de racisme que la série dénonce, de façon très efficace. Il y a régulièrement des insultes racistes explicites, mais c’est bien le racisme plus insidieux des institutions que Nic Pizzolatto dénonce, et c’est bienvenu. 
+
+<img src="https://voiretmanger.fr/wp-content/uploads/2014/03/true-detective-mahershala-ali-carmen-ejogo.jpeg" alt="" width="3900" height="2600" class="aligncenter size-full wp-image-21484" />
+
+Comme dans la première saison, l’enquête elle-même n’est pas l’élément le plus réussi, même si la troisième saison de *True Detective* maintient un suspense jusqu’au bout à son sujet. Plus que la résolution de l’enquête, la série s’intéresse à ses personnages principaux et consacre beaucoup de temps au couple formé par le détective et la prof d’anglais. Il y a quelques défauts, notamment une fin qui prend nettement trop de temps, mais c’est plus réussi que la deuxième saison. Est-ce que *True Detective* a encore du potentiel pour une suite ? En attendant de le savoir, ces huit nouveaux épisodes méritent le détour. 
+
+
+<div class="amazon" markdown="1">
+### Vous voulez [m'aider](https://voiretmanger.fr/soutien/) ?
+
+- [Acheter la série en Blu-ray ou DVD sur Amazon](https://amzn.to/2TuLlRZ)
+- [Acheter ou louer la série sur l’iTunes Store](https://itunes.apple.com/fr/tv-season/true-detective-saisons-1-3-vost/id1449160641)
+</div>
