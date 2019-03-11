@@ -1,0 +1,40 @@
+---
+ID: 19634
+post_title: '<em>La Cenerentola</em>, Gioachino Rossini (Opéra de Lyon, 23 décembre 2017)'
+post_name: cenerentola-rossini-lyon-decembre-2017
+author: Nicolas
+post_date: 2017-12-25 18:58:46
+layout: post
+link: >
+  https://voiretmanger.fr/cenerentola-rossini-lyon-decembre-2017/
+published: true
+tags:
+  - Adaptation littéraire
+  - Amour
+  - Argent
+  - Conte
+  - Famille
+  - Farce
+  - Humour
+  - Opéra
+categories:
+  - À voir… en live
+---
+L’histoire de Cendrillon appartient à cette collection de contes populaires si souvent exploités qu’on pense les connaître par cœur. La version de Gioachino Rossini, basée sur un livret écrit par Jacopo Ferretti, parvient toutefois à surprendre par son humour omniprésent. De fait, *La Cenerentola* est un opéra « bouffe », un sous-genre italien qui traite systématiquement d’un sujet plus léger, voire comique dans cette version revue et corrigée du conte de Perrault. Le public découvre en 1817 une œuvre plus réaliste, car expurgée de tous les éléments fantastiques de l’originale, et aussi beaucoup plus drôle : Rossini n’a pas peur de tendre vers la *commedia dell’arte*, voire la farce. La mise en scène du norvégien Stefan Herheim [proposée à l’Opéra de Lyon](https://www.opera-lyon.com/fr/20172018/opera/la-cenerentola) en décembre 2017 souligne encore ce côté comique avec des chanteurs qui n’hésitent pas à proposer un jeu outrancier qui colle parfaitement avec l’âme de l’œuvre originale. C’est drôle, la musique est excellente : un grand spectacle ! 
+
+<img src="https://voiretmanger.fr/wp-content/uploads/2017/12/cenerentola-rossini-lyon.jpg" alt="" width="1500" height="976" class="aligncenter size-full wp-image-19640" />
+
+Dans les grandes lignes, l’opéra respecte le *Cendrillon* de Perrault : c’est donc l’histoire d’une jeune fille maltraitée par sa belle-famille à la mort de son parent. Elle est de fait une simple servante, loin des honneurs que son rang devrait lui réserver, quand on annonce que le prince cherche la plus belle fille du royaume pour se marier. Ses deux sœurs participent, mais le prince tombe amoureux de celle qu’elles surnomment Cendrillon et il fait tout pour la retrouver. C’est la trame de base et tout le monde la respecte, [même Disney](https://voiretmanger.fr/cendrillon-geronimi-jackson-luske/), mais dans le détail, l’opéra a pris quelques libertés importantes. En particulier, les attributs traditionnels du conte ont été réduits à peau de chagrin : ce n’est pas une la belle-mère de Cendrillon qui reste, mais son beau-père ; elle n’a plus de marraine fée, c’est le tuteur du prince, un philosophe, qui hérite de son rôle. Il n’y a pas non plus de pantoufle de vair[^1], mais un bracelet : *a priori*, il s’agissait cette fois de ne pas trop choquer le public du XIX<sup>e</sup> siècle en montrant un pied ou une cheville nue, les poignets étaient beaucoup plus corrects. Toutes ces différences peuvent sembler anecdotiques, mais elles contribuent à donner un autre ton à l’œuvre, qui devient davantage une critique sociale sur un ton comique qu’un conte fantastique. C’est d’autant plus le cas que Gioachino Rossini ajoute quelques éléments de théâtre de son temps, en particulier une inversion entre le prince et son laquais. *La Cenerentola* suit de très près *Il barbiere di Siviglia*, l’opéra sans doute le plus connu du compositeur et la pièce de théâtre qui lui sert de base repose entièrement sur ce principe de l’inversion sociale. C’est un petit peu surprenant de le retrouver chez Perrault, mais cela permet d’enrichir le conte de base et d’offrir plus de diversité, dans l’histoire comme dans la musique et la mise en scène. La partition créée par Rossini est toute en légèreté, avec des thèmes faciles à retenir et très plaisants à suivre. Il y a quelques thèmes qui reviennent régulièrement et plusieurs moments où les chanteurs peuvent briller, en particulier le temps d’un sextuor dans le deuxième acte. La distribution était excellente, avec de bons acteurs et surtout chanteurs. Mention spéciale pour le beau-père interprété par un Renato Girolami en grande forme. 
+
+<img src="https://voiretmanger.fr/wp-content/uploads/2017/12/cenerentola-stefan-herheim.jpg" alt="" width="3300" height="2200" class="aligncenter size-full wp-image-19639" />
+
+La diversité est aussi la base de la mise en scène créée par Stefan Herheim pour l’opéra d’Oslo et reprise à celui de Lyon. Sa vision de *La Cenerentola* est enjouée et très drôle, avec des séquences qui tirent carrément vers la farce, notamment autour du personnage du beau-père, ridicule à souhait. Si l’on commence avec une Cendrillon moderne, en femme de ménage contemporaine avec son chariot rempli de poubelles et de produits, ce n’est que le temps de l’ouverture. Les deux actes qui se suivent se déroulent dans un univers baroque beaucoup plus conventionnel, mais astucieusement modernisé par quelques touches qui servent souvent à faire rire. Par exemple, le chariot à ménage de l’ouverture ne quitte jamais la scène et il sert, tantôt à une cachette improvisée, tantôt à un carrosse improvisé, où quatre chevaux en carton qui sortent à l’avant suffisent à le distinguer du chariot de la femme de ménage. Les costumes ressemblent à une version parodique des vêtements du siècle de Rossini, ils sont beaucoup trop colorés et clinquants pour être vrais et ils sont aussi ridicules qu’on peut l’imaginer, surtout pour les deux sœurs et le beau-père. *La Cenerentola* proposée par l’Opéra de Lyon est nettement plus moderne que ses décors et costumes le laisseraient entendre. Non pas que la morale, un peu simpliste surtout vers la fin, soit particulièrement d’actualité ou même intéressante. En revanche, la désinvolture du texte par rapport au conte est quelque chose qui fonctionne encore très bien et le metteur en scène a bien eu raison de la souligner encore visuellement. Ainsi, plusieurs personnages utilisent une plume qui symbolise l’écriture du récit et qui permet aussi de stopper une action ou un personnage en cours de route. Celui qui tient la plume contrôle la scène en cours, une mise en scène très méta qui est complétée par les interactions entre les chanteurs et le chef d’orchestre. Stefano Montanari a davantage un look de rockeur que de violoniste, ce qu’il est à l’origine. Italien, ce jeune chef interrompt une fois un baiser pour rappeler à Cendrillon et aux princes que la scène doit se poursuivre et il commence l’acte II aux côtés du beau-père, avant de se faire rappeler à l’ordre par les autres personnages. C’est amusant, et c’est une manière plutôt maligne de désacraliser l’œuvre et de détendre l’atmosphère. Même chose pour le chœur d’hommes qui n’est pas là que pour apporter de la voix, mais aussi ajouter une bonne dose d’humour sur scène. 
+
+https://www.youtube.com/watch?v=k25xqtjgIP8
+
+Très belle réussite que cet opéra sorti du XIX<sup>e</sup> et actualisé sans en faire une relecture strictement contemporaine. Stefan Herheim a respecté l’exubérance baroque de Gioachino Rossini, il la renforce même jusqu’à la parodie et offre une vision très comique de *La Cenerentola*. C’est une œuvre magnifique à écouter, très bien interprétée et chantée, c’est une histoire facile à suivre et drôle : voilà bien un spectacle à recommander aveuglément, pour les petits comme pour les grands ! L’opéra n’est pas toujours facile à suivre, mais si ce n’était pour les sièges vraiment trop durs de l’opéra lyonnais, on n’aurait vraiment pas le sentiment de passer trois heures devant *La Cenerentola*. 
+
+_*La Cenerentola* est en représentation à l’Opéra de Lyon jusqu’au 1<sup>er</sup> janvier 2018._
+
+
+[^1]: Ce n’est pas [une faute](https://fr.wikipedia.org/wiki/Petit-gris_(écureuil)). Le verre, c’était chez Disney, qui ne voulait pas de la version plus réaliste de Perrault où un petit écureuil de mignon a servi à faire des chaussures…
