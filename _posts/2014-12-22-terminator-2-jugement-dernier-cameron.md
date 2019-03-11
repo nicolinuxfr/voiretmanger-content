@@ -1,0 +1,44 @@
+---
+ID: 12642
+post_title: '<em>Terminator 2 : Le Jugement dernier</em>, James Cameron'
+post_name: terminator-2-jugement-dernier-cameron
+author: Nicolas
+post_date: 2014-12-22 01:34:28
+layout: post
+link: >
+  https://voiretmanger.fr/terminator-2-jugement-dernier-cameron/
+published: true
+tags:
+  - Action
+  - Blockbuster
+  - Dystopie
+  - Famille
+  - Folie
+  - Intelligence artificielle
+  - Robot
+  - Science-Fiction
+  - Voyage temporel
+categories:
+  - À voir
+---
+Plus de cent millions de dollars : à sa sortie, *Terminator 2 : Le Jugement dernier* est le film le plus cher de l'histoire du cinéma, rien que cela. Aujourd'hui, cela peut paraître un peu illusoire, tant les budgets de super-productions américaines ont explosé depuis, mais James Cameron a marqué les esprits avec ce long-métrage. Cela deviendra une habitude au fil des années pour le réalisateur canadien : de <a href="https://voiretmanger.fr/titanic-cameron/" title="Titanic, James Cameron">*Titanic*</a> à <a href="https://voiretmanger.fr/avatar-james-cameron/" title="Avatar, James Cameron">*Avatar*</a>, il a souvent eu l'occasion de repousser les limites de ce que la technique permettait au cinéma. Et au début des années 1990 déjà, le deuxième volet de la saga *Terminator* va plus loin que n'importe quel autre film à l'époque. Utilisant des techniques qui n'étaient pas à sa disposition pour le premier épisode, le réalisateur compose un blockbuster qui reste, encore aujourd'hui, une référence en matière de science-fiction et d'action. Moins simple que son prédécesseur, *Terminator 2 : Le Jugement dernier* est très bien écrit et particulièrement plaisant, les effets spéciaux n'ont (quasiment) pas pris une ride et James Cameron a trouvé l'équilibre parfait entre action et intrigue secondaire, entre famille et amitié improbable. Un classique, à voir et à revoir !
+
+<a href="http://www.allocine.fr/film/fichefilm_gen_cfilm=7124.html"><img src="https://voiretmanger.fr/wp-content/uploads/2014/12/terminator-2-jugement-dernier-cameron.jpg" alt="terminator-2-jugement-dernier-cameron" width="2100" height="3121" class="aligncenter size-full wp-image-12644" /></a>
+
+Dans <a href="https://voiretmanger.fr/terminator-cameron/" title="Terminator, James Cameron">*Terminator*</a>, un robot ayant une apparence humaine était envoyé en 1984 depuis le futur pour tuer Sarah Connor, la mère de John Connor qui sera celui qui, en 2029, vaincra les robots. À la fin du premier volet, le Terminator T-800 ne parvient pas à remplir sa mission et John est conçu ; face à cette défaite, les robots envoient un nouvel élément pour éviter la défaite, mais cette fois en 1995. John Connor a alors 13 ans et sa mère est enfermée dans un asile psychiatrique : personne ne croit à son histoire complètement folle, comme on peut s'en douter. James Cameron ouvre *Terminator 2 : Le Jugement dernier* avec un bref résumé de l'épisode précédent, avant d'embrayer sur cette nouvelle histoire. Cette fois, les robots ont envoyé l'un des leurs pour tuer John Connor, mais le camps des humains parvient lui aussi à envoyer de l'aide. L'introduction évacuée, le film commence d'une manière extrêmement similaire au premier film : dans un cas comme dans l'autre, des éclairs signalent l'arrivée des deux « paquets » du futur et dans les deux cas, le premier qui arrive à tuer ou protéger la cible gagne la partie. Le déroulé est étonnamment similaire, mais ce n'est pas un hasard : le cinéaste compte sur nos attentes et naturellement, on pense que le T-800, toujours incarné par un Arnold Schwarzenegger plus stoïque que jamais, est le méchant de cette histoire. À ses côtés, un autre arrivant du futur qui devrait être le gentil au contraire, si l'on reprend le même scénario que dans *Terminator*… mais évidemment, ce n'est pas aussi simple. L'effet de surprise est de courte durée, puisque l'on comprend vite que le deuxième arrivant est un autre robot terminateur, mais plus moderne que celui du premier film, et surtout bien plus redoutable. Ce T-1000 est conçu en métal liquide, ce qui lui permet de prendre n'importe quelle apparence à volonté et ce qui le rend aussi beaucoup plus difficile à tuer. C'est lui qui a été envoyé depuis le futur pour tuer John Connor, alors que le T-800 que l'on connaissait bien est envoyé par John, pour protéger son existence. Une excellente idée, qui permet à James Cameron non seulement d'éviter les répétitions, mais aussi d'amplifier son histoire originale pour donner la saga des enjeux autrement plus importants. C'est probablement en partie ce qui explique que ce deuxième opus est plus réussi que le premier.
+
+<img src="https://voiretmanger.fr/wp-content/uploads/2014/12/terminator-2-linda-hamilton-edward-furlong.jpg" alt="terminator-2-linda-hamilton-edward-furlong" width="2100" height="1400" class="aligncenter size-full wp-image-12647" />
+
+Avec deux robots, l'opposition binaire de *Terminator* n'a plus lieu d'être. L'idée de faire venir du futur non pas un, mais deux Terminator ne sert pas simplement à créer la surprise au début du film, c'est beaucoup plus profond que cela. James Cameron multiplie les options avec ce conflit entre les deux robots et le cinéaste ne se prive pas d'exploiter ces pistes. *Terminator 2 : Le Jugement dernier* repose en grande partie sur ce moteur, avec un jeu sur l'âge des robots : le T-800 est complètement dépassé face au T-1000 et l'histoire reprend l'idée du premier volet de l'invincibilité, mais sur un autre mode. Cette fois, c'est un robot qui ne parvient pas à tuer un autre robot, mais on est toujours dans l'attente de savoir s'il va réussir à le tuer, ou non. Et il faut reconnaître que ce nouveau robot est vraiment très bien pensé : c'est une machine redoutable, capable d'à peu près tout et même passer à travers une grille, qui ne craint ni les explosions, ni les balles les plus grosses. Sa malléabilité lui permet de résister à tout et il faudra beaucoup d'efforts pour en venir à bout. Les effets spéciaux sont vraiment excellents et la technique, toute nouvelle à la sortie, du *morphing*, fait des miracles. On est très loin des effets à l'ancienne qui ont mal vieilli du premier volet, le bon en avant est spectaculaire et ceux de *Terminator 2 : Le Jugement dernier* n'ont pas pris une ride. La plus grosse différence entre les deux films toutefois, ce n'est peut-être pas la technique, ni l'introduction d'un deuxième robot, mais plutôt que l'action est ici parfaitement balancée par des séquences plus intimes. Contrairement aux séquences amoureuses qui peinaient à être crédibles entre Sarah Connor et Kyle Reese dans *Terminator*, les scènes de famille entre John Reese et sa mère sont beaucoup plus convaincantes. Linda Hamilton est parfaitement crédible en mère guerrière un peu folle et Edward Furlong est un sale gosse réussi. James Cameron a même réussi à humaniser le robot meurtrier de son premier film et *Terminator 2 : Le Jugement dernier* repose ainsi en partie sur l'amitié naissante entre John et le T-800. Une amitié où se pose aussi la question de l'intelligence artificielle : ce robot exterminateur est capable d'apprendre par lui-même, mais devient-il humain par la même occasion ? Le film se garde bien de répondre à cette question, mais il ouvre quelques portes intéressantes…
+
+<img src="https://voiretmanger.fr/wp-content/uploads/2014/12/terminator-2-jugement-dernier-cameron-linda-hamilton.jpg" alt="terminator-2-jugement-dernier-cameron-linda-hamilton" width="2100" height="1400" class="aligncenter size-full wp-image-12646" />
+
+Après un premier volet réussi, mais limité, James Cameron compose avec *Terminator 2 : Le Jugement dernier* un grand blockbuster, un classique qui conserve encore aujourd'hui toute sa force et son intérêt. Parfaitement maîtrisé sur le plan technique, avec des effets spéciaux qui ont surpris à l'époque par leur modernité, le film est aussi porté par un scénario plus riche et plus intéressant. En confrontant deux robots plutôt que de s'en tenir à une opposition binaire entre les robots et les humains et en creusant plus les relations familiales et même en tirant vers l'amitié improbable entre un robot et un homme. Archétype du blockbuster d'action, ce film a marqué les esprits à sa sortie, mais il reste encore une œuvre culte que l'on revoit avec beaucoup de plaisir !
+
+<div class="amazon" markdown="1">
+### Vous voulez [m'aider](https://voiretmanger.fr/soutien/) ?
+
+- [Acheter le film en Blu-ray sur Amazon](http://www.amazon.fr/gp/product/B002V931SG/ref=as_li_ss_tl?ie=UTF8&tag=leblogdenic07-21&linkCode=as2&camp=1642&creative=19458&creativeASIN=B002V931SG)
+- [Acheter le film en DVD sur Amazon](http://www.amazon.fr/gp/product/B00005UVCR/ref=as_li_ss_tl?ie=UTF8&tag=leblogdenic07-21&linkCode=as2&camp=1642&creative=19458&creativeASIN=B00005UVCR)
+- [Acheter ou louer le film sur l'iTunes Store](https://itunes.apple.com/fr/movie/terminator-2/id371527401)
+</div>
