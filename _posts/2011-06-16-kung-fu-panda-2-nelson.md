@@ -1,0 +1,41 @@
+---
+ID: 4906
+post_title: '<em>Kung Fu Panda 2</em>, Jennifer Yuh Nelson'
+post_name: kung-fu-panda-2-nelson
+author: Nicolas
+post_date: 2011-06-16 00:09:32
+post_excerpt: "On n'y croyait vraiment pas, mais Kung Fu Panda 2 est une bonne surprise. Si le dernier film d'animation de Dreamworks ne brille pas par son originalité, il s'avère très efficace et plaisant. À voir, en famille…"
+layout: post
+link: >
+  https://voiretmanger.fr/kung-fu-panda-2-nelson/
+published: true
+tags:
+  - Animation
+  - Blockbuster
+  - Famille
+  - Humour
+  - Vite oublié
+categories:
+  - À voir
+---
+<p>Alors que les studios Pixar ont depuis longtemps déjà abandonné les animaux pour raconter leurs histoires, faisant le pari osé, mais réussi, que des objets ou des robots pouvaient susciter autant, voire plus, d'émotions. Le grand rival Dreamworks est, quant à lui, resté fidèle aux animaux. Si cela n'a pas toujours été un succès, ce <em>Kung Fu Panda 2</em> prouve que le studio n'a pas forcément perdu la main. Après un premier opus qui imposait déjà un univers original et assez drôle, ce nouvel épisode s'avère beaucoup plus drôle et très plaisant. On reste, certes, dans le cadre d'un film d'animation familial ultra-classique, mais la recette fonctionne ici à plein. Plaisant.</p>
+
+<div style="text-align: center;"><a href="http://www.allocine.fr/film/fichefilm_gen_cfilm=143048.html"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2011/06/kung-fu-panda-2.jpg" border="0" alt="Kung fu panda 2" width="690" height="927" /></a></div>
+<p>Dans <em>Kung Fu Panda</em>, Po, attachant panda un peu balourd, concrétisait sa passion dévorante pour le kung fu en intégrant le cercle d'initiés capables de mettre en œuvre cet art si difficile. Devenu à son tour maître du kung fu, il réalisait un exploit sans pareil en sauvant la vallée d'un terrible danger. Quand <em>Kung Fu Panda 2</em>, Po est devenu le Guerrier Dragon, une légende admirée par tous les enfants des alentours. Le restaurant de son père exploite à fond les exploits du fiston et le panda mène la belle vie en tapant régulièrement sur tous les méchants qui osent s'en prendre à son village. Un jour néanmoins, une terrible nouvelle s'abat sur les cinq cyclones : une menace terrible s'abat sur tout le monde du kung fu (voire le monde tout court) puisqu'un terrible méchant a mis au point le principe du canon et ses boulets viennent à bout des meilleurs combattants kung fu. Po et ses amis partent immédiatement dans la capitale pour arrêter cette menace et, peut-être, sauver leur art et leur style de vie…</p>
+<p><em>Kung Fu Panda 2</em> étend d'emblée les enjeux. Alors que <em>Kung Fu Panda</em> se limitait à une quête personnelle et à l'histoire d'une communauté réduite à l'échelle de la vallée, ce nouveau film ouvre sur un historique de la Chine. Sur le mode animal, les paons faisant office d'empereurs de Chine, le film raconte l'arrivée sur le trône chinois d'une nouvelle dynastie qui a su séduire par les feux d'artifices. Le descendant et prétendant au trône détourne néanmoins cette belle découverte et invente les canons à poudre. Terrifiés, ses parents l'expulsent du royaume après un génocide perpétré contre les pandas pour conjurer une malédiction selon laquelle le jeune homme périra sous les coups d'un être noir et blanc. Le paon prépare sa revanche et reprend le trône de force après la mort de ses parents. Désormais, ce sont les héros du film qui vont affronter le méchant, en l'occurrence dans la capitale, grande ville qui change complètement par rapport aux décors du premier épisode. Sans aller jusqu'à parler de film politique, la dimension politique justement étant limitée à sa plus simple expression, il est indéniable que <em>Kung Fu Panda 2</em> renouvelle ses thématiques et s'avère plus riche que son prédécesseur. On notera également l'arrivée de nouvelles thématiques, comme l'identité de Po qui découvre que son père, une oie, n'est en fait qu'un père adoptif. L'univers du film gagne ainsi en richesse : ancré explicitement en Chine, à la grande époque des films de kung fu (l'univers contient de nombreuses analogies avec <em><a href="https://voiretmanger.fr/2011/04/23/detective-dee-hark/">Detective Dee</a></em>, même si les deux films n'ont rien à voir au-delà de certains aspects de l'univers), on découvre que les animaux ne sont pas là par hasard et certains éléments acceptés tels que dans le premier épisode sont ici remis en cause.</p>
+
+<div style="text-align: center;"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2011/06/kung-fu-panda-2-dreamworks.jpg" border="0" alt="Kung fu panda 2 dreamworks" width="690" height="300" /></div>
+<p>Indéniablement plus riche, <em>Kung Fu Panda 2</em> n'en est pas moins un film d'animation familial extrêmement classique. Ainsi, derrière les enjeux plus généraux, l'histoire de Po reste centrale. Après tout, le panda est bien le héros du récit et ce dernier tourne entièrement autour de lui. Outre ses pitreries, les enjeux ici concernent tous son identité. Choc de cette suite, Po apprend qu'il a été adopté. L'humour provient de la naïveté du panda d'avoir pu croire qu'une oie pouvait être son père, mais le film est aussi très logique : dans un univers sans autre panda, Po n'avait pas de points de repères… Son retour vers le passé se fait par une série de flash-backs, un mode très présent dans <em>Kung Fu Panda 2</em> qui, miracle, parvient à éviter la trop grande lourdeur qui accompagne souvent cet effet. Le film propose par ailleurs sa traditionnelle galerie de personnages secondaires comiques qui accompagnent Po, principale source de comique, comme il se doit. Surprise, l'humour s'avère très efficace dans <em>Kung Fu Panda 2</em>, à défaut d'être très original. Alternant entre les différents comiques, il joue énormément sur le thème de la nourriture (Po étant un ventre incapable de s'arrêter) et ce leitmotiv s'avère payant. Autre bonne idée, exploiter le filon du méchant grandiloquent et ridicule, tandis que le film multiplie les scènes où Po devrait échouer lamentablement et où, au contraire, il réussit brillamment, comme par surprise. Inutile de le nier, tout a déjà été vu mille fois dans <em>Kung Fu Panda 2</em>, mais l'équilibre est bon et le scénario suffisamment enlevé pour que le mélange prenne. C'est très efficace et prenant.</p>
+<p>Les films d'animation ont désormais atteint un pallier. Ils sont tous extrêmement bien réalisés, avec des images désormais très proches du photoréalisme. <em>Kung Fu Panda 2</em> est ainsi vraiment dans la norme, sans briller particulièrement, mais sans démériter face aux meilleurs du genre. L'univers sinisant est bien rendu, avec des décors parfois spectaculaires et une utilisation astucieuse de l'animation à l'ancienne pour certains flash-backs. Pour une fois, la désormais obligatoire 3D est bien utilisée, elle ne nuit pas trop au film et elle est judicieusement exploitée dans le film. La technique, en ce qui concerne l'animation du moins, a manifestement fait des progrès, même si on reste globalement dans l'ordre du gadget.</p>
+
+<div style="text-align: center;"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2011/06/kung-fu-panda-dreamworks.jpg" border="0" alt="Kung fu panda dreamworks" width="690" height="301" /></div>
+<p>Bonne surprise pour ce <em>Kung Fu Panda 2</em>. Le premier épisode était plutôt sympa, mais on n'attendait vraiment pas grand-chose d'une suite… les studios Dreamworks ont prouvé que l'on avait tort. Si le film ne joue pas la carte de l'originalité, mais reste au contraire dans la veine des films d'animation familiaux avec une bonne dose d'humour, de l'action et une belle histoire familiale. Les différents éléments sont ici bien gérés et l'ensemble s'avère indéniablement efficace. En bref, un film pour toute la famille qui ne fatigue pas, parfait pour une séance ciné sympa…</p>
+
+<div class="amazon" markdown="1">
+### Vous voulez [m'aider](https://voiretmanger.fr/soutien/) ?
+
+- [Acheter le film en Blu-ray sur Amazon](http://amzn.to/2oU5Fgo)
+- [Acheter le film en DVD sur Amazon](http://amzn.to/2oUkorB)
+- [Acheter ou louer le film sur l'iTunes Store](https://itunes.apple.com/fr/movie/kung-fu-panda-2/id909729024)
+- [Regarder le film sur Netflix](https://www.netflix.com/title/70126574)
+</div>
