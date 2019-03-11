@@ -1,0 +1,41 @@
+---
+ID: 14676
+post_title: '<em>Casino</em>, Martin Scorsese'
+post_name: casino-scorsese
+author: Nicolas
+post_date: 2015-11-08 19:53:34
+layout: post
+link: https://voiretmanger.fr/casino-scorsese/
+published: true
+tags:
+  - Amour
+  - Argent
+  - Casino
+  - Drame
+  - Histoire vraie
+  - Mafia
+categories:
+  - À voir
+---
+Cinq ans seulement après [*Les Affranchis*](https://voiretmanger.fr/affranchis-scorsese/), Martin Scorsese revient à la mafia, avec la même équipe pratiquement de bout en bout pour sa quinzième réalisation. On retrouve les mêmes têtes d'affiche et en particulier le duo Robert De Niro et Joe Pesci, mais aussi la même écriture, puisque le scénario est à nouveau écrit en collaboration avec Nicholas Pileggi, auteur spécialisé sur la mafia qui avait déjà travaillé avec le réalisateur sur le premier film. Autant dire que l'on devrait avoir une sensation persistante de déjà-vu et il y a bien quelques points communs entre les deux long-métrages. Néanmoins, *Casino* impose un ton assez différent et conserve indéniablement son intérêt vis-à-vis de son prédécesseur. Pendant près de trois heures, Martin Scorsese a tout le loisir de démontrer sa maîtrise, pour un résultat toujours aussi réussi autour d'une histoire classique, mais passionnante. Un classique.
+
+<a href="http://www.allocine.fr/film/fichefilm_gen_cfilm=14178.html" rel="attachment wp-att-14684"><img src="https://voiretmanger.fr/wp-content/uploads/2015/11/casino-scrosese.jpg" alt="casino-scrosese" width="2000" height="3000" class="aligncenter size-full wp-image-14684" /></a>
+
+Quoi de mieux que de commencer par la fin pour créer une attente chez le spectateur et mieux le surprendre le moment venu ? *Casino* commence ainsi sur l'explosion de voiture qui vise Sam, son héros : difficile alors de savoir s'il s'en tire ou non, mais le cinéaste indique au moins clairement que les choses ne se terminent pas bien pour son personnage. On sait déjà que le long-métrage va tendre vers cette fin difficile, mais on oublie tout pour reprendre quelques années auparavant, dans les années 1970. L'intrigue se met en place autour de Sam, un parieur proche de la mafia de Chicago envoyé à Las Vegas pour y contrôler un casino. Très ambitieux, il est aussi excellent pour sentir ce qu'il faut parier et il est extrêmement organisé. Martin Scorsese ne choisit pas l'originalité à tout prix et présente pour commencer l'ascension fulgurante de son personnage à la tête du Casino. L'argent coule à flot et tout est fait pour qu'il coule encore plus, mais on voit aussi très rapidement comment l'argent repart, incognito, vers les boss de Chicago qui sont en fait ceux qui contrôlent vraiment le casino. Tout va pour le mieux pour Sam, mais comme souvent, c'est une femme qui le fait tomber, en l'occurrence Ginger, une prostituée qui excelle pour s'enrichir aux dépends de ses clients. Quand le héros la voit pour la première fois, c'est le coup de foudre et même si tout l'inciterait à la laisser tomber, il l'épouse rapidement. *Casino* ne cherche pas à instaurer un quelconque suspense autour de ce mariage et le film dit explicitement dès le départ que ce sera un échec. Elle n'accepte la situation que face aux montagnes de bijoux et de fourrures qu'il lui achète et il est évident que ce mariage ne mènera nulle part. Tout ceci semble logique, mais cela n'empêche pas le scénario de se déployer, en prenant son temps. Martin Scorsese se presse rarement, mais le réalisateur n'a pas son pareil pour maintenir le bon rythme et il prouve ici encore que c'est un conteur hors pair. Alors même que l'on sait, ne serait-ce que par l'affiche du film qui affirme que personne ne reste à la tête pour toujours, que Sam va finalement échouer, on se laisse embarquer avec plaisir et l'ensemble est très bien mené.
+
+<img src="https://voiretmanger.fr/wp-content/uploads/2015/11/casino-robert-de-niro-sharon-stone.jpg" alt="casino-robert-de-niro-sharon-stone" width="2100" height="1400" class="aligncenter size-full wp-image-14685" />
+
+L'ascension plus la chute d'un mafieux, racontée en plus par la voix du principal intéressé. Comme avec *Les Affranchis*, Martin Scorsese reprend cette idée très littéraire d'un narrateur qui raconte aux spectateurs l'histoire de son point de vue. La nouveauté ici, c'est que les narrateurs alternent en permanence. On commence avec la voix de Sam, on pouvait s'en douter, mais celle-ci est vite rejointe par celle de Nicky, son ami d'enfance et *caporegime* de la mafia de Chicago. Ce personnage est donc bien placé dans l'organisation, là où Sam n'est qu'un externe appelé à l'aide pour ses compétences, une distinction essentielle que l'on ne sait pas immédiatement. Dans un premier temps, on a deux amis et leurs voix qui font avancer les présentations : pendant une demi-heure environ, *Casino* ne laisse passer quasiment aucun dialogue et se contente de raconter l'histoire grâce à ses narrateurs. Ainsi, même si le dispositif n'est pas nouveau, le réalisateur en a fait un élément central de son film, et ce, jusqu'au bout. Il n'y a pas que Sam ou Nicky, les deux personnages principaux, qui en bénéficient d'ailleurs. À un moment ou à un autre, tous les personnages secondaires importants deviennent narrateur du film, que ce soit la femme de Sam, ou d'autres hommes de main dans la mafia. Ce n'est pas un effet gratuit : en adoptant ainsi plusieurs points de vue et en les faisant alterner rapidement, souvent dans la même scène d'ailleurs, Martin Scorsese parvient à montrer encore mieux la complexité de la situation. Si bien que lorsque la chute arrive finalement, on n'est pas surpris, l'idée n'étant manifestement pas de créer une tension. Par certains aspects, le long-métrage tend à la tragédie avec ses personnages qui foncent droit vers la catastrophe, sans jamais pouvoir s'en sortir. Que ce soit Sam ou sa femme Ginger pour leur mariage, ou Sam et Nicky pour leurs relations professionnelles, rien ne tourne rond dans cette histoire. Et le long-métrage le montre très bien, avec son scénario toujours parfaitement fluide. Le travail d'écriture, mais aussi de montage, est vraiment remarquable et même si *Casino* souffre nécessairement de la comparaison avec son illustre prédécesseur, il n'est en aucun cas une simple redite et mérite plus d'attention que cela. Sans compter que Robert De Niro autant que Joe Pesci sont excellents dans leurs rôles et Sharon Stone est parfaite dans celui de Ginger. L'actrice a donné de sa personne pour ce personnage très négatif qui semble incapable d'attirer quoi que ce soit de positif, et cet effort a payé.
+
+<img src="https://voiretmanger.fr/wp-content/uploads/2015/11/casino-martin-scorsese.jpg" alt="casino-martin-scorsese" width="2100" height="1400" class="aligncenter size-full wp-image-14686" />
+
+Après l'échec commercial de *Le Temps de l'innocence*, Martin Scorsese revient à un thème plus porteur : la mafia. C'est une solution de facilité, certes, et il faut aussi reconnaître que le cinéaste ne prend pas vraiment de risques en faisant appel aux mêmes acteurs et aux même écrivain pour écrire le scénario. Mais *Casino* n'est pas qu'un remake sans intérêt, c'est une œuvre à part entière, classique, c'est vrai, mais tellement bien menée. Le cinéaste maîtrise tous les outils à sa disposition et il les exploite précisément comme il le fallait. À l'arrivée, on a un long-métrage facile à suivre et très plaisant, une vraie réussite !
+
+<div class="amazon" markdown="1">
+### Vous voulez [m'aider](https://voiretmanger.fr/soutien/) ?
+
+- [Acheter le film en Blu-ray sur Amazon](http://www.amazon.fr/gp/product/B001CRVXVU/ref=as_li_ss_tl?ie=UTF8&tag=leblogdenic07-21&linkCode=as2&camp=1642&creative=19458&creativeASIN=B001CRVXVU)
+- [Acheter le film en DVD sur Amazon](http://www.amazon.fr/gp/product/B00004VYAR/ref=as_li_ss_tl?ie=UTF8&tag=leblogdenic07-21&linkCode=as2&camp=1642&creative=19458&creativeASIN=B00004VYAR)
+- [Acheter ou louer le film sur l'iTunes Store](https://itunes.apple.com/fr/movie/casino/id872225761)
+- [Regarder le film sur Netflix](http://www.netflix.com/title/70019012)
+</div>
