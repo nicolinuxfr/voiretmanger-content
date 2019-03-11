@@ -1,0 +1,33 @@
+---
+ID: 9972
+post_title: '<em>Henri</em>, Yolande Moreau'
+post_name: henri-moreau
+author: Nicolas
+post_date: 2013-07-28 17:46:11
+post_excerpt: "Pour son deuxième long-métrage, Yolande Moreau choisit de raconter une histoire d'amitié entre un patron de restaurant et une handicapée mentale. <em>Henri</em> construit un film tout en finesse à partir de ce point de départ : loin des clichés, on oscille entre humour et émotion, une vraie réussite !"
+layout: post
+link: https://voiretmanger.fr/henri-moreau/
+published: true
+tags:
+  - Amour
+  - Comédie dramatique
+  - Handicap
+categories:
+  - À voir
+---
+<p>Actrice reconnue du cinéma francophone, Yolande Moreau passe pour la deuxième fois derrière les caméras et pour la première fois seule. Pour certains acteurs, le passage à la réalisation n'est qu'un caprice de star ou un argument marketing. Pas pour l'actrice belge qui prouve à nouveau avec <em>Henri</em> qu'elle a un vrai regard de cinéaste. Ce petit film est une comédie dramatique très réussie, où le rire se mêle à une profonde mélancolie, où le handicap n'est pas qu'un obstacle insurmontable, où tous les tracas du quotidien peuvent disparaître le temps d'un road-trip improvisé. Yolande Moreau signe un long-métrage tout en douceur, une vraie réussite.</p>
+
+
+<div style="text-align:center;"><a href="http://www.allocine.fr/film/fichefilm_gen_cfilm=193094.html"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2013/07/henri-moreau.jpg" alt="Henri moreau" title="henri-moreau.jpg" width="100%" /></a></div>
+
+<p>« La Cantina », c'est le nom du petit restaurant que tiennent Henri et sa femme, Rita, à Charleroi. Tous deux sont d'origine italienne et ils vivent confortablement avec leur restaurant et les amis. <em>Henri</em> commence toutefois avec la mort subite de Rita : un malaise alors qu'elle conduisait, elle meure peu après laissant son mari à la tête de leur restaurant. À partir de ce point de départ plutôt tragique, Yolande Moreau déroule une histoire de deuil et de reconstruction. Henri s'est toujours occupé du bar et de la cuisine et prendre seul la tête de l'ensemble s'avère impossible. Il a du mal avec les additions, il peine à gérer la salle en plus de sa cuisine et sa fille lui suggère d'embaucher un « papillon blanc » pour l'aider, une fille handicapée d'une institution située non loin de là. Rosette vient donc tous les jours dresser les tables, prendre les commandes et servir les clients. La réalisatrice n'a pas triché sur ce point et a préféré travailler avec de vrais handicapés, sans se moquer d'eux, mais en les utilisant comme des personnages à part entière. Rosette est une exception : interprété par Miss Ming, ce personnage est toutefois sans reproche en matière de réalisme et la jeune actrice est tout simplement parfaite dans ce rôle difficile. Son handicap est, certes, plus léger, mais interpréter une fille en léger décalage comme elle sans que cela fasse faux est une belle prouesse. <em>Henri</em> profite de la qualité de ce personnage féminin, mais on pourrait en dire autant de celui qui a donné au film son titre. L'acteur italien Pippo Delbono incarne exactement comme il faut ce personnage refermé, mais extrêmement sensible, sombre et mélancolique, mais aussi drôle par moments. Eux deux soutiennent le film et le travail de Yolande Moreau en bénéficie largement. </p>
+
+<p>Henri et Rosette vont, sans surprise, apprendre à se connaître et s'apprécier. L'histoire de <em>Henri</em> n'est pas des plus originales sur le papier, mais elle s'avère moins banale qu'il n'y paraissait au premier abord. Tous les personnages filmés par Yolande Moreau sont surprenants et s'avèrent finalement plus complexes qu'escomptés. On pourrait évoquer Bibi et René, les deux piliers de comptoir qui passent leur temps accoudés au bar à boire et discuter avec Henri. On pense surtout à la troupe de handicapés rassemblée par la réalisatrice. Filmer des hommes et des femmes mentalement ou physiquement diminués n'est jamais simple, mais ce long-métrage évite tout mal à l'aise de la part des spectateurs, contrairement à ce que l'on avait pu ressentir chez Bruno Dumont dans <a href="https://voiretmanger.fr/camille-claudel-1915-dumont/" title="Camille Claudel 1915, Bruno Dumont - À voir et à manger"><em>Camille Claudel 1915</em></a>. Ces handicapés plus ou moins graves nous font parfois rire, mais ce n'est jamais à leurs dépens ; on est toujours avec eux, à leurs côtés, jamais contre eux. Cette posture n'était pas facile à tenir, mais Yolande Moreau n'en dévie jamais. De même, la relation amicale ou amoureuse qui nait entre Henri et Rosette n'est jamais ridicule, bien au contraire, elle tombe parfaitement juste et devrait en émouvoir plus d'un. Oscillant en permanence entre humour et émotion, <em>Henri</em> touche toujours précisément là où il faut et ce long-métrage est réussi d'abord pour cette raison. On apprécie aussi les excellents choix musicaux de la cinéaste qui compose une bande originale éclectique, mais toujours de goût. On sent que la musique est essentielle pour la réalisatrice qui va jusqu'à évoquer « <em>Innocent When You Dream</em> », un titre de Tom Waits, comme point de départ de son deuxième film. Yolande Moreau ne tient pas à multiplier les dialogues — Henri parle très peu dans tout le film —, mais ses choix de musique en disent souvent long, tandis qu'il faut relever sa capacité à filmer des tableaux souvent magnifiques, y compris avec des centaines de pigeons voyageurs. </p>
+
+
+<div style="text-align:center;"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2013/07/henri-miss-ming-pippo-delbono.jpg" alt="Henri miss ming pippo delbono" title="henri-miss-ming-pippo-delbono.jpg" width="100%" /></div>
+
+
+<p>Près de dix ans après <em>Quand la mer monte…</em>, son premier essai en tant que réalisatrice, Yolande Moreau confirme qu'elle n'est pas seulement une actrice à la présence si forte et personnalité si marquée, mais aussi une cinéaste de talent. <em>Henri</em> n'est pas un film tape-à-l'œil qui cherche à impressionner au maximum, c'est au contraire un récit qui frappe toujours juste. On s'amuse de ces personnages handicapés ou non, les uns alcooliques, les autres en décalage avec la société, mais ce n'est pas qu'une comédie. On est aussi ému par cette histoire d'amitié que l'on sent extrêmement sincère et qui parvient à toucher les spectateurs. Une vraie réussite, à ne pas rater !</p>
+
+<em>Sortie en salles le 4 décembre 2013</em>
