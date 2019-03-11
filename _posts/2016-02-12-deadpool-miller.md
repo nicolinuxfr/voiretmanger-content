@@ -1,0 +1,41 @@
+---
+ID: 15391
+post_title: '<em>Deadpool</em>, Tim Miller'
+post_name: deadpool-miller
+author: Nicolas
+post_date: 2016-02-12 23:03:38
+layout: post
+link: https://voiretmanger.fr/deadpool-miller/
+published: true
+tags:
+  - Action
+  - Adaptation bande-dessinée
+  - Comics
+  - Humour
+  - Parodie
+  - Sorties du moment
+  - Superhéros
+categories:
+  - À voir
+---
+Dans la grande collection des superhéros Marvel, Deadpool est un héros à part. Lui aussi a des super-pouvoirs, il guérit instantanément de n'importe quelle blessure et lui aussi a un costume, mais c'est à peu près tout ce qu'il a en commun avec les mutants de *X-Men* ou les Avengers. Il est doté d'un humour corrosif et qui ne vole en général pas très haut et il ne cherche pas vraiment à faire le bien, plutôt à agir comme ça l'arrange. Un anti-héros en quelque sorte, et la promesse d'une adaptation au cinéma différente de la myriade de superhéros que l'on croise dans les salles obscures. L'aperçu proposé par [*X-Men Origins: Wolverine*](https://voiretmanger.fr/x-men-origins-wolverine-hood/), le premier long-métrage où on croisait le personnage, ne [ressemble en rien](https://www.youtube.com/watch?v=AiibN8EmIxE) au *Deadpool* de Tim Miller. Ce nouveau film se veut insolent et parodique et il faut reconnaître que l'on n'est pas dans le blockbuster formaté. C'est rafraichissant, même si l'humour manque parfois de finesse et même si, surtout, le projet est si conscient de son impertinence qu'il en joue un petit peu trop.
+
+<a href="http://www.allocine.fr/film/fichefilm_gen_cfilm=146349.html" rel="attachment wp-att-15394"><img src="https://voiretmanger.fr/wp-content/uploads/2016/02/deadpool-miller.jpg" alt="deadpool-miller" width="2500" height="3334" class="aligncenter size-full wp-image-15394" /></a>
+
+*Deadpool* est un projet en gestation depuis plus de quinze ans, ce qui explique probablement que ce n'est pas une adaptation de *comics* directement supervisé par Marvel, ni par Disney. Les ayants-droits sont restés toutefois au plus près et d'ailleurs, le long-métrage de Tim Miller participe à la [saga *X-Men*](https://voiretmanger.fr/saga/x-men/). C'est le huitième volet de la série, mais les liens avec les mutants restent très vagues : tout au plus voit-on quelques références à des personnages, de Wolverine à Colossus, tandis que le grand méchant, Ajax, est lui aussi un mutant. On a aussi un clin d'œil au château de Professeur Xavier et même si le regroupement de superhéros mutants est évoqué à plusieurs reprises, ce n'est pas le moteur principal de l'action. De façon plus général, le néophyte sera probablement perdu dans ces univers Marvel qui se mélangent constamment : le combat final se déroule sur la carcasse d'un porte-avion volant que l'on a croisé dans la [saga *Avengers*](https://voiretmanger.fr/saga/avengers/). Sans compter que les scénaristes ont pris un malin plaisir à faire des clins d'œil à d'autres univers, quitte à évoquer [*Green Lantern*](https://voiretmanger.fr/green-lantern-campbell/), qui appartient à DC Comics. À vrai dire, tout cela n'a pas vraiment d'importance, car *Deadpool* se concentre sur la naissance de cet anti-héros si particulier. Il n'est pas né mutant, mais pour le soigner d'un cancer au stade terminal, on lui injecte une solution qui mute ses cellules et en fait un mutant, capable de régénérer n'importe quelle partie de son corps avant de mourir. C'est le même pouvoir que Wolverine, mais il faut reconnaître que les idées originales ne manquent pas : notre héros peut se couper une main et une nouvelle renaît rapidement, par exemple. Néanmoins, il ne faut pas le cacher : si vous connaissez un petit peu les superhéros, vous ne serez pas vraiment déstabilisé par l'intrigue générale, très conventionnelle. De la transformation à la construction progressive du personnage, jusqu'au grand combat final contre l'ennemi : Tim Miller reste largement dans les clous de ce que l'on connaît. 
+
+<img src="https://voiretmanger.fr/wp-content/uploads/2016/02/deadpool-ryan-reynolds-morena-baccarin.jpg" alt="deadpool-ryan-reynolds-morena-baccarin" width="3300" height="2200" class="aligncenter size-full wp-image-15396" />
+
+C'est un choix assumé, *Deadpool* ne surprend pas par sa trame générale, mais bien plus par son ambiance et en particulier par le ton de son personnage principal. Tout comme l'affiche, le générique d'ouverture donne le « *la* » : en lieu et place des noms des acteurs et du réalisateur, on a des appréciations péjoratives pour qualifier les personnages et les principaux membres de l'équipe. C'est décalé, à l'image du héros, dont la principale particularité est un humour décapant, souvent en rupture complète avec la situation. La première séquence est un combat où il se rend en taxi et prend le temps de discuter avec le chauffeur, comme si de rien n'était, alors qu'il est habillé en cuir rouge et qu'il a deux sabres qui dépassent. Il n'a que douze balles et des dizaines d'ennemis, mais il s'en tire sans problème, comptant chaque balle et s'amusant de chaque mort. On ne le voit pas sous son masque, mais on sent bien que Ryan Reynolds prend son pied avec ce superhéros qui correspond probablement exactement à sa vision du personnage. L'acteur était déjà là dans *X-Men Origins: Wolverine*, il est resté au plus près du projet et il donne de sa personne, c'est manifeste. L'humour est rarement très fin, d'autant qu'il tourne souvent autour du sexe, mais c'est effectivement différent de ce que l'on connaît, même si on pourrait arguer que le personnage d'Iron Man est aussi dans le même esprit second degré. Néanmoins, *Deadpool* va beaucoup plus loin, notamment dans la moquerie. Le héros se moque de ses ennemis et de sa situation, mais aussi, et c'est l'autre particularité du projet de Tim Miller, des autres personnages de l'univers et surtout de son statut d'acteur. Le long-métrage joue en permanence sur l'idée du quatrième mur, brisé très rapidement par le personnage qui s'adresse directement aux spectateurs, puis réduit en miette quand Ryan Reynolds passe du statut de personnage à celui d'acteur. Il se moque de sa piètre prestation dans *Green Lantern*, fait aussi référence au précédent film où il a joué, mais il se moque aussi du reboot de la saga *X-Men* en demandant quel acteur est censé jouer le Professeur. Ou bien encore du budget de *Deadpool* qui ne permet d'avoir que deux mutants en permanence à l'écran. 
+
+<img src="https://voiretmanger.fr/wp-content/uploads/2016/02/deadpool-ryan-reynolds-.jpg" alt="deadpool-ryan-reynolds-" width="3300" height="2200" class="aligncenter size-full wp-image-15395" />
+
+Irrévérencieux, ce film l'est assurément et c'est un choix malin pour désamorcer les critiques. Au fond, *Deadpool* ne se prend jamais au sérieux et invite explicitement les spectateurs à en faire autant. C'est bien vu, mais cela lui joue aussi des tours : à trop rappeler constamment que l'on est dans une œuvre de fiction, à se moquer tous azimuts, le scénario est parfois trop simpliste. À plusieurs reprises, Tim Miller tombe dans le piège et va trop loin, si bien que le personnage incarné par Ryan Reynolds n'est plus vraiment cool, mais plutôt barbant. *Deadpool* s'en sort plutôt bien et on ne voit pas du tout le temps passer — il faut dire qu'il est presque court au regard des standards actuels —, mais il est parfois un petit peu trop conscient de son insolence pour son propre bien. Le scénario aurait gagné à ménager son impertinence et à l'utiliser avec plus de parcimonie, mais on peut malgré tout saluer l'originalité de cette adaptation de superhéros.
+
+<div class="amazon" markdown="1">
+### Vous voulez [m'aider](https://voiretmanger.fr/soutien/) ?
+
+- [Acheter le film en Blu-ray sur Amazon](http://www.amazon.fr/gp/product/B01BLS2PV6/ref=as_li_ss_tl?ie=UTF8&tag=leblogdenic07-21&linkCode=as2&camp=1642&creative=19458&creativeASIN=B01BLS2PV6)
+- [Acheter le film en DVD sur Amazon](http://www.amazon.fr/gp/product/B01BLS2NK4/ref=as_li_ss_tl?ie=UTF8&tag=leblogdenic07-21&linkCode=as2&camp=1642&creative=19458&creativeASIN=B01BLS2NK4)
+- [Acheter ou louer le film sur l'iTunes Store](https://itunes.apple.com/fr/movie/deadpool/id1078113028)
+</div>
