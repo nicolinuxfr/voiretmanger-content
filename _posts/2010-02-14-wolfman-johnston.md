@@ -1,0 +1,44 @@
+---
+ID: 2814
+post_title: '<em>Wolfman</em>, Joe Johnston'
+post_name: wolfman-johnston
+author: Nicolas
+post_date: 2010-02-14 01:34:25
+post_excerpt: "Un film de loups-garous qui prend très au sérieux sa lecture premier degré du mythe ? C'est encore possible en 2010, c'est Wolfman, et c'est très fun ! "
+layout: post
+link: >
+  https://voiretmanger.fr/wolfman-johnston/
+published: true
+tags:
+  - Blockbuster
+  - Horreur
+  - Vite oublié
+categories:
+  - À voir
+---
+<p>"<em>Ce n'était pas une légende</em>" clame l'affiche française de <em>Wolfman</em>. Le film de Joe Johnston prouve que l'on peut faire encore un film de loups-garous au premier degré en 2010. Et il démontre avec brio qu'un tel film n'est pas nécessaire un navet impossible à apprécier sans quelques grammes dans le sang. <em>Wolfman</em> est bourrin, certes, mais aussi efficace !</p>
+
+<div style="text-align: center;"><a href="http://www.allocine.fr/film/fichefilm_gen_cfilm=110815.html"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2010/02/wolfman-joe-johnston.jpg" border="0" alt="wolfman-joe-johnston.jpg" width="600" height="800" /></a></div>
+<div style="text-align: center;"><strong>Wolfman <em>ne brille pas par l'originalité de son scénario. Néanmoins, si vous ne voulez pas savoir comment le prince et la princesse se marièrent et eurent beaucoup d'enfants à la fin, je vous recommande de passer directement au dernier paragraphe.</em></strong></div>
+<p></p>
+<p>Un homme disparaît dans la lande anglaise à la fin du XIXe siècle. On le retrouve quelques jours après dans un fossé, le corps entièrement déchiqueté. Un homme ne pourrait infliger de telles blessures et bien vite, on accuse une bande de gitans qui traîne dans les environs du village. C'est dans ce contexte belliqueux que débarque Lawrence, un jeune comédien qui revient dans la maison familiale après la mort de son frère. Il se jure de retrouver celui qui est responsable de cette mort et avec les paysans du coin, il part battre la campagne. C'est au cours de cette battue qu'il se fait attaquer et mordre par la bête. Or comme toute bonne bête diabolique qui se respecte, le lycanthrope (c'est son nom scientifique, ça fait plus classe quand même que "loup-garou") transmet son mal par la morsure.</p>
+<p>Lawrence guérit très vite, retrouve ses forces en à peine un mois, et à la pleine lune suivante devient à son tour un loup-garou traqué de tous, et même de Scotland Yard. Au départ sceptique, l'inspecteur venu de Londres doit finalement se résoudre à l'évidence : les loups-garous existent bien, et les balles traditionnelles n'ont aucun effet sur eux. C'est pourquoi il en appelle à Dieu, et fais charger ses pistolets de balles en argent parce, quand même, faut pas déconner. Commence alors une grande bataille qui va de Londres au manoir familial, dans la grande tradition du gothique anglais. Tradition bien rendue par une image toujours très sombre, où le brouillard et l'humidité sont omniprésents.</p>
+
+<div style="text-align: center;"><img src="https://voiretmanger.fr/wp-content/uploads/2010/02/wolfman-benicio-del-toro.jpg" border="0" alt="wolfman-benicio-del-toro.jpg" width="600" height="325" /></div>
+<p><em>Wolfman</em> a des qualités, mais certainement pas celle du scénario original. Bien au contraire, la voie suivie par Joe Johnston est un premier degré complet, revendiqué et totalement assumé. Ce premier degré ne permet pas un scénario tordu : l'intrigue est simple et invoque à la fois une relation père/fils, une histoire d'amour impossible et des gitans, toujours là quand les choses vont mal. En fait, l'histoire importe peu dans <em>Wolfman</em> et ça n'est vraiment pas l'intérêt principal du film. Les ficelles sont si grosses qu'on les repère facilement, et même on prend du plaisir à attendre les ficelles du scénario.</p>
+<p>Peu importe, dès lors, si l'histoire n'est pas très fouillée, si l'histoire d'amour n'est jamais crédible plus de deux secondes d'affilée et si les relations père/fils sont bien caricaturales. <em>Wolfman</em> sait, de toute façon, se faire léger, multipliant les ellipses pour un film très rapide et qui ne s'attarde jamais sur les explications, ce qui est quand même une très bonne idée. Même les sempiternels flashs-backs ont la politesse d'être courts, pour laisser du temps au plat de résistance du film, à savoir les massacres et la chair fraiche. <em>Wolfman</em> est ainsi un film assez gore, où les tripes ou membres volent, et où le sang coule à flots. C'est aussi un film d'horreur dans la grande tradition du genre, avec des sons bizarres de derrière, et des plans en pagaille où, forcément, le gentil ne peut pas voir arriver le méchant. Je suis très bon public dans ces cas-là, sursautant à plusieurs reprises (alors que je sais pertinemment bien que la bête va lui sauter dessus, c'est énervant les réflexes).</p>
+
+<div style="text-align: center;"><img src="https://voiretmanger.fr/wp-content/uploads/2010/02/wolfman-anthony-hopkins.jpg" border="0" alt="wolfman-anthony-hopkins.jpg" width="600" height="325" /></div>
+<p>Prendre un mythe ultra connu et en offrir une relecture premier degré assumée jusqu'au bout, voilà une idée intéressante et plutôt bien réussie par Joe Johnston. <em>Wolfman</em> n'apporte rien au mythe du loup-garou, encore moins au cinéma, mais après tout, un film n'est pas non plus <em>censé</em> apporter systématiquement quelque chose. Ce cinéma essaie simplement de divertir ses spectateurs, un objectif certes beaucoup plus modeste, mais très bien satisfait par ce film réalisé en plus "à l'ancienne", avec de vrais costumes en lieu et place des effets spéciaux[^1]. Le film n'évite aucun cliché du genre, mais son rythme frénétique lui permet de ne jamais s'appesantir, ce qui serait terrible. C'est encore <a href="https://voiretmanger.fr/tag/vite-oublie/">un film vite oublié</a>, mais peu importe, ce fut un film fun pendant la séance. Je ne lui demandais rien de plus…</p>
+<p>La blogosphère félicite unanimement la lecture au premier degré, regrettant simplement la faiblesse du scénario : c'est le cas chez <a href="http://www.filmosphere.com/2010/02/critique-wolfman-the-wolfman-2010/">Filmosphère</a>, <a href="http://www.geekculture.fr/Wolfman,1193.html?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+geekculture%2FgpMC+%28Geek+Culture%29">Geek Culture</a>, les <a href="http://www.lesyeuxsurlecran.fr/article-critique-wolfman-2010-benicio-del-toro-44633163.html">Yeux sur l'écran</a> ou encore <a href="http://myscreens.fr/2010/cinema/wolfman-la-critique/">MyScreens</a>. Les critiques traditionnelles sont plus partagées, ce qui était assez prévisible.</p>
+
+<div class="amazon">
+<h3>Vous voulez m'aider ?</h3>
+<ul>
+	<li><a href="http://www.amazon.fr/gp/product/B0037W69NK/ref=as_li_ss_tl?ie=UTF8&tag=leblogdenic07-21&linkCode=as2&camp=1642&creative=19458&creativeASIN=B0037W69NK">Acheter le film en Blu-Ray sur Amazon</a></li>
+	<li><a href="http://www.amazon.fr/gp/product/B0037W69NA/ref=as_li_ss_tl?ie=UTF8&tag=leblogdenic07-21&linkCode=as2&camp=1642&creative=19458&creativeASIN=B0037W69NA">Acheter le film en DVD sur Amazon</a></li>
+	<li><a href="https://itunes.apple.com/fr/movie/wolfman/id378308148">Acheter ou louer le film sur l'iTunes Store</a></li>
+</ul>
+</div>
+
+[^1]: La comparaison avec un autre film récent avec des loups-garous, <em><a href="https://voiretmanger.fr/2009/11/27/twilight-chapitre-2-weitz/">Twilight 2</a></em>, est plutôt favorable à <em>Wolfman </em>: certes, la transformation est impressionnante dans le film à bellâtres, mais une fois transformés, les loups-garous ressemblent... ben à des loups en fait. Ici, on a plus le mélange homme/loup, c'est quand même plus intéressant.
