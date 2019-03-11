@@ -1,0 +1,47 @@
+---
+ID: 6655
+post_title: '<em>Star Wars, Épisode V : L&rsquo;Empire contre-attaque</em>, Irvin Kershner'
+post_name: >
+  star-wars-episode-5-empire-contre-attaque-kershner
+author: Nicolas
+post_date: 2012-06-05 20:37:15
+layout: post
+link: >
+  https://voiretmanger.fr/star-wars-episode-5-empire-contre-attaque-kershner/
+published: true
+tags:
+  - Action
+  - Blockbuster
+  - Guerre
+  - Saga
+  - Science-Fiction
+  - Space Opera
+categories:
+  - À voir
+---
+La première trilogie <em>Star Wars</em> suit un cheminement très classique : après une première victoire des Rebelles dans <a title="Star Wars, Épisode IV : Un nouvel espoir, George Lucas" href="https://voiretmanger.fr/2012/06/03/star-wars-episode-4-nouvel-espoir-lucas/"><em>Star Wars, Épisode IV : Un nouvel espoir</em></a>, les choses se corsent et la situation se retourne dans <em>Star Wars, Épisode V : L'Empire contre-attaque</em>. L'Empire gagne à nouveau du terrain et la situation est très difficile pour ses ennemis quand l'épisode se termine. Ce long-métrage est également une transition avant le grand final du sixième épisode. Un moment-clé pour lequel George Lucas laisse les commandes et c'est Irvin Kershner qui passe derrière la caméra. Cet ancien professeur du créateur de la saga a su conserver l'esprit <em>Star Wars</em> tout en lui offrant un peu de noirceur. <em>Star Wars, Épisode V : L'Empire contre-attaque</em> est peut-être le film le plus équilibré de toute la saga et un excellent blockbuster.
+
+<a href="http://www.allocine.fr/film/fichefilm_gen_cfilm=25802.html"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2012/06/star-wars-episode-5-empire-contre-attaque-kershner.jpg" alt="Star wars episode 5 empire contre attaque kershner" width="100%" /></a>
+
+À la fin de l'épisode précédent, les Rebelles ont réussi à détruire l'Étoile de la Mort, la puissante arme impériale capable de détruire une planète en un seul coup. C'était indiscutablement une victoire, mais l'Empire n'a pas dit son dernier mot et la guerre est loin d'être gagnée. Elle reprend même de plus belle alors que Dark Vador remue ciel et terre à la recherche de Luke Skywalker. Les drones qu'il envoie dans tout l'univers parviennent justement à localiser la nouvelle base rebelle située sur une planète glacée. La flotte impériale rapplique immédiatement et oblige les Rebelles à lever le camp et à fuir. Le jeune Luke Skywalker a eu une vision d'Obi Wan Kenobi, le maître Jedi mort sous le coup du sabre laser de Dark Vador dans l'épisode IV. Cette vision le conduit sur une planète inhabitée où Yoda a pris refuge. Ce dernier va tenter de former Luke pour lui permettre de devenir un Jedi, mais la formation est écourtée quand le jeune homme sent que ses amis sont en danger.
+
+<em>Star Wars, Épisode V : L'Empire contre-attaque</em> partage de nombreux points communs avec <a title="Star Wars, Épisode II : L’Attaque des clones, George Lucas" href="https://voiretmanger.fr/2012/05/26/star-wars-episode-2-attaque-clones-lucas/"><em>Star Wars, Épisode II : L’Attaque des clones</em></a>. Les deux films sont situés en positions intermédiaires et ils ont tous les deux comme sujet principal la formation d'un jeune Jedi. Après Anakin, la saga s'intéresse maintenant à Luke et même si le contexte est bien différent, la problématique reste la même. Sa formation est encore fragile et Luke pourrait très bien tomber à son tour du côté obscur de la Force. Son prédécesseur avait échoué à rester du côté lumineux et on retrouve de nombreux points communs entre les deux. Comme on le découvre au cours du film, Dark Vador est le mieux placé pour le savoir : le terrifiant être qui n'a plus rien d'humain n'est autre qu'Anakin, le père de Luke. Il sait très bien que son ennemi n'est pas encore assez fort pour l'affronter, ni même pour résister à l'attrait du côté obscur. Le piège qu'il lui tend a précisément cette fonction : essayer d'énerver Luke, faire appel à ses colères et ses peurs les plus profondes pour le détourner des enseignements de Yoda et Obi Wan Kenobi. La menace est réelle, comme en témoigne la vision qu'a Luke de lui-même en Dark Vador dans la grotte. Le film d'Irvin Kershner montre bien que si les deux parcours partagent des similarités, ils ne sont pas équivalents : à l'issue de <em>Star Wars, Épisode V : L'Empire contre-attaque</em>, Luke n'a pas vacillé, mais comme dans la prélogie, tout se jouera dans l'épisode suivant…
+
+<img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2012/06/star-wars-episode-V-dark-vador.jpg" alt="Star wars episode V dark vador" width="100%" />
+
+Si l'intrigue se concentre essentiellement sur Luke Skywalker et son conflit avec Dark Vador avec la scène de la révélation sur l'identité de ce dernier en guise de point culminant, <em>Star Wars, Épisode V : L'Empire contre-attaque</em> n'en oublie pas pour autant de développer une intrigue secondaire. Le film d'Irvin Kershner suit également les pas de Han Solo et Leia avec cette fois la concrétisation de l'intrigue amoureuse qui pointait son nez dans l'épisode IV. Cette histoire d'amour s'entremêle de manière astucieuse à l'intrigue principale : quand Han et Leia arrivent à la cité dans les airs, c'est d'abord pour réparer le vaisseau endommagé, mais cette escale va amener Dark Vador et enfin Luke Skywalker. À la fin de l'épisode, le capitaine du Faucon Millenium est en très mauvaise posture et l'intrigue secondaire se poursuit dans <em>Star Wars, Épisode VI : Le Retour du Jedi</em>. En attendant, cet épisode est très varié, c'est même sans doute celui qui offre la plus grande variété de décors et d'actions dans la saga. Alors que l'épisode précédent se déroulait essentiellement dans l'espace, l'action de <em>Star Wars, Épisode V : L'Empire contre-attaque</em> est située en majorité sur différentes planètes. On voyage beaucoup, avec des paysages très variés : après le désert de Tatooïne, place aux glaces de Hoth, puis à la jungle épaisse de Dagobah et enfin la cité dans les airs. Les batailles spatiales ont en contrepartie disparu, même s'il faut noter quelques courses-poursuites épiques entre le vaisseau spatial de Han Solo et les troupes impériales. Même si l'ambiance n'est plus à la rigolade, Irvin Kershner a su conserver l'humour si typique de la saga et cet épisode maintient une belle place au duo de robots C3PO et R2D2.
+
+George Lucas n'a laissé la main à la réalisation que pour deux films dans la saga, celui-ci et le suivant. Quelle lourde tâche pour un cinéaste de s'attaquer à des films d'une telle ampleur, surtout quand on s'appelle Irvin Kershner. Ce professeur qui a eu pour élève George Lucas est bien plus expérimenté, mais il n'a jamais tourné de grosse production comme <em>Star Wars, Épisode V : L'Empire contre-attaque</em>. Enjeu supplémentaire, il lui fallait maintenir l'esprit et l'esthétique de la saga pour conserver son unité. Mission réussie de ce côté : dès l'ouverture, avec l'explication en lettres jaunes qui défilent avec effet de perspective puis le plan dans l'espace sur un vaisseau en mouvement, on retrouve les principes mis en place précédemment par George Lucas. Le film conserve aussi certains clichés, comme les transitions toujours atypiques, et le spectateur n'est pas dépaysé. Tout n'est pas comme avant pour autant et même si on pourrait croire par moment que le réalisateur n'a pas changé, la présence discrète d'Irvin Kershner se fait tout de même sentir. <em>Star Wars, Épisode V : L'Empire contre-attaque</em> semble plus mûr que son prédécesseur, il semble tourné avec plus d'assurance et on peut considérer que la noirceur de certaines scènes est le fait du nouveau réalisateur. Le film n'a toutefois pas perdu en efficacité et la musique géniale et particulièrement présente de John Williams n'y est pas étrangère, notamment dès que le thème impérial entre en scène. Les acteurs ont aussi muri avec ce film et ils sont tous meilleurs que dans l'épisode IV, surtout Harrison Ford qui semble parfaitement à l'aise.
+
+<img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2012/06/star-wars-5-kershner-harrisson-ford-carrie-fisher.jpg" alt="Star wars 5 kershner harrisson ford carrie fisher" width="100%" />
+
+<em>Star Wars, Épisode V : L'Empire contre-attaque</em> est indéniablement un excellent épisode dans la saga. Irvin Kershner a su conserver l'univers et l'ambiance mis en place par George Lucas dans <em>Star Wars, Épisode IV : Un nouvel espoir</em>, mais il y a ajouté sa pâte personnelle pour un résultat plus mûr et peut-être plus ambitieux. Cet épisode de transition avant le grand final de l'épisode VI est parfaitement maîtrisé et il est toujours aussi plaisant à regarder, d'autant que les effets spéciaux qui ont progressé en trois ans ont bien vieilli. Un classique de la SF, à voir et à revoir…
+
+<div class="amazon">
+<h3>Vous voulez m'aider ?</h3>
+<ul>
+	<li><a href="http://www.amazon.fr/gp/product/B000G5R796/ref=as_li_ss_tl?ie=UTF8&amp;tag=leblogdenic07-21&amp;linkCode=as2&amp;camp=1642&amp;creative=19458&amp;creativeASIN=B000G5R796">Acheter le film en DVD sur Amazon</a></li>
+	<li><a href="http://www.amazon.fr/gp/product/B004HYGSXS/ref=as_li_ss_tl?ie=UTF8&amp;tag=leblogdenic07-21&amp;linkCode=as2&amp;camp=1642&amp;creative=19458&amp;creativeASIN=B004HYGSXS">Acheter la saga complète en Blu-Ray sur Amazon</a></li>
+	<li><a href="http://itunes.apple.com/fr/album/star-wars-episode-v-empire/id261749656">Acheter la bande originale du film sur l'iTunes Store</a></li>
+</ul>
+</div>
