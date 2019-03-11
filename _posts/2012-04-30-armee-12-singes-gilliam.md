@@ -1,0 +1,46 @@
+---
+ID: 6317
+post_title: '<em>L&rsquo;Armée des 12 Singes</em>, Terry Gilliam'
+post_name: armee-12-singes-gilliam
+author: Nicolas
+post_date: 2012-04-30 14:30:07
+layout: post
+link: >
+  https://voiretmanger.fr/armee-12-singes-gilliam/
+published: true
+tags:
+  - Apocalypse
+  - Dystopie
+  - Folie
+  - Science-Fiction
+  - Société
+  - Technologies
+  - Voyage temporel
+categories:
+  - À voir
+---
+Pour son septième film, Terry Gilliam s'intéresse à nouveau à un univers de science-fiction. Dix ans après <em>Brazil</em>, l'ancien membre des Monty Python propose à nouveau son ambiance complètement barrée si typique dans <em>L'Armée des 12 Singes. </em>Un univers post-apocalyptique, une histoire de voyage dans le temps sur fond de folie et de critique de la société : Terry Gilliam plonge ses spectateurs dans un univers complexe, baroque et un peu foutraque, mais toujours passionnant.
+
+<a href="http://www.allocine.fr/film/fichefilm_gen_cfilm=29757.html"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2012/04/gilliam-armeee-12-singes.jpg" alt="Gilliam armeee 12 singes" width="100%" /></a>
+
+Résumer <em>L'Armée des 12 Singes </em>n'est pas une mince affaire. Comme toute histoire qui se base sur le voyage dans le temps, elle repose sur de nombreux paradoxes qui la rendent particulièrement complexe. Le présent du film est situé dans un futur assez proche. Les hommes ont quitté la surface terrestre après l'émergence d'un terrible virus qui a anéanti la majeure partie des humains. Ce qui reste de l'humanité après cinq milliards de morts se terre dans les sous-sols de la planète. Des scientifiques ont pris le pouvoir et ils ont organisé la société de manière logique et froide. Les avancées technologiques leur permettent d'envisager un moyen pour trouver un remède au terrible virus : ils envoient des prisonniers dans le passé pour tenter de comprendre l'origine du mal et essayer d'y trouver une solution. James Cole est l'un de ces voyageurs dans le temps : on l'envoie dans le passé pour enquêter et il est justement sur une piste. Un groupuscule écologique radical connu sous le nom d'armée des 12 singes chercherait à tuer toute l'humanité pour rendre la Terre aux animaux…
+
+Le film se présente dans un premier temps comme une dystopie assez classique : l'univers construit par <em>L'Armée des 12 Singes </em>reprend l'idée d'un événement apocalyptique qui a tué une bonne partie de l'humanité et rendu la planète terrestre complètement invivable. Il ne s'agit pas ici d'une catastrophe nucléaire, mais d'un virus qui a emporté très rapidement la population terrestre à partir de plusieurs points autour du globe. Quelques années ont suffi à tuer cinq milliards de personnes et à terrer les survivants dans des sous-sols délabrés, sales et mal éclairés où une caste supérieure de scientifiques règne en maître. Terry Gilliam montre assez peu d'éléments de cet univers puisqu'il ne s'agit pas vraiment du cœur de son film, mais on en voit assez pour comprendre qu'il ne s'agit pas d'une belle utopie. James Cole est emprisonné dans des conditions déplorables et il est traité avec bien peu d'égard par les scientifiques qui n'hésitent pas à expérimenter sur lui. Dans cet univers de science-fiction, on sait voyager dans le temps et James est ainsi envoyé en 1990, puis en 1996, l'année d'apparition du fameux virus. L'essentiel du film se déroule à cette époque qui est antérieure au présent de <em>L'Armée des 12 Singes</em>. La première fois que James est envoyé dans le passé, il atterrit dans un hôpital psychiatrique où l'on prend cet individu qui dit venir du futur pour un fou. C'est la force du film de Terry Gilliam : s'il est d'abord présenté comme de la science-fiction, il instille vite un doute dans l'esprit du spectateur. Et si James était effectivement fou, comme ce que disent les psychiatres qui le traitent ? Et si tout cela n'était qu'un fruit de son imagination débordante ? La thèse est tout à fait crédible et sans révéler trop d'éléments sur la fin, on peut simplement indiquer qu'elle renforce cette théorie de la folie du personnage principal et qu'elle amène à reconsidérer ce qui précède. Le scénario à toutefois l'excellente idée de ne pas confirmer une hypothèse et d'invalider l'autre : <em>L'Armée des 12 Singes</em> reste assez ouvert aux interprétations différentes.
+
+<img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2012/04/bruce-willis-12-monkeys.jpg" alt="Bruce willis 12 monkeys" width="100%" />
+
+Quelle que soit l'hypothèse retenue, <em>L'Armée des 12 Singes</em> ne fait aucun doute sur un point : sa critique de la science au sens large. Terry Gilliam construit la dystopie futuriste sur la base de scientifiques qui ont pris le pouvoir. Le moins que l'on puisse dire, c'est que la société qu'ils ont forgée est loin de l'idéal. Elle est peut-être rationnelle et logique, mais elle n'en est pas moins parfaitement inhumaine et cruelle. James est manipulé, on imagine qu'il est drogué et il n'a absolument aucune volonté propre, même s'il est censé être libéré suite à son travail dans le passé. Le film n'en reste pas moins critique à l'égard de la technologie, représentée ici par cette bulle entourée de dizaines d'écrans. C'est elle qui est pointée du doigt, comme si elle était la cause de tous les maux. Dans les années 1990, c'est la psychiatrie qui est critiquée avec cet hôpital qui tient plus de la prison que de l'établissement de santé. Les médecins sont vus comme des êtres imbus d'eux-mêmes, incapables de se remettre en question et aux méthodes douteuses. L'erreur est humaine, elle est aussi scientifique, et ce dans les deux époques. Dans le futur, les scientifiques sont censés envoyer le personnage principal en 1996, mais ils doivent s'y reprendre à trois fois avant d'atteindre la bonne date. Au-delà de cette représentation trouble de la folie et de son traitement, Terry Gilliam fait de la recherche scientifique le coupable de l'épidémie qui a causé la perte de l'humanité. Le virus n'est pas naturel, il a été en effet conçu par un laboratoire et le film donne quelques éléments que l'on ne révélera pas, mais qui accablent encore plus le corps scientifique.
+
+Terry Gilliam n'est pas un réalisateur ordinaire. Il suffit de jeter un œil à sa carrière de cinéaste pour en prendre conscience : il ne fait rien comme les autres et connaît un taux d'échecs assez impressionnant, à tel point qu'il est reconnu comme le réalisateur le plus malchanceux. <em>L'Armée des 12 Singes</em> est à ce jour son plus grand succès commercial, mais ce n'est pourtant pas le plus accessible. Si deux stars se partagent l'affiche, ce film reprend toutes les thématiques chères au cinéaste et surtout cette forme si particulière. Terry Gilliam a commencé comme animateur pour le <em>Monty Python's Flying Circus</em> et il a toujours gardé un goût prononcé pour les univers visuels baroques.<em>L'Armée des 12 Singes</em> n'y fait pas exception, bien au contraire et ses décors futuristes sont particulièrement chargés et ressemblent plus à un bric-à-brac tout droit sorti d'un marché aux puces que d'un décor de science-fiction traditionnelle. Sa réalisation est à l'image de ces décors : la caméra est rarement droite, elle semble toujours placée au mauvais endroit et Terry Gilliam utilise à l'excès une lentille qui donne un effet fish-eye. L'ensemble est saisissant, parfois un peu kitsch, mais le résultat est une ambiance poisseuse particulièrement réussie, qui rappelle parfois, accentuée, celle de <a href="https://voiretmanger.fr/2010/11/28/monty-pythons-sacre-graal/"><em>Monty Python : Sacré Graal !</em></a> Le succès de <em>L'Armée des 12 Singes</em> tient aussi dans l'interprétation de ses deux personnages principaux. Bruce Willis en impose dans ce rôle de voyageur dans le temps un peu dément, mais c'est surtout un Brad Pitt encore jeune qui impressionne. Celui qui allait devenir une star hollywoodienne parfois un peu lisse interprète ici brillamment un fou furieux avec une justesse étonnante.
+
+<img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2012/04/l-armee-des-12-singes-gilliam.jpg" alt="L armee des 12 singes gilliam" width="100%" />
+
+<em>L'Armée des 12 Singes</em> est un film à la fois réjouissant par ses paradoxes temporels et inquiétants par son discours sur la folie. Terry Gilliam dévoile une dystopie terrifiante et en même temps assez réaliste, tandis qu'il joue de nos attentes pour mieux brouiller les cartes. S'agit-il simplement d'un film d'anticipation, ou d'une plongée dans la folie humaine ? <em>L'Armée des 12 Singes</em> ne répond pas vraiment, à vous de faire votre propre opinion…
+
+<div class="amazon">
+<h3>Vous voulez m'aider ?</h3>
+<ul>
+	<li><a href="http://www.amazon.fr/gp/product/B002IWF1JI/ref=as_li_ss_tl?ie=UTF8&tag=leblogdenic07-21&linkCode=as2&camp=1642&creative=19458&creativeASIN=B002IWF1JI">Acheter le film en Blu-Ray sur Amazon</a></li>
+	<li><a href="http://www.amazon.fr/gp/product/B000068UT9/ref=as_li_ss_tl?ie=UTF8&tag=leblogdenic07-21&linkCode=as2&camp=1642&creative=19458&creativeASIN=B000068UT9">Acheter le film en DVD sur Amazon</a></li>
+</ul>
+</div>
