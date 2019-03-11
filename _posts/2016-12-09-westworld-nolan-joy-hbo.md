@@ -1,0 +1,73 @@
+---
+ID: 17073
+post_title: '<em>Westworld</em>, Jonathan Nolan et Lisa Joy (HBO)'
+post_name: westworld-nolan-joy-hbo
+author: Nicolas
+post_date: 2016-12-09 19:11:13
+layout: post
+link: >
+  https://voiretmanger.fr/westworld-nolan-joy-hbo/
+published: true
+tags:
+  - Action
+  - Amour
+  - "Parc d'attractions"
+  - Philosophie
+  - Remake
+  - Robot
+  - Science-Fiction
+  - Série
+  - Société
+  - Violence
+  - Western
+categories:
+  - À voir
+---
+Netflix est peut-être en train de se tailler une belle part dans le marché des séries, HBO reste une référence en la matière et la chaîne américaine entend bien le faire savoir. Après [*Game of Thrones*](https://voiretmanger.fr/game-of-thrones-weiss-benioff-hbo/), son nouveau projet phare est au moins aussi ambitieux, peut-être encore davantage. En tout cas, la première saison de *Westworld* a coûté plus cher que celle du trône de fer et son concept de base est complètement fou. Remake d'un film des années 1970 écrit et réalisé par Michael Crichton, cette série nous emmène dans le futur où un parc d'attraction reproduit le plus fidèlement possible le *far west* du XIX<sup>e</sup> siècle pour y plonger ses fortunés visiteurs. Les décors sont parfaitement reproduits et l'entreprise qui a conçu le parc exploite des robots qui ressemblent fidèlement à des humains. Créée par Jonathan Nolan et Lisa Joy, *Westworld* impose son ambition folle dès le pilote et la première saison entraîne le spectateur pendant dix épisodes dans une histoire tortueuse et toujours passionnante. On ne sait pas toujours où l'on va et c'est exactement pour cette raison que c'est une réussite : un petit peu comme [*Lost*](https://voiretmanger.fr/lost-liebern-abrams-lindelof-abc/) à son époque, cette série est pleine de mystères et elle est extrêmement prometteuse.  
+
+<img src="https://voiretmanger.fr/wp-content/uploads/2016/12/westworld-hbo.jpg" alt="" width="2100" height="1400" class="aligncenter size-full wp-image-17076" />
+
+Le [générique d'ouverture](https://www.youtube.com/watch?v=elkHuRROPfk), magnifique comme toujours chez HBO, enlève immédiatement toute trace de doute sur ce point. Dans *Westworld*, la technologie a suffisamment évolué pour que l'on puisse créer des robots humanoïdes qui ressemblent tellement à des humains qu'on pourrait les confondre. C'est d'ailleurs précisément ce qui arrive dans Westworld, un parc d'attraction que l'on peut visiter pour remonter le temps. Les visiteurs payent très cher le droit de vivre quelques jours dans les États-Unis des *cow-boys* et ils débarquent en train à vapeur dans une petite ville qui ressemble à l'archétype des westerns. Ses habitants sont les robots conçus par les propriétaires du parc, mais, et c'est là toute l'astuce, on ne sait pas toujours qui est un robot et qui est un humain. Le scénario suit quelques personnages clés que l'on peut rapidement classer, mais, surtout dans les premiers épisodes et tout particulièrement dans le pilote, on ne sait rien et c'est très amusant d'essayer de deviner qui est quoi. Ce sentiment d'être perdu est constant dans la première saison et Jonathan Nolan et Lisa Joy en abusent peut-être un petit peu parfois. Néanmoins, si vous appréciez les jeux de pistes, *Westworld* est une série déjà passionnante et qui révèle de nombreuses surprises. N'en dévoilons pas trop, mais outre la question de l'identité de quelques personnages clés, la saison joue aussi beaucoup sur la notion de temps. Tous les soirs, les robots sont réinitialisés et tous les matins, ils suivent à nouveau un scénario écrit par les concepteurs du parc, un scénario qui varie chaque jour en fonction de l'influence des visiteurs. Il n'empêche que le parc fonctionne sur le principe de la boucle temporelle et les robots, par définition, ne vieillissent pas. Voilà qui laisse quelques options pour raconter des histoires et la saison ne s'en prive pas de les exploiter, on n'en dira pas plus. Notons en revanche d'emblée le talent du casting réuni par HBO, en premier lieu d'Evan Rachel Wood qui incarne l'une des actrices robotisées du parc et un personnage clé dans l'intrigue qui se met en place. Incarner un robot n'est pas si facile et introduire des variations sur le même thème est encore plus difficile, mais elle s'en sort avec brio.
+
+<img src="https://voiretmanger.fr/wp-content/uploads/2016/12/westworld-nolan-joy.jpg" alt="" width="3300" height="2200" class="aligncenter size-full wp-image-17077" />
+
+Une bonne série ne tient que par ses personnages et c'est peut-être le point faible de cette première saison. *Westworld* repose sur une idée si fascinante que les scénaristes se sont peut-être un petit peu trop focalisés sur elle. En même temps, les dix épisodes que l'on a vus jusque-là bâtissent des fondations solides pour des personnages passionnants, mais ce sera plutôt dans les saisons suivantes. En attendant, Jonathan Nolan et Lisa Joy ont quand même quelques-uns dignes d'intérêt et Anthony Hopkins dans le rôle de Robert Ford se distingue tout particulièrement. L'acteur joue très bien ce vieux savant un petit peu fou qui a créé les robots il y a une trentaine d'années de cela avec son ami Arnold. Ce dernier a disparu et il est l'un des mystères de la saison, mais Ford est un personnage complexe et qui conserve bien des secrets même à la fin de la saison. En face, le personnage de l'homme en noir est également mystérieux et Ed Harris, encore un acteur que l'on n'a pas l'habitude de voir dans des séries, s'en sort très bien dans son rôle. On verra ce que la suite nous réserve, mais *Westworld* est déjà un divertissement spectaculaire et passionnant, avec quelques interrogations philosophiques qui mériteraient d'être creusées autour de la notion d'âme et d'humanité. Ce n'est pas très original dans la science-fiction, certes, mais la série confronte humains et robots de manière assez élégante et même si la révolte de ces êtres supérieurs sur bien des points était attendue, elle n'en reste pas moins attirante. Elle n'est qu'esquissée ici toutefois et encore une fois, il faudra attendre pour en savoir plus. Jonathan Nolan et Lisa Joy ont eu déjà beaucoup de mal à poser le décor et le tournage de la première saison a pris plus longtemps que prévu pour ces raisons, mais on ne pourra pas reprocher à la série son ambition. Au passage, la [bande originale composée](https://itunes.apple.com/fr/album/westworld-season-1-music-from/id1182133569) par Ramin Djawadi, un habitué[^1], est excellente. Les morceaux originaux sont très bons, mais ce sont surtout les reprises qui restent en tête. Radiohead, Sigur Rós, The Cure ou encore Amy Winehouse ou The Rolling Stones : ces reprises minimalistes sont toutes excellentes[^2] et elles ajoutent beaucoup à la série.
+
+<img src="https://voiretmanger.fr/wp-content/uploads/2016/12/westworld-anthony-hopkins.jpg" alt="" width="3300" height="2200" class="aligncenter size-full wp-image-17075" />
+
+*Westworld* compte peut-être quelques défauts ici ou là, mais les dix épisodes qui constituent la première saison sont parmi les plus impressionnants que l'on a vus à la télévision ces dernières années. Jonathan Nolan et Lisa Joy signent une série qui est déjà excellente et qui est aussi très prometteuse. On sait d'ores et déjà qu'il faudra attendre au moins 2018 pour la suite, mais c'est bien normal : au fond, cette saison est beaucoup plus un long-métrage de dix heures qu'un ensemble d'épisodes. Espérons que la suite ne décevra pas, mais la première saison de *Westworld* mérite amplement le détour !
+
+***
+
+## *Westworld*, saison 2 {#2}
+
+<img src="https://voiretmanger.fr/wp-content/uploads/2016/12/westworld-dolores-saison-2.jpg" alt="" width="3300" height="2200" class="big size-full wp-image-20390" />
+
+(7 juin 2018)
+
+La première saison de *Westworld* imposait son ambition folle et même si elle souffrait de quelques défauts, elle posait les bases d’un univers passionnant que l’on avait hâte de retrouver. Après de tels débuts, on attendait beaucoup de la série créée par Jonathan Nolan et Lisa Joy et on se demandait comment ils pourraient poursuivre sans tomber dans les clichés faciles. Hélas, la deuxième saison ne s’en sort pas aussi bien qu’on pouvait l’espérer. Les scénaristes donnent le sentiment qu’ils ne savaient pas où ils voulaient aller après les dix premiers épisodes et ces dix nouveaux volets partent dans tous les sens. On découvre de nouveaux parcs dont on ne savait rien jusque-là, les scènes d’action se démultiplient jusqu’à atteindre le niveau du premier Blockbuster venu, et toutes les réflexions profondes des débuts se sont transformées en citations philosophiques saupoudrées pour faire intelligent, mais sans fondement. *Westworld* a perdu de son originalité et de son audace et c’est bien dommage.
+
+<img src="https://voiretmanger.fr/wp-content/uploads/2016/12/westworld-2-jeffrey-wright.jpg" alt="" width="3300" height="2200" class="aligncenter size-full wp-image-20391" />
+
+La première saison se terminait sur la promesse d’une rebellions des robots du parc, c’est logiquement le cœur du sujet de cette suite. *Westworld* reprend après la fête qui s’est terminée tragiquement, alors que Delos envoie ses hommes pour rétablir la situation et essayer de comprendre ce qui a pu se passer. Dolores mène la révolte d’un côté, Maeve continue de suivre une voie assez similaire du sien et tout cela pourrait former une base riche et passionnante. À la place, les premiers épisodes patinent un petit peu et la série bascule progressivement vers un enchaînement de séquences d’action sans intérêt, entrecoupées de quelques idées qui pourraient former une grande série… si elles n’étaient pas simplement saupoudrées en guise de supplément. On découvre ainsi que Delos a acheté le parc pour une toute autre raison, pour analyser les visiteurs et dresser leur portrait. Une bonne piste, mais qui sert avant tout à créer un faux mystère sur l’action de l’entreprise qui ne semble pas pressée de rétablir le parc et de sauver ses occupants, et à creuser la voie déjà vue trop de fois de l’immortalité. On aurait pu imaginer des pistes bien plus riches pour dénoncer la corruption de notre société actuelle face aux publicités et réseaux sociaux, plutôt que de rejouer pour la millième fois la carte du savant fou et des riches qui ne veulent pas mourir. De la même manière, le rôle de Ford tué à la fin de la première saison est mal géré, on pouvait s’attendre à une réflexion sur son implication dans les événements dans le cadre de son ultime scénario, plutôt que d’en faire un spectre venu diffuser sa bonne parole et introduire quelques twists dans l’histoire. C’est aussi le cas pour l’homme en noir, qui pourrait avoir un arc narratif intéressant avec l’apparition de sa fille, mais qui se contente de tomber dans la caricature de son propre personnage.
+
+<img src="https://voiretmanger.fr/wp-content/uploads/2016/12/westworld-thandie-newton-rodrigo-santoro.jpg" alt="" width="3300" height="2200" class="aligncenter size-full wp-image-20392" />
+
+Jonathan Nolan et Lisa Joy cèdent à la facilité en orchestrant des dizaines de séquences de combat, ce que n’importe quelle production hollywoodienne parvient très bien à faire. En agissant ainsi, ils n’ont pas besoin de trouver de nouvelles idées aussi brillantes que dans la première saison et ils peuvent tenir la distance sur dix épisodes d’une heure. Mais en même temps, ils perdent toute l’originalité de *Westworld* et transforment cette série prometteuse en récit de science-fiction bien trop banal. Et que dire de ces autres parcs que l’on découvre un petit peu facilement dans cette saison et qui ne servent qu’à enchaîner des clichés sur différentes cultures ? Le principe même des parcs soit de recréer des périodes à partir de clichés, certes, mais le scénario n’avait pas besoin de se contenter des clichés, surtout maintenant que les robots sont censés être plus indépendants. À quoi bon évoquer le Japon, l’Inde coloniale ou les Indiens d’Amérique si c’est pour ne rien en faire à l’arrivée ? Plusieurs épisodes ne font pas du tout avancer l’intrigue principale et se concentrent au contraire sur un fil narratif secondaire, ce qui n’est pas gênant en soi, mais c’est mal dosé ici. Quand arrive le dixième épisode, on a déjà pas mal perdu d’intérêt pour cet univers pourtant si fascinant. Et ce dixième épisode, long comme un film indépendant, est encore pire que les neuf précédents, il part dans tous les sens et complique tout inutilement pour mieux masquer son manque d’idées et d’ambitions. Sans parler des multiples incohérences, que ce soit avec Maeve qui utilise son pouvoir spécial quand elle y pense et surtout quand cela arrange le scénario, ou Dolores qui prend des décisions totalement incohérentes par rapport à son personnage. 
+
+<img src="https://voiretmanger.fr/wp-content/uploads/2016/12/westworld-2.jpg" alt="" width="3300" height="2200" class="aligncenter size-full wp-image-20393" />
+
+Cette deuxième saison est une déception et on a le sentiment qu’une toute autre équipe a pris le relai, sans avoir connaissance de la vision d’ensemble. *Westworld* était originale, riche et pleine de promesse, elle est devenue prévisible et pauvre comme le premier blockbuster venu. Même l’excellente bande-originale basée sur des reprises de la première saison a disparu, sauf le temps d’une piqûre de rappel un peu cruelle à la toute fin et les nappes de violon extrêmement caricaturales qui ont pris le relai n’aident pas à faire passer la pilule. Est-ce qu’une troisième saison pourrait redresser la barre ? Cela paraît difficile après un tel gâchis, mais qui sait, peut-être que le monde réel fera du bien à la série. Autant dire que l’on n’est pas impatient de le découvrir, et c’est quand même bien dommage. 
+
+<div class="amazon" markdown="1">
+### Vous voulez [m'aider](https://voiretmanger.fr/soutien/) ?
+
+- [Acheter la série en Blu-Ray sur Amazon](https://amzn.to/2KWHmp9)
+- [Acheter la série en DVD sur Amazon](https://amzn.to/2zdYg0W)
+- [Acheter ou louer la série sur l'iTunes Store](https://itunes.apple.com/fr/tv-season/pilot/id1173812720?i=1178004050)
+- [Acheter la bande originale](https://itunes.apple.com/fr/album/westworld-season-1-music-from/id1182133569)
+</div>
+
+[^1]: La musique de *Game of Thrones*, c'était lui. Et Jonathan Nolan avait déjà travaillé avec lui sur celle de [*Person of Interest*](https://voiretmanger.fr/person-of-interest-nolan-cbs/).
+
+[^2]: Ces reprises évoquent une autre excellente série : [*The Leftovers*](https://voiretmanger.fr/leftovers-lindelof-perrotta-hbo/) mis en musique par Max Richter. Et tout particulièrement la reprise de [*Where is My Mind*](https://voiretmanger.fr/where-is-my-mind/) de Maxence Cyrin, une version entêtante.
