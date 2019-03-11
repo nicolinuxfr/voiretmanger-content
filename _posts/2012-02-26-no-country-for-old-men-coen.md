@@ -1,0 +1,42 @@
+---
+ID: 5850
+post_title: '<em>No Country for Old Men</em>, Joel et Ethan Coen'
+post_name: no-country-for-old-men-coen
+author: Nicolas
+post_date: 2012-02-26 18:46:41
+post_excerpt: "<em>No Country for Old Men</em> est en apparence un thriller teinté d'une touche de western. En apparence seulement car le douzième film des frères Coen est aussi et surtout l'histoire d'un vieil homme qui ne comprend plus son époque. Un film glaçant et brillant."
+layout: post
+link: >
+  https://voiretmanger.fr/no-country-for-old-men-coen/
+published: true
+tags:
+  - Drame
+  - Folie
+  - Serial-killer
+  - Thriller
+  - Violence
+  - Western
+categories:
+  - À voir
+---
+<p>Pour leur douzième film, les deux frères Coen choisissent pour la première fois d'adapter un livre. <em>No Country for Old Men</em> est ainsi basé sur <em>Non, ce pays n'est pas pour le vieil homme</em>, un roman de Cormac McCarthy. Joel et Ethan Coen n'en font pas moins un film très personnel où l'on retrouve des thèmes chers au duo. Le résultat est glaçant et bluffant : une vraie réussite, à (re)voir.</p>
+
+<div style="text-align: center;"><a href="http://www.allocine.fr/film/fichefilm_gen_cfilm=110096.html"><img class="aligncenter" style="border-style: initial; border-color: initial; border-image: initial; border-width: 0px;" src="https://voiretmanger.fr/wp-content/uploads/2012/02/no-country-for-old-men-coen.jpg" alt="No country for old men coen" width="690" height="989" border="0" /></a></div>
+<p>Alors qu'il chasse dans le désert du Texas, Llewelyn tombe par hasard sur une scène de massacre. Quelques camionnettes en plein désert et plusieurs cadavres : il comprend vite qu'un échange de drogue a mal tourné. La drogue est toujours sur place, mais il manque l'argent : Llewelyn part à sa recherche et ne tarde pas à le trouver à proximité du massacre. Deux millions de dollars en billets de 100 : un véritable magot qui va aussi lancer à ses trousses les Mexicains qui fournissaient la drogue et un terrifiant psychopathe qui vient chercher l'argent. Récupérer l'argent lui vaut d'être la cible d'une vaste course-poursuite qui échappe totalement au shérif du coin. Bell se sent dépassé par une époque trop violente qu'il ne comprend plus et il assiste, totalement impuissant, à un déchaînement de violence sanguinaire.</p>
+<p><em>No Country for Old Men</em> commence dans les paysages des westerns et ce genre restera toujours présent, même si le film s'en éloigne incontestablement. L'histoire ici peut se résumer à une course-poursuite assez complexe : tout le monde en veut à Llewelyn, autant les Mexicains qu'Anton Chigurh, psychopathe qui impressionne par sa seule présence. L'employeur d'Anton lance aussi dans le courant du film un autre tueur à gages à ses trousses, Anton ayant décidé de faire cavalier seul. En parallèle, le shérif Bell mène l'enquête et essaie de comprendre quelque chose à cette vaste affaire qui le dépasse. <em>No Country for Old Men</em> repose à l'origine sur un hasard : la découverte du massacre et de l'argent par un chasseur, avant les deux parties concernées. Une sorte de machine infernale se met ainsi en route et les frères Coen la déploient ensuite méthodiquement. Anton semble n'exister que pour tuer : armé d'un fusil conçu pour tuer le bétail et d'une simple bonbonne de gaz que beaucoup trop sous-estiment, il tue sans scrupule et avec une redoutable efficacité, mais pas toujours pour de bonnes raisons. Tous ceux qui se mettent en travers de son chemin sont menacés, et il épargne rarement, très rarement même, ses victimes. Face à lui, Llewelyn s'avère étonnamment résistant et il parvient à lui survivre à plusieurs reprises.</p>
+
+<div style="text-align: center;"><img class="aligncenter" style="border-style: initial; border-color: initial; border-image: initial; border-width: 0px;" src="https://voiretmanger.fr/wp-content/uploads/2012/02/coen-brolin-no-country-for-old-men.jpg" alt="Coen brolin no country for old men" width="690" height="388" border="0" /></div>
+<p>Cette course-poursuite tend <em>No Country for Old Men</em> vers le genre du thriller. En apparence au moins, Joel et Ethan Coen proposent un thriller dans une ambiance de western, mais le scénario conduit le spectateur vers une aire piste. Le thriller ne tient pas vraiment la route dans ce film : Llewelyn n'a vraiment aucune chance, ses opposants devinent toujours ses moindres faits et gestes, sans que l'on sache très bien pourquoi au juste. La fin, que l'on ne dévoilera pas, est en outre bien éloignée des enjeux du thriller. Le titre est en fait un indice essentiel pour bien comprendre <em>No Country for Old Men</em> : ce pays qui n'est pas pour les vieux hommes, c'est bien le Texas des années 1980 qui est présenté, et les vieux hommes sont ici représentés par le personnage du shérif Bell. Contrairement au roman de Cormac McCarthy, le personnage semble ici n'être que secondaire par sa place à l'écran, mais il s'agit en fait du héros du film. Les frères Coen ont astucieusement choisi de ne le faire apparaître qu'assez tard, après les autres personnages, mais le shérif prend de plus en plus d'importance au cours du film. Et pour cause, ce shérif désabusé qui se sent totalement exclu d'un monde qu'il ne parvient plus à comprendre est le personnage clé du film. L'intrigue du thriller n'est dès lors plus que secondaire : elle permet essentiellement de souligner l'incompréhension du vieil homme et sa lassitude face au monde. <em>No Country for Old Men</em> l'associe à un jeune shérif que l'on imagine encore motivé ; face à lui, Bell prend son temps, il a souvent le regard dans le vide, il refuse de participer à l'enquête et se contente de commenter tristement son époque.</p>
+<p>Sans surprise, <em>No Country for Old Men</em> est un film techniquement très travaillé et réussi. Joel et Ethan Coen mettent tout leur talent au service du film et proposent des plans souvent magnifiques dans les grandes plaines du Far West américain. En écho à son personnage principal, le film prend son temps et évite le rythme survolté d'un thriller traditionnel. Le récit est également marqué par les ellipses, ce qui n'est sans doute pas étranger au style du romancier à son origine : on pense à <em><a href="https://voiretmanger.fr/2009/03/08/la-route-cormac-mccarthy/">La Route</a></em> qui avait aussi cette habitude de se concentrer sur l'essentiel, mais de ne pas tout donner au lecteur. <em>No Country for Old Men</em> est une vraie réussite, le film le doit aussi à ses acteurs : Javier Bardem est vraiment impressionnant dans ce rôle de psychopathe serial-killer, à tel point que l'on a du mal par la suite à le dissocier de ce rôle. Les autres acteurs sont tous bons, mais Tommy Lee Jones est à nouveau exceptionnel dans le rôle du vieux shérif désabusé : il parvient à transmettre toute sa fatigue et son incompréhension par un simple timbre de voix.</p>
+
+<div style="text-align: center;"><img class="aligncenter" style="border-style: initial; border-color: initial; border-image: initial; border-width: 0px;" src="https://voiretmanger.fr/wp-content/uploads/2012/02/no-country-for-old-men-bardem.jpg" alt="No country for old men bardem" width="690" height="458" border="0" /></div>
+<p>Les frères Coen ont réussi à adapter un livre, sans sacrifier leur univers si particulier. Et pour cause, leur adaptation de <em>Non, ce pays n'est pas pour le vieil homme</em> de Cormac McCarthy n'est pas extrêmement fidèle comme avait pu l'être celle de John Hillcoat pour <em><a href="https://voiretmanger.fr/2009/12/05/la-route-hillcoat/">La Route</a></em>. S'éloigner légèrement du livre était sans doute nécessaire : <em>No Country for Old Men</em> est une réussite totale, un film terrifiant et prenant qui reste longtemps en mémoire.</p>
+
+<div class="amazon">
+<h3>Vous voulez m'aider ?</h3>
+<ul>
+	<li><a href="http://www.amazon.fr/gp/product/B001B16PHY/ref=as_li_ss_tl?ie=UTF8&amp;tag=leblogdenic07-21&amp;linkCode=as2&amp;camp=1642&amp;creative=19458&amp;creativeASIN=B001B16PHY">Acheter le film en Blu-Ray sur Amazon</a></li>
+	<li><a href="http://www.amazon.fr/gp/product/B001B0LYW6/ref=as_li_ss_tl?ie=UTF8&amp;tag=leblogdenic07-21&amp;linkCode=as2&amp;camp=1642&amp;creative=19458&amp;creativeASIN=B001B0LYW6">Acheter le film en DVD sur Amazon</a></li>
+	<li><a href="https://itunes.apple.com/fr/movie/no-country-for-old-men-vost/id388083125">Acheter ou louer le film sur l'iTunes Store</a></li>
+</ul>
+</div>
