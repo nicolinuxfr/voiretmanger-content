@@ -1,0 +1,38 @@
+---
+ID: 7085
+post_title: Le Sapori e Colori à Lyon
+post_name: sapori-colori-lyon
+author: Nicolas
+post_date: 2012-07-17 23:31:44
+post_excerpt: >
+  Vous aimez les pâtes italiennes ?
+  Découvrez sans plus attendre le Sapori
+  e Colori, une excellente adresse dans le
+  troisième arrondissement lyonnais !
+layout: post
+link: >
+  https://voiretmanger.fr/sapori-colori-lyon/
+published: true
+tags:
+  - Cuisine italienne
+  - Pâtes
+categories:
+  - À manger
+---
+<p>Le <a href="http://www.lyonresto.com/restaurant-Lyon/restaurant-Sapori-e-Colori-Lyon/restaurant-Sapori-e-Colori-Lyon-1024.html"><strong>Sapori e Colori</strong></a> annonce la couleur dès le départ : le nom de cette adresse située au cœur du troisième arrondissement lyonnais aurait du mal à cacher son origine italienne. Ce restaurant n'a pas choisi le meilleur des quartiers à Lyon et la présence d'une ancienne pizzeria surmontée d'un immeuble à l'abandon n'inspire rien qui vaille. Vous auriez pourtant tort de ne pas franchir le pas de la porte, tant cette adresse italienne vaut le détour…</p>
+
+<div style="text-align: center;"><img class="aligncenter" title="lyon-sapori-colori-salle.JPG" src="https://voiretmanger.fr/wp-content/uploads/2012/07/lyon-sapori-colori-salle.jpg" alt="Lyon sapori colori salle" width="100%" /></div>
+<p>La salle tranche avec le cadre extérieur. Rénovée il y a un an, elle fait dans la sobriété et fait la part belle à l'espace. Vous ne serez jamais tassés contre vos voisins au <strong>Sapori e Colori</strong>, les tables sont suffisamment espacées pour préserver l'intimité, un bon point. Les volumes sont importants, mais le lieu ne fait pas hangar vide. La sonorisation est bonne et le grand bar au fond de la salle ajoute un peu de chaleur à l'ensemble qui s'avère ainsi simple, mais efficace. L'été, le patron installe quelques tables devant, sur le trottoir. Quand la température n'est pas trop élevée comme c'était le cas ce soir-là, c'est plutôt agréable, à condition d'accepter la rue de Créqui qui reste malgré tout assez passante. Le public est varié, mais les couples nombreux… il faut croire que la cuisine italienne attire toujours autant les amoureux.</p>
+
+<div style="text-align: center;"><img class="aligncenter" title="sapori-colori-antipasti.JPG" src="https://voiretmanger.fr/wp-content/uploads/2012/07/sapori-colori-antipasti.jpg" alt="Sapori colori antipasti" width="100%" /></div>
+<p>De cuisine italienne, il en est justement question au <strong>Sapori e Colori</strong>, et même que de cuisine italienne. La carte est assez resserrée puisqu'il suffit de deux pages pour rassembler toutes les entrées, les plats et les desserts du restaurant. Trois menus complètent le tableau, deux avec entrée, plat et dessert où seul le prix du plat varie et un autre spécial qui n'est servi qu'à la table entière et qui consiste en une découverte de la cuisine italienne. Dans ce dernier cas, pour une quarantaine d'euros par convive, vous pourrez vous laisser porter par le chef italien : le nombre de plats n'est pas précisé, mais si l'on en croit les avis glanés sur Internet, il faut avoir bon appétit. Les menus permettent de s'en tirer pour un peu moins de 30 €, ce qui reste raisonnable surtout au vu de la qualité proposée. Les amateurs accompagneront ce repas italien d'un vin… lui aussi italien. Si la carte des plats est assez resserrée, celle des vins est beaucoup plus étendue et elle n'est composée que de vins transalpins. Il y en a pour tous les goûts et pour tous les budgets, n'hésitez pas à demander conseil en fonction de vos choix. Nous nous en sommes tirés pour une bouteille de Lacrimoso à une trentaine d'euros qui correspondait parfaitement à nos plats.</p>
+
+<div style="text-align: center;"><img class="aligncenter" title="sapori-colori-raviolis.JPG" src="https://voiretmanger.fr/wp-content/uploads/2012/07/sapori-colori-raviolis.jpg" alt="Sapori colori raviolis" width="100%" /></div>
+<p>Ne demandez pas une pizza, vous fâcheriez le patron du <strong>Sapori e Colori</strong>. Le restaurant a fait le choix osé, mais bienvenu, de ne mettre aucune pizza à sa carte et de faire la part belle aux pâtes. Dans le lot, on repère les incontournables lasagnes, mais aussi quelques propositions plus originales. La truffe est à l'honneur, à la fois la truffe noire classique et la <a href="http://fr.wikipedia.org/wiki/Truffe_blanche">truffe blanche d'Alba</a>, la variété plus chère et la plus réputée de cet étrange champignon. Les raviolis au parmesan et à la truffe blanche étaient particulièrement succulents, ils étaient bien gros pour faire la part belle à leur farce excellente et toute en finesse. C'était vraiment une réussite, bien loin des pâtes fraiches que l'on peut trouver en supermarché et on regretterait presque de ne pas en avoir une ou deux de plus dans l'assiette, par gourmandise. Les autres plats de pâtes sont tout aussi bons, à l'image des spaghettis à l'encre de seiche servis avec de tendres et épais morceaux de saint-jacques.</p>
+
+<div style="text-align: center;"><img class="aligncenter" title="spaghetti-negro-sapori-colori.JPG" src="https://voiretmanger.fr/wp-content/uploads/2012/07/spaghetti-negro-sapori-colori.jpg" alt="Spaghetti negro sapori colori" width="100%" /></div>
+<p>Les pâtes sont clairement mises à l'honneur au <strong>Sapori e Colori</strong>, si bien que le reste de la carte est un peu décevant. En entrée, le millefeuille composé de tuiles de parmesan et de jambon sec était joliment présenté et très bon, surtout accompagné de la réduction de vinaigre de truffes, mais c'était un plat plus classique, quoique bien réalisé. Les desserts n'étaient pas à la hauteur de nos attentes : le tiramisu, incontournable de la gastronomie italienne, était fade par manque de liqueur de café et sec à cause du déséquilibre entre mascarpone et biscuit. Le tiramisu aux spéculoos était bien meilleur, mais bizarrement servi dans ce tout petit verre qui limitait sérieusement le plaisir de la dégustation — cette taille aurait plutôt convenu à un café gourmand qu'à un dessert complet.</p>
+
+
+<div style="text-align:center;"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2012/07/tiramisu-sapori-colori1.jpg" alt="Tiramisu sapori colori" title="tiramisu-sapori-colori.JPG" width="100%" /></div>
+<p>Si vous aimez la cuisine italienne et tout particulièrement ses pâtes, découvrez sans attendre le <strong>Sapori e Colori</strong>. Certes, le cadre n'est pas le plus réussi, mais vous payez ici pour ce qu'il y a dans l'assiette. Justement, les pâtes proposées par le chef italien sont un délice, tout simplement. Les saveurs explosent dans la bouche, c'est un régal tout en finesse, avec des produits assez rares. Si vous n'avez pas trop faim, un plat de pâtes suffira amplement : les entrées et les desserts ne sont pas à leur hauteur…</p>
