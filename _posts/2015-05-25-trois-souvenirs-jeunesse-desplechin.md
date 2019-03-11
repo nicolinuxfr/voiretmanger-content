@@ -1,0 +1,36 @@
+---
+ID: 13773
+post_title: '<em>Trois souvenirs de ma jeunesse</em>, Arnaud Depleschin'
+post_name: trois-souvenirs-jeunesse-desplechin
+author: Nicolas
+post_date: 2015-05-25 21:11:32
+layout: post
+link: >
+  https://voiretmanger.fr/trois-souvenirs-jeunesse-desplechin/
+published: true
+tags:
+  - Adolescence
+  - Amour
+  - Enfance
+  - Famille
+  - Mémoire
+  - Sorties du moment
+  - Vie
+categories:
+  - À voir
+---
+Le titre du dernier long-métrage d'Arnaud Desplechin, *Trois souvenirs de ma jeunesse*, a le mérite de la clarté. Ne s'arrêtant pas en si bon chemin, le réalisateur a aussi choisi de structurer son film par une série d'intertitres qui découpe très clairement chaque souvenir. On a ainsi trois évocations de la jeunesse de Paul Dédalus, personnage récurrent du cinéaste[^1], mais cette construction interne très ferme n'est pas vraiment justifiée par un scénario qui se contente de rester assez flou. Chaque séquence n'est, ainsi, pas liée à l'autre et alors même que l'on avait le sentiment d'avoir une œuvre parfaitement cohérente, Arnaud Desplechin nous perd un petit peu en donnant les trois souvenirs sans les justifier. Qu'importe, *Trois souvenirs de ma jeunesse* est un film passionnant, tout en finesse, une réussite.
+
+<a href="http://www.allocine.fr/film/fichefilm_gen_cfilm=235084.html"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2015/05/trois-souvenirs-jeunesse-desplechin.jpg" alt="Trois souvenirs jeunesse desplechin" title="trois-souvenirs-jeunesse-desplechin.jpg" width="1771" height="2406" /></a>
+
+On découvre tout d'abord le Paul du présent. Il prépare ses affaires et s'apprête à quitter le Tadjikistan où il a séjourné pendant plusieurs années. Mais cette actualité n'est pas le sujet du dernier film d'Arnaud Desplechin, constitué presque uniquement de flashbacks. Ce retour vers la France, son pays qu'il n'a pas vu depuis une dizaine d'années, déclenche un souvenir de jeunesse, un retour au cœur de l'enfance. Le premier segment de *Trois souvenirs de ma jeunesse* se déroule ainsi à Roubaix, au début des années 1980. Paul a une dizaine d'années et on sent d'emblée que ce garçon débrouillard n'est pas un enfant comme les autres. La première scène de ce souvenir se déroule dans la maison familiale, le père parti pour ses affaires, les trois enfants qui restent et supportent la folie de la mère. Paul tient un couteau pour protéger son frère et sa sœur et on croit d'abord qu'ils jouent, mais non : il est bien là, seul, à se défendre contre une femme que l'on imagine dangereuse. En un seul plan, Arnaud Desplechin révèle un pan important de son personnage et on ressent très bien, déjà, la solitude de Paul. La suite du segment présente son départ de la cellule familiale, quand il va se réfugier chez une tante des environs. Retour au présent et cette fois, *Trois souvenirs de ma jeunesse* propose une transition logique : Paul est arrêté à la frontière française, car un autre Paul Dédalus est mort en Australie. Le personnage, incarné dans ce présent par un Mathieu Amalric toujours aussi bon acteur, explique ainsi la raison, qui correspond au deuxième souvenir. Cette fois, on retrouve Paul âgé de seize ans, lors d'un voyage scolaire en URSS. Il accompagne en fait un ami juif qui a pour mission de donner argent et papier à des réfugiés locaux qui veulent partir pour Israël. C'est à cette occasion que le jeune homme donne son passeport à un autre jeune, qui devient un deuxième Paul Dédalus : le souvenir se termine ainsi assez rapidement.
+
+<img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2015/05/trois-souvenirs-jeunesse-mathieu-amalric.jpg" alt="Trois souvenirs jeunesse mathieu amalric" title="trois-souvenirs-jeunesse-mathieu-amalric.jpg" width="2100" height="1400" />
+
+À ce stade, le spectateur est circonspect : *Trois souvenirs de ma jeunesse* nous a promis trois parties et les deux premières ont été expédiées très rapidement, trop pour tenir les deux heures annoncées par le long-métrage. De fait, le troisième souvenir est le plus important et c'est presque un film à l'intérieur du film. C'est aussi un souvenir qui n'a pas vraiment de raison d'être, qui est amené sans justification, alors même que c'est le plus important des trois. Il faut accepter cette bizarrerie et se laisser porter, car c'est aussi le souvenir qui est le plus intéressant et réussi. On retrouve donc Paul, quelques années après son voyage en URSS. Désormais étudiant sans le sous à Paris, il revient régulièrement à Roubaix voir son frère et sa sœur, mais éviter son père détruit depuis le suicide de sa femme. Arnaud Desplechin présente Paul et ses amis, une bande de jeunes qui aime faire la fête et qui commence à fréquenter pour la première fois des filles. Ce souvenir tout en entier est centré autour d'Esther, une fille que Paul rencontre à la sortie du lycée de sa sœur. Commence alors une histoire d'amour de dix ans, mais une histoire très compliquée, à cause de la distance et du caractère de l'un et de l'autre. Dans ce segment, *Trois souvenirs de ma jeunesse* trouve le ton juste pour présenter des personnages complexes, et surtout Paul, un jeune homme qui a du mal à concrétiser ses sentiments. Il essaie d'atteindre une forme de perfection morale, mais son histoire a des allures de drame dès le départ et ce couple semble impossible. Quoi qu'il en soit, le réalisateur trouve le ton juste pour évoquer cette histoire touchante, et il pouvait compter sur ses jeunes acteurs. Lou Roy Lecollinet est très bien dans le rôle d'Esther, mais on retiendra surtout le nom de Quentin Dolmaire. Ce jeune acteur n'avait jamais tourné au cinéma, et pourtant il fait déjà preuve d'une grande maturité, avec un jeu naturellement calqué sur celui de Mathieu Amalric. Les deux acteurs ne se ressemblent pas beaucoup physiquement, mais on a l'impression de voir le même interprète d'un bout à l'autre, c'est troublant. Il convient aussi de saluer l'encore plus jeune Antoine Bui qui incarne le Paul d'une dizaine d'années et qui, lui aussi, a bien réussi à représenter son personnage.
+
+<img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2015/05/trois-souvenirs-jeunesse-quentin-dolmaire.jpg" alt="Trois souvenirs jeunesse quentin dolmaire" title="trois-souvenirs-jeunesse-quentin-dolmaire.JPG" width="2100" height="1400" />
+
+Comme souvent, *Trois souvenirs de ma jeunesse* n'est pas un film que l'on peut classer facilement. Arnaud Desplechin poursuit sa voie à part dans le cinéma, avec un film d'auteur fascinant. Ne soyez pas effrayés par le synopsis ou le sujet, le dernier long-métrage du réalisateur est très plaisant à regarder et l'histoire d'amour entre Paul et Esther est très touchante, et en même temps assez terrible. La vraie réussite, c'est sans conteste le personnage de Paul Dédalus, d'une complexité folle et parfaitement incarné par Mathieu Amalric, mais aussi par Quentin Dolmaire. 
+
+[^1]: D'ailleurs, *Trois souvenirs de ma jeunesse* est une préquelle à *Comment je me suis disputé… (ma vie sexuelle)*, deuxième réalisation d'Arnaud Desplechin sortie en 1996 où l'on retrouvait aussi le personnage de Paul Dédalus.
