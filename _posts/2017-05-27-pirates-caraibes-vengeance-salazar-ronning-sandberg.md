@@ -1,0 +1,50 @@
+---
+ID: 18096
+post_title: '<em>Pirates des Caraïbes : La Vengeance de Salazar</em>, Joachim Rønning et Espen Sandberg'
+post_name: >
+  pirates-caraibes-vengeance-salazar-ronning-sandberg
+author: Nicolas
+post_date: 2017-05-27 16:24:18
+layout: post
+link: >
+  https://voiretmanger.fr/pirates-caraibes-vengeance-salazar-ronning-sandberg/
+published: true
+tags:
+  - Action
+  - Amour
+  - Bateau
+  - Blockbuster
+  - Famille
+  - Fantastique
+  - Humour
+  - Pirates
+  - Sorties du moment
+  - Vite oublié
+categories:
+  - À voir
+---
+Créée à partir d’une attraction, la [saga *Pirates des Caraïbes*](https://voiretmanger.fr/saga/pirates-des-caraibes/) s’était imposée avec un mélange très réussi d’action spectaculaire, de film de pirates à l’ancienne et une bonne dose d’humour. Le premier volet était un exemple d’équilibre, les deux suivants forment un diptyque qui tombe parfois dans l’excès tout en restant très convaincant, mais les producteurs ont alors essayé de concentrer la « recette du succès » pour relancer la saga dans une nouvelle direction. [*Pirates des Caraïbes : La Fontaine de Jouvence*](https://voiretmanger.fr/pirates-caraibes-fontaine-jouvence-marshall/) a été un désastre complet, notamment parce que le film perdait de vue qu’il s’agissait de pirates et des caraïbes, un comble. Six ans après, Disney revient à la charge avec deux nouveaux réalisateurs norvégiens qui se sont surtout faits connaître pour *Bandidas* et surtout la promesse de revenir à l’esprit de [*La malédiction du Black Pearl*](https://voiretmanger.fr/pirates-caraibes-malediction-black-pearl-verbinski/). Joachim Rønning et Espen Sandberg restaurent les bateaux, le rhum et l’esprit des Caraïbes, c’est déjà ça, mais si *Pirates des Caraïbes : La Vengeance de Salazar* est divertissant, il manque cruellement d’imagination et il essaie trop de reproduire le succès de ses prédécesseurs au point de finir en caricature. La saga mériterait probablement d’être laissée en paix, mais en attendant, c’est un blockbuster spectaculaire qui peut servir d’excuse pour se protéger de la chaleur estivale. 
+
+<a href="https://fr.wikipedia.org/wiki/Pirates_des_Caraïbes_:_La_Vengeance_de_Salazar"><img src="https://voiretmanger.fr/wp-content/uploads/2017/05/pirates-caraibes-vengeance-salazar-ronning-sandberg.jpg" alt="" width="2500" height="3405" class="aligncenter size-full wp-image-18097" /></a>
+
+On sent que les critiques à l’encontre du précédent volet ont été entendues par les scénaristes. L’ouverture de *Pirates des Caraïbes : La Vengeance de Salazar* est comme une déclaration d’intention, la reconnaissance que l’on est dans les eaux troubles de la piraterie caribéenne. Deux scènes avant d’annoncer le titre du film et on ne parle que de pirates, de canonnades et de mythes et légendes des fonds marins. Même si Hans Zimmer n’est plus directement aux commandes, c’est l’un de ses multiples protégés qui a repris le flambeau et la bande-originale composée par Geoff Zanelli exploite largement les tonalités des trois premiers épisodes. Ainsi, dans l’une de ces premières scènes, un vaisseau pirate est pris en chasse par un navire de l’armée britannique, les coups de canons pleuvent et la mélodie principale de *Pirates des Caraïbes* se fait entendre : en quelques images déjà, Joachim Rønning et Espen Sandberg signalent qu’ils ont bien compris l’héritage dont ils avaient hérité. De fait, de la musique à la photographie qui a repris les tons verdâtres des débuts, tout respire la saga lancée par Gore Verbinski et on retrouve bien l’ambiance des lieux. L’intrigue principale est posée petit à petit et elle est dans la ligne droite de la fin de [*Pirates des Caraïbes : Jusqu’au Bout du Monde*](https://voiretmanger.fr/pirates-caraibes-bout-monde-verbinski/) et en particulier le fait que Will Turner se retrouve sur le *Hollandais Volant*, obligé de faire le lien entre le monde des vivants et celui des morts. Ici, c’est son fils qui prend la relève et qui essaie de trouver le trident de Poséidon pour libérer son père de la malédiction. Bientôt, tout le monde se met à chercher ce nouvel artefact dans la mythologie de la saga et on retrouve d’ailleurs des têtes connues : Jack Sparrow est naturellement là, mais aussi Barbossa. Et quand ce ne sont pas des têtes connues, on a des successeurs aux figures des trois premiers films, avec un clone de Beckett et un nouvel ennemi pirate, cette fois le capitaine fantôme Salazar. Un capitaine mort-vivant qui, encore une fois, a une dent contre Jack Sparrow, ça vous rappelle quelque chose ? Ajoutons à cela une romance qui se met en place doucement avec un clone d’Orlando Bloom (Brendon Thwaites incarne son fils, mais c’est dingue comme il ressemble à son faux père), une ouverture avec un enfant[^1], un passage en prison puis sur la potence et une avalanche de lieux et de gags connus et vous obtenez un film avec un air de déjà-vu.
+
+<img src="https://voiretmanger.fr/wp-content/uploads/2017/05/pirates-caraibes-revanche-salazar-johnny-depp-brendon-thwaites.jpg" alt="" width="3300" height="2200" class="aligncenter size-full wp-image-18101" />
+
+C’est le principal problème de cette suite, elle manque vraiment d’idées nouvelles et se contente de formules qui ont déjà marché par le passé. On n’est jamais surpris par *Pirates des Caraïbes : La Vengeance de Salazar* comme on a pu l’être par le passé, l’intrigue principale à base de fantastique manque d’originalité et même si les effets spéciaux ont fait beaucoup de progrès ces dernières années, ils ne permettent pas d’effacer la lassitude qui nous gagne. Par exemple, les fantômes de Salazar sont techniquement assez bluffants et c’est une belle idée après les squelettes du premier film ou les créatures marines autour de Davy Jones. Mais en même temps, ce sont encore une fois des morts-vivants condamnés par une malédiction, il était peut-être temps de trouver autre chose. De la même manière, l’histoire implique un Jack Sparrow sans vaisseau ni équipage à deux doigts de mourir à cause de la justice britannique et on pourrait encore ainsi multiplier les exemples. Joachim Rønning et Espen Sandberg ont sans doute eu peur de s’éloigner de l’esprit de la saga et c’est tout à leur honneur, mais malheureusement, ils ont oublié au passage d’innover… ou plus certainement, Disney leur a interdit tout écart d’un scénario assez banal et sur des rails. Le soucis toutefois, c’est que *Pirates des Caraïbes : La Vengeance de Salazar* ressemble à un clone mal digéré du travail de Gore Verbinski. On retrouve la même ambiance, les mêmes décors et le même état d’esprit, mais ce n’est jamais tout à fait la même chose. Si vous (re)voyez *Pirates des Caraïbes : La malédiction du Black Pearl* avant celui-ci, l’écart vous sautera aux yeux. Tout est là, mais tout sonne faux, comme une copie de moins bonne qualité. C’est le cas pour beaucoup de choses, mais c’est tout particulièrement visible pour Jack Sparrow, ce pirate trouillard et charismatique qui a tant apporté à la saga. Le personnage imaginé par Johnny Depp était au départ secondaire, mais il est toujours davantage au cœur de l’intrigue et de tout. Malheureusement, l’acteur refuse de vieillir et de changer et il s’accroche désespérément au personnage qu’il a créé au départ, tombant dans la caricature au lieu de se réinventer. Résultat, le pirate ne vieillit plus avec ses cheveux blonds et surtout ses rides effacées par la magie du cinéma[^2], et il cabotine comme une caricature facile de la première version de son personnage. Tout sonne faux, c’est attendu et pas très drôle et il manque un réalisateur capable de dire non et de diriger cet acteur en roue libre.
+
+<img src="https://voiretmanger.fr/wp-content/uploads/2017/05/pirates-caraibes-vengeance-salazar-johnny-depp-kaya-scodelario.jpg" alt="" width="3300" height="2200" class="aligncenter size-full wp-image-18100" />
+
+*Pirates des Caraïbes : La Vengeance de Salazar* est une suite paresseuse qui compte essentiellement sur le succès de ses prédécesseurs pour plaire. Joachim Rønning et Espen Sandberg respectent assez bien l’esprit de *Pirates des Caraïbes*, mais ils n’ont pas compris ce qui en faisait la réussite. Ils font beaucoup d’effort pour rassembler ce qu’ils considèrent comme étant le meilleur de la série, mais cet effort se voit trop à l’écran et du coup, cela ne fonctionne plus. Au fond, c’est comme pour le personnage de Jack Sparrow : le pirate de Johnny Depp était drôle et sympathique parce qu’il cherchait à fuir de situations impossibles et qu’il s’en sortait un peu par hasard, pas parce qu’il faisait des mimiques et commentaires sarcastiques en permanence. *Pirates des Caraïbes : La Vengeance de Salazar* n’est là que pour exploiter une licence juteuse et c’est bien dommage, la série mériterait mieux ou d’en rester là. 
+
+<div class="amazon" markdown="1">
+### Vous voulez [m'aider](https://voiretmanger.fr/soutien/) ?
+
+- [Acheter le film en Blu-ray sur Amazon](http://amzn.to/2CzgqY8)
+- [Acheter le film en DVD sur Amazon](http://amzn.to/2CKoZ6C)
+- [Acheter ou louer le film sur l'iTunes Store](https://itunes.apple.com/fr/movie/pirates-des-caraïbes-la-vengeance-de-salazar/id1234720229)
+</div>
+
+[^1]: C’est la troisième fois dans la saga que l’ouverture sombre avec un enfant est utilisée, c’est un peu beaucoup. Cela étant, cette première scène est sympathique et c’est une bonne manière de réintroduire le personnage de Will et surtout le navire de Davy Jones. 
+
+[^2]: On ne dirait pas comme ça, mais [cet homme](https://voiretmanger.fr/wp-content/uploads/2017/05/REF_DG0360_R.jpg) a plus de cinquante ans. Son visage a été lissé numériquement, mais le travail a été fait à la truelle et cela se voit. C’est dommage, le temps devrait laisser des marques sur ce personnage et en plus, on voit une version [rajeunie encore plus](https://voiretmanger.fr/wp-content/uploads/2017/05/REF_FB0340_R.jpg) pour montrer les origines du pirate. Ce qui, au passage, contredit ce que l’on savait de Jack Sparrow, mais c’est encore une autre histoire.
