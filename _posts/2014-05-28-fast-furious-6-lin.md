@@ -1,0 +1,35 @@
+---
+ID: 11665
+post_title: '<em>Fast and Furious 6</em>, Justin Lin'
+post_name: fast-furious-6-lin
+author: Nicolas
+post_date: 2014-05-28 23:36:24
+layout: post
+link: >
+  https://voiretmanger.fr/fast-furious-6-lin/
+published: true
+tags:
+  - Action
+  - Blockbuster
+  - Vite oublié
+  - Voiture
+categories:
+  - À voir
+---
+Une autoroute, quelque part — à ce niveau, ce n’est absolument pas cela qui compte. Une poignée de bolides, des classiques américaines au moteur vrombissant, naturellement, poursuivent un gros camion. Les poursuivants tendent un câble extrêmement solide au milieu de l’autoroute pour les arrêter. Suffisant ? Partout ailleurs, oui, mais pas dans *Fast and Furious 6*. Le camion est éventré, peut-être, mais c’est alors un tank qui en sort et qui participe à la course-poursuite à plus de 150 km/h. Une piste de décollage, la plus longue piste du monde même — il faudrait faire le calcul, mais on est sûrement aux alentours de 100 km de longueur. Nouvelle course-poursuite, d’abord entre bolides, jusqu’au moment où un avion s’en mêle. Il atterrit devant les voitures, l’une monte, les autres font tout pour l’empêcher de décoller, quitte à lancer un câble depuis une petite voiture citadine pour bloquer le fonctionnement de l’avion. Deux scènes aussi stupides qu’époustouflantes : rien n’est réaliste, rien n’est crédible même, mais *Fast and Furious 6* va plus loin encore que ses prédécesseurs et il faut bien reconnaître que ça pète. 
+
+<div style="text-align:center;"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2014/05/fast-and-furious-6-lin.jpg" alt="Fast and furious 6 lin" title="fast-and-furious-6-lin.jpg" width="1000" height="1481" /></div>
+
+Malheureusement, Justin Lin a la mauvaise idée d’avoir des prétentions. Si *Fast and Furious 6* se résumait à ces deux scènes explosives, plus quelques courses-poursuites secondaires qui sont parfaitement maîtrisées, on aurait un film d’action décérébré, mais qui assumerait sa stupidité et pourrait ainsi être très fun. C’est tellement gros, que cela en devient comique et, à la manière des [*Expendables*](https://voiretmanger.fr/saga/expendables/), on pourrait même trouver cela assez drôle. Malheureusement (bis), il a fallu absolument enrichir le film avec un scénario qui, pire encore, se veut sérieux. Et envoyez les clichés à base de retour à la vie normale et de retraite interrompue par l’ancien méchant flic, devenu gentil ici. Rassemblez l’équipe habituelle, avec son quota de femmes, de noirs et d’asiatiques. Regroupez les voitures les plus bruyantes et faites les rouler très vite, en particulier de nuit et en ville. Tous les clichés sont réunis et après tout, c’est bien normal, ils sont à la base de la saga. Fallait-il vraiment essayer d’imaginer une histoire autour de l’ancienne copine de l’un qui était censée être morte, mais qui a perdu la mémoire ? Devait-on vraiment s’encombrer des délires d’un méchant qui veut plonger le pays dans le chaos, mais qui fait tout pour être pris ?
+
+https://www.youtube.com/watch?v=hrjGQh40EWY
+
+C’est le souci de *Fast and Furious 6*, le même que pour [son prédécesseur](https://voiretmanger.fr/fast-and-furious-5-lin/) : il n’assume pas assez son côté débile et au lieu de se contenter de scènes spectaculaires, il nous assomme avec un scénario invraisemblable et sans intérêt. Résultat, le film est trop long (2h10) et on s’ennuie ferme assez souvent. Le mieux, en attendant un septième volet qui, on peut l’espérer, ira encore plus loin, c’est encore de se contenter de la scène du tank et celle de l’avion. On voit le meilleur du film, et on gagne pas mal de temps…
+
+<div class="amazon" markdown="1">
+### Vous voulez [m’aider](https://voiretmanger.fr/soutien/) ?
+
+- [Acheter le film en Blu-ray et DVD sur Amazon](http://www.amazon.fr/gp/product/B00CXLKI4C/ref=as_li_ss_tl?ie=UTF8&tag=leblogdenic07-21&linkCode=as2&camp=1642&creative=19458&creativeASIN=B00CXLKI4C)
+- [Acheter le film en DVD sur Amazon](http://www.amazon.fr/gp/product/B00CXLKHNO/ref=as_li_ss_tl?ie=UTF8&tag=leblogdenic07-21&linkCode=as2&camp=1642&creative=19458&creativeASIN=B00CXLKHNO)
+- [Acheter ou louer le film sur l’iTunes Store](https://itunes.apple.com/fr/movie/fast-furious-6/id664571799)
+</div>
