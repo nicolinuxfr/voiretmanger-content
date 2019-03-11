@@ -1,0 +1,43 @@
+---
+ID: 3042
+post_title: '<em>Bad Lieutenant : Escale à La Nouvelle-Orléans</em>, Werner Herzog'
+post_name: >
+  bad-lieutenant-escale-nouvelle-orleans-herzog
+author: Nicolas
+post_date: 2010-03-20 23:34:12
+post_excerpt: "Werner Herzog propose, avec son Bad Lieutenant en ballade à la Nouvelle-Orléans, un polar où le crime n'intéresse personne, un héros drogué et aussi délirant que le film lui-même. Intéressant, mais pas forcément très passionnant."
+layout: post
+link: >
+  https://voiretmanger.fr/bad-lieutenant-escale-nouvelle-orleans-herzog/
+published: true
+tags:
+  - Drogue
+  - Société
+  - Thriller
+  - Violence
+  - Vite oublié
+categories:
+  - À voir
+---
+<p>Voilà un film intriguant. Propulsé en tête des sorties de la semaine, sans doute en raison de la présence de Nicolas Cage et Eva Mendes sur l'affiche, <em>Bad Lieutenant : Escale à La Nouvelle-Orléans</em> est finalement tout sauf un film grand public. Ce qui est présenté par Werner Herzog ni comme une suite, ni comme un remake d'un film éponyme sorti en 1992 est un film qui, comme son héros, est défoncé de bout en bout. Pas inintéressant, mais pas vraiment passionnant.</p>
+
+<a href="http://www.allocine.fr/film/fichefilm_gen_cfilm=136311.html"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2010/03/bad-lieutenant-nouvelle-orleans-herzog.jpg" border="0" alt="bad-lieutenant-nouvelle-orleans-herzog.jpg" width="690" height="920" /></a>
+
+<p>Au départ, un crime banal, même si terrible par l'ampleur. Dans La Nouvelle-Orléans ravagée par Katrina, une famille entière de Sénégalais en situation irrégulière est retrouvée morte, assassinée à son domicile. Ce crime sent mauvais et les policiers pensent très vite à un règlement de compte mafieux. La drogue est au cœur de l'intrigue policière, mais aussi du film tout entier et de la vie de son héros. La résolution policière importe peu, de toute façon on sait tout très vite, on connaît quasiment immédiatement l'auteur du crime, ou plutôt son commanditaire et le tout est de savoir comment le coffrer. Le héros, le mauvais lieutenant du titre, n'en a strictement rien à faire, comme il l'exprime très clairement au criminel. Depuis un accident qui la contraint à prendre de puissants médicaments contre la douleur pour le reste de sa vie, il est complètement drogué, en permanence sous l'emprise de tous les stupéfiants qu'il peut trouver. Quitte à abuser de sa position pour en trouver : il prend ainsi un malin plaisir à arrêter des jeunes ou des dealers pour leur prendre leur drogue et l'utiliser lui-même.</p>
+<p><em>Bad Lieutenant</em> est ainsi doté du titre sans doute le plus premier degré qui soit. Son héros est un lieutenant mauvais parce qu'il utilise ses pouvoirs pour se droguer. Le film ne montre finalement que cela, ce lieutenant allant jusqu'à pactiser avec l'ennemi pour obtenir sa part de drogue. Évidemment, comme toujours dans ce genre de films, c'est aussi le meilleur enquêteur local, sorte de génie aux méthodes douteuses que sa hiérarchie ne peut soutenir entièrement. Avec un avertissement pour les "jeunes spectateurs", je m'attendais à un film très ouvertement "sale" sur la drogue, mais il ne l'est en fait qu'en apparence. Le scénario justifie étrangement les actions du héros. Ainsi, ça n'est pas de sa faute s'il est devenu complètement dépendant, c'est parce qu'il a fait un geste héroïque en voulant sauver un jeune prisonnier de la noyade pendant les inondations de Katrina. Ce sont les médicaments contre la douleur qui l'ont mené à la drogue, il n'y est finalement pour rien. On comprend alors pourquoi il n'arrête pas de répéter qu'il ne prend que ce que lui prescrit son médecin : il en est vraiment convaincu, ou en tout cas il veut s'en convaincre. Même si elle reste assez ouverte, la fin semble indiquer un changement, les drogués autour de lui commencent des cures de désintoxication, et on peut comprendre qu'il va en faire une aussi. Finalement, <em>Bad Lieutenant</em> est très loin du politiquement incorrect, même si j'imagine que le simple fait que le héros snife de la coke comme il respire justifie l'avertissement.</p>
+
+<div style="text-align: center;"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2010/03/bad-lieutenant-new-orleans.jpg" border="0" alt="bad-lieutenant-new-orleans.jpg" width="690" height="388" /></div>
+<p>Le film de Werner Herzog est par contre effectivement marqué par la drogue, y compris visuellement. À plusieurs reprises, le réalisateur exploite l'addiction de son personnage pour offrir des trips visuels et sonores assez hallucinants, même s'ils restent finalement plutôt sages. Le bestiaire est fourni dans ce film qui s'ouvre sur un serpent et met en scène ensuite des alligators (les fameux) et des iguanes, sans compter un chien. En soi, rien d'original, mais le film tend à prendre le point de vue de ces animaux : la caméra plonge alors au sol (forcément) et les couleurs changent. Quand on suit un alligator vraiment mécontent que son compagnon se soit fait écrasé sur la route (apparemment, l'alligator est l'équivalent de notre sanglier, c'est la voiture qui prend alors le plus cher), on sent déjà le délire poindre le bout de son nez. Mais il va crescendo avec le film, comme si le lieutenant était toujours plus sous l'emprise des drogues. On assiste ainsi à une mémorable scène de chant d'iguanes au potentiel comique imprévu, mais efficace à en juger aux réactions de la salle. À la fin du film, le mauvais lieutenant n'est de toute façon plus capable de dire deux mots sans pouffer bêtement de rire et le film se termine dans un aquarium avec une question ma foi essentielle : les poissons rêvent-ils ?</p>
+<p><em>Bad Lieutenant : Escale à La Nouvelle-Orléans</em> n'est pas un film inintéressant, il est même au contraire très intéressant par son positionnement marketing. Visiblement, on l'a vendu comme un bon vieux blockbuster doté d'une alléchante et double tête d'affiche. Or Werner Herzog fournit là tout sauf un blockbuster : son film est plutôt lent, l'intrigue policière ne l'intéresse jamais vraiment sérieusement et il propose plusieurs séquences pour le moins foutraques. Je comprends dès lors mal pourquoi les cinémas mettent tant en avant le film, alors que la même semaine sortait l'<em>Arnacœur</em> qui me semble beaucoup plus grand public. Les réactions d'étonnement dans la salle n'ont d'ailleurs pas manqué, à tel point que je suis étonné de n'avoir vu personne sortir. Même la présence des stars n'est pas synonyme de grand spectacle : Nicolas Cage n'est (une fois n'est pas coutume) pas mauvais dans ce rôle de policier à la dérive, mais il n'a pas un beau rôle. Eva Mendes est aussi droguée que lui et passe le plus clair de son temps en sous-vêtements, ce qui, à n'en pas douter, est un argument de poids pour la gent masculine.</p>
+
+<div style="text-align: center;"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2010/03/bad-lieutenant-nicolas-cage-eva-mendes.jpg" border="0" alt="bad-lieutenant-nicolas-cage-eva-mendes.jpg" width="690" height="558" /></div>
+<p><em>Bad Lieutenant</em> est ainsi un film étonnant. Intéressant par la façon dont il traite une intrigue policière et place la drogue au centre non seulement des préoccupations de son héros, mais aussi du film lui-même avec une mise en scène souvent déjantée. Ces aspects-là m'ont plu, mais l'ensemble ne m'a pas tellement passionné. Je ne suis pas sûr de retenir grand-chose de ce film finalement assez léger.</p>
+<p>C'est pourquoi je peine à comprendre les enthousiasmes de <a href="http://www.toujoursraison.com/2010/03/bad-lieutenant-escale-la-nouvelle.html">Rob Gordon</a> ou de <a href="http://www.critikat.com/Bad-Lieutenant-Escale-a-la.html">Camille Pollas</a> de chez <em>Critikat</em>. Je suis plus d'accord avec <a href="http://www.filmosphere.com/2010/02/critique-bad-lieutenant-escale-a-la-nouvelle-orleans-bad-lieutenant-port-of-call-new-orleans-2009/">Nicolas</a> de Filmosphère qui conclut justement : "<em>Werner Herzog livre une œuvre étrange où se côtoient le génie pur et le n’importe quoi à tendance nanar.</em>"</p>
+
+<div class="amazon" markdown="1">
+### Vous voulez [m'aider](https://voiretmanger.fr/soutien/) ?
+
+- [Acheter le film en Blu-ray sur Amazon](http://www.amazon.fr/gp/product/B003MS0YY4/ref=as_li_ss_tl?ie=UTF8&tag=leblogdenic07-21&linkCode=as2&camp=1642&creative=19458&creativeASIN=B003MS0YY4)
+- [Acheter le film en DVD sur Amazon](http://www.amazon.fr/gp/product/B003MS0YXK/ref=as_li_ss_tl?ie=UTF8&tag=leblogdenic07-21&linkCode=as2&camp=1642&creative=19458&creativeASIN=B003MS0YXK)
+- [Acheter ou louer le film sur l'iTunes Store](https://itunes.apple.com/fr/movie/bad-lieutenant-escale-la-nouvelle/id457485798)
+</div>
