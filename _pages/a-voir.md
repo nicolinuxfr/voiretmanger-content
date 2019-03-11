@@ -26,6 +26,7 @@ categories: [ ]
 
 <div class="azindex" markdown=1>
 
+- [*La Méthode Kominsky* (Netflix)](https://voiretmanger.fr/methode-kominksy-lorre-netflix/)
 - [*True Detective* (HBO), saison 3](https://voiretmanger.fr/true-detective-pizzolatto-hbo/#3)
 - [*Chef’s Table* (Netflix), saison 6](https://voiretmanger.fr/chef-table-gelb-netflix/#6)
 - [*Unbreakable Kimmy Schmidt* (Netflix), saison 4](https://voiretmanger.fr/unbreakable-kimmy-schmidt-fey-carlock-netflix/#4)
@@ -37,7 +38,6 @@ categories: [ ]
 - [*Kingdom* (Netflix)](https://voiretmanger.fr/kingdom-kim-netflix/)
 - [*Sex Education* (Netflix)](https://voiretmanger.fr/sex-education-nunn-netflix/)
 - [*Grace and Frankie* (Netflix), saison 5](https://voiretmanger.fr/grace-frankie-kauffman-morris-netflix/#5)
-- [*Titans* (DC Universe)](https://voiretmanger.fr/titans-goldsman-johns-berlanti-dc-universe/)
 
 </div>
 
