@@ -1,0 +1,45 @@
+---
+ID: 5253
+post_title: '<em>Le Chant des Sirènes</em>, Orelsan'
+post_name: chant-sirenes-orelsan
+author: Nicolas
+post_date: 2011-10-26 07:30:11
+post_excerpt: "Orelsan revient après un premier album qui avait créé la polémique. Plus mature, plus sombre aussi, Le Chant des Sirènes est différent de Perdu d'avance et ce n'est pas forcément si mal…"
+layout: post
+link: >
+  https://voiretmanger.fr/chant-sirenes-orelsan/
+published: true
+tags:
+  - Polémique
+  - Rap
+  - Société
+categories:
+  - Musique
+---
+<p>Avec <em>Perdu d'avance</em>, Orelsan a créé la polémique en 2009. Conspué par une partie de la classe politique et par des associations féministes, interdit de festival, le rappeur caennais est immédiatement entré sous les feux des projecteurs pour de mauvaises raisons. Je ne tiens pas à revenir sur ces polémiques néanmoins, je l'avais déjà suffisamment fait en <a href="https://voiretmanger.fr/orelsan/">parlant de son précédent album</a> ou à <a href="https://voiretmanger.fr/orelsan-bataclan-2009/">l'occasion d'un concert parisien</a>…</p>
+<p>Deux ans après, le jeune homme revient avec un nouvel album. <em>Le Chant des Sirènes</em> annonce la couleur avec sa pochette : l'ambiance n'est pas à l'humour et la légèreté. La noirceur, caractéristique du précédent album, est toujours au programme, de même que l'inspiration puisée dans le quotidien du jeune homme. Pourtant, ce second album n'est pas une simple répétition du premier : Orelsan a beaucoup appris de sa première expérience et il a muri. Son album est une plongée assez éprouvante, et donc réussie, dans le quotidien pas très réjouissant du rappeur. <em>Perdu d'avance</em> ménageait ici ou là des pauses plus légères, elles se sont encore réduites dans ce nouvel opus qui tourne aussi largement le dos au second degré qui était indéniablement présent dans le premier album. Ce qui n'est pas forcément une mauvaise chose…</p>
+
+<div style="text-align: center;"><img class="aligncenter" style="border-style: initial; border-color: initial; border-width: 0px;" src="https://voiretmanger.fr/wp-content/uploads/2011/10/orelsan-le-chant-des-sirenes.jpg" alt="Orelsan le chant des sirenes" width="690" height="703" border="0" /></div>
+<p><em>Perdu d'avance</em> m'avait déjà semblé assez proche, dans l'esprit au moins, du travail d'Eminem. Orelsan pousse le bouchon encore plus loin avec <em>Le Chant des Sirènes</em>, comme on peut en juger avec le titre d'ouverture. "Raelsan" se présente à la fois comme un bilan de l'album précédent et une présentation de l'album actuel. Le jeune rappeur cherche indéniablement à prendre sa revanche et il ne manque pas de sarcasme pour relever le "coup de pub" des "chiennes de garde pour le coup de pute". Une façon plutôt bien vue de clore la polémique "Sale pute", manière aussi de signifier qu'il n'abandonne pas la partie et n'entend pas se laisser abattre. On peut d'emblée noter que l'album est beaucoup plus politiquement correct, du moins en apparence : la plume d'Orelsan n'a pas perdu toute sa verve, mais elle prend en général plus de précautions et évite les formules trop crues et trop directes.</p>
+<p>Ce message d'intention n'est pas sans rappeler les "Public Service Announcements" qui ouvrent plusieurs albums d'Eminem. C'est un lieu commun du rap néanmoins, mais le plus significatif est ce fameux Raelsan qui donne son titre au morceau. Orelsan se crée un double avec cette chanson, un double négatif à la manière de Slim Shaddy pour Eminem. À la différence de ce dernier toutefois, Raelsan ouvre l'album… mais n'est pas vraiment exploité par la suite. Eminem fait de chaque album un véritable show, un court-métrage avec son histoire maintenue de bout en bout par ce double maléfique. Orelsan est beaucoup plus détaché de son double qui lui sert en fait surtout à régler ses comptes. On attendra un troisième album pour savoir si cette piste est suivie par le rappeur, mais <em>Le Chant des Sirènes</em> ne donne pas le sentiment de poursuivre sur cette voie.</p>
+
+<div class="video-container"><iframe class="aligncenter" src="http://www.youtube.com/embed/Qu3WOFqoQbQ" frameborder="0" allowfullscreen></iframe></div>
+
+<iframe src="http://www.youtube.com/embed/Qu3WOFqoQbQ" frameborder="0" width="690" height="381"></iframe>
+
+<p>Ses comptes réglés, Orelsan propose une collection de titres aux thématiques assez classiques, mais plus encore que dans <em>Perdu d'avance</em>, c'est la fermeture qui frappe à l'écoute de ce nouvel album. <em>Le Chant des Sirènes</em> est un album renfermé sur un univers, celui du jeune rappeur : le sentiment d'oppression dans cet univers est assez tenace et très réussi. Les chansons à en sortir sont très rares, on pense notamment à "La petite marchande de porte-clefs", mais même ce titre évoquant un problème plus global (la politique de l'enfant unique et son impact sur la pauvreté en France) est relié au rappeur comme on le comprend <em>in fine</em>. Rarement un album est aussi marqué dans un contexte socioculturel : on pense aux premiers albums de <a href="https://voiretmanger.fr/the-streets-le-rap-a-langlaise/">The Streets</a>, dans une version caennaise revisitée. "Mauvaise idée", "Double vie" ou encore "Finir mal", "Des trois dans la tête" : autant de titres qui évoquent les difficultés du rappeur, mais aussi et surtout ses mauvais choix, ses erreurs et ses errements. Toujours la même constante : le sérieux de paroles qui ne laissent guère de place à l'ironie, ni même au doute.</p>
+<p>Ce sérieux est surprenant quand on compare au premier album, mais il est sans doute logique. Le succès n'a manifestement pas fait que du bien au rappeur qui est peut-être le premier à regretter cette légèreté perdue. "Comme si j'en avais marre d'être heureux", chante Orelsan sur "Finir mal", un titre particulièrement sombre et désespéré, alors que "Double vie" qui la précède et qui fonctionne en dytique était plus légère et proche de <em>Perdu d'avance</em>. Le style plutôt incisif du rappeur est là, mais il n'est plus vraiment utilisé pour le bon mot. Heureusement, <em>Le Chant des Sirènes</em> ménage quelques pauses, comme "La petite marchande de porte-clefs", "1990" (qui m'a rappelé le rap de Hocus Pocus) ou encore "Ils sont cols" qui permettent de souffler, même si les accalmies sont toujours de courte durée et annoncent plutôt le choc suivant. "Suicide social", avant-dernier de l'album, fait un peu l'effet d'une claque : un titre extrêmement sombre, oppressant, qui ne ménage pas l'auditeur. Le style a changé, mais ce n'est pas forcément une mauvaise idée. Orelsan s'avère plutôt bon dans la noirceur et la musique qui l'accompagne, minimaliste et lourde, lui convient bien. Dans l'ensemble, les meilleurs titres de <em>Le Chant des Sirènes</em> sont, à mon avis, les titres les plus sombres.</p>
+<p>Est-ce une posture du rappeur ? Orelsan a-t-il choisi de jouer un rôle différent : après l'ironie de <em>Perdu d'avance</em>, la noirceur de <em>Le Chant des Sirènes ?</em> C'est une possibilité évidemment, après tout j'ai <a href="https://voiretmanger.fr/eminem-le-maitre/">trop écrit</a> sur la théâtralité des albums d'Eminem pour jouer mon naïf, mais je crois le rappeur honnête sur les deux albums. Le premier était plus léger, plus vache aussi, plus rentre dedans. C'est un album de jeunesse, assez impulsif, écrit avant d'avoir connu le succès et surtout avant la polémique et la médiatisation à outrance. Le second est plus mature, plus travaillé aussi et globalement plus sombre. Peut-être est-ce un calcul, c'est aussi sûrement l'état d'esprit d'Orelsan au moment d'écrire son album. Plus mature, il l'est aussi en interview, comme celle-ci le montre bien : le jeune homme a enfin adopté l'attitude qui convient et plutôt que de justifier ses textes, il se présente comme un artiste qui propose un travail et n'a pas à se reprocher de l'avoir fait. Le mieux est encore d'écouter l'album et, comme il le dit lui-même, "lire entre les lignes".</p>
+
+<div class="video-container"><iframe class="aligncenter" src="http://www.youtube.com/embed/8_WwLhOjfqg" frameborder="0" allowfullscreen></iframe></div>
+
+<p><em>Le Chant des Sirènes</em> n'est sans doute pas l'album de l'année, mais je dois dire que je l'aime plutôt bien. Orelsan ne m'a pas autant pas surpris que sur son premier album, mais ces seize titres sont efficaces et plaisants à écouter. Je suis curieux de voir dans quelle direction va maintenant se rendre le jeune rappeur…</p>
+
+<div class="amazon">
+<h3>Vous voulez m'aider ?</h3>
+<ul>
+	<li><a href="http://www.amazon.fr/gp/product/B005BU602G/ref=as_li_ss_tl?ie=UTF8&tag=leblogdenic07-21&linkCode=as2&camp=1642&creative=19458&creativeASIN=B005BU602G">Acheter l'album en CD Amazon</a> (<a href="http://www.amazon.fr/gp/product/B005Q0TC6W/ref=as_li_ss_tl?ie=UTF8&tag=leblogdenic07-21&linkCode=as2&camp=1642&creative=19458&creativeASIN=B005Q0TC6W">téléchargement MP3</a>)</li>
+	<li><a href="http://itunes.apple.com/fr/album/le-chant-des-sirenes/id458621568">Acheter l'album sur l'iTunes Store</a></li>
+
+</ul>
+</div>
