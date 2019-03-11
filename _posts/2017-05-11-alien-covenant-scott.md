@@ -1,0 +1,38 @@
+---
+ID: 17971
+post_title: '<em>Alien: Covenant</em>, Ridley Scott'
+post_name: alien-covenant-scott
+author: Nicolas
+post_date: 2017-05-11 22:23:43
+layout: post
+link: >
+  https://voiretmanger.fr/alien-covenant-scott/
+published: true
+tags:
+  - Action
+  - Blockbuster
+  - Drame
+  - Extra-terrestre
+  - Horreur
+  - Mythe
+  - Préquelle
+  - Science-Fiction
+  - Sorties du moment
+categories:
+  - À voir
+---
+[*Prometheus*](https://voiretmanger.fr/prometheus-scott/) n’assumait pas totalement sa filiation avec [la saga *Alien*](https://voiretmanger.fr/saga/alien/), mais cette fois, c’est plus clair. *Alien: Covenant* est non seulement la suite directe du long-métrage de 2012, c’est aussi le sixième volet de la saga. Ridley Scott est toujours aux commandes de la suite de préquelles chargées d’expliquer les origines de la créature découverte dans son premier film, [*Alien, le huitième passager*](https://voiretmanger.fr/alien-huitieme-passager-scott/). De fait, ce nouveau long-métrage remplit quelques cases et permet d’en savoir plus sur les xénomorphes, même s’il ne répond pas encore à toutes les questions. En attendant les inévitables suites, *Alien: Covenant* est un film d’action assez banal et si l’explication donnée est intéressante, c’est un blockbuster qui se fond un petit peu dans la masse et qui manque cruellement de subtilité. Ridley Scott ne semble toujours pas avoir les idées claires sur a propre saga et ce volet est assez divertissant, guère plus. 
+
+<a href="https://fr.wikipedia.org/wiki/Alien:_Covenant"><img src="https://voiretmanger.fr/wp-content/uploads/2017/05/alien-covenant-scott.jpg" alt="" width="2835" height="3780" class="aligncenter size-full wp-image-17973" /></a>
+
+La saga *Alien* ne précisait jamais les origines de ces monstres tueurs et si effrayants. *Prometheus* esquissait quelques pistes, mais de façon assez confuse, comme si Ridley Scott voulait se débarrasser des bestioles qu’il avait lui-même imaginées il y a près de quarante ans. Une drôle de situation qui donnait un drôle de film, assez séduisant visuellement, mais qui se prenait les pieds dans le tapis dès qu’il s’agissait d’expliquer concrètement d’où venait l’Alien. Le cinéaste a manifestement changé d’avis et c’est avec *Alien: Covenant* que l’on voit naître pour la première fois la même bestiole que celle affrontée par le lieutenant Ripley dans le premier film. L’intrigue se déroule environ dix ans après celle de *Prometheus* avec, comme c’est la tradition dans la saga, un nouveau vaisseau spatial pour commencer. Cette fois, c’est le Covenant qui amène deux milles colons vers une planète dénichée au fin fond de l’univers et qui pourrait potentiellement devenir une nouvelle Terre. Ridley Scott ne s’embarrasse pas trop avec les explications et imagine que la mission est interrompue en cours de route suite à un incident technique, cette fois une tempête qui abime l’appareil et oblige l’ordinateur de bord aidé de l’androïde de service de réveiller l’équipage. Pendant les réparations, un signal humain est capté en provenance d’une planète non loin de leur position, une planète qui affiche elle aussi toutes les caractéristiques pour être habitées. Le scénario déroule son fil sans surprendre, l’équipage détourne le Covenant pour jeter un œil et tout déraille quand il découvre l’enfer du virus découvert dans le volet précédent. C’est assez banal, mais plutôt bien fait et cette fois, *Alien: Covenant* prend son temps pour poser la situation et les personnages. Tout le début est assez prometteur et le lien est bien amené quand on retrouve le vaisseau des ingénieurs abandonné sur cette planète et David, le robot de la précédente expédition. Hélas, la suite n’est pas aussi satisfaisante.
+
+<img src="https://voiretmanger.fr/wp-content/uploads/2017/05/alien-covenant-katherine-waterson.jpg" alt="" width="3300" height="2200" class="aligncenter size-full wp-image-17975" />
+
+L’idée de placer David au centre de l’intrigue est très bonne et assez logique. Ridley Scott réinvente un petit peu l’eau chaude en exploitant le filon des robots opposés leur créateur, un cliché de la science-fiction. Néanmoins, c’est plutôt bien amené et c’est une bonne piste pour expliquer l’origine précise des extra-terrestres. Par ailleurs, Michael Fassbender est un excellent acteur et il peut le prouver ici encore, en incarnant deux androïdes physiquement identiques, mais totalement différents par la personnalité. C’est toujours quelque chose de difficile à rendre et *Alien: Covenant* complique encore la situation en éliminant à mi-parcours les différences physiques, mais le résultat est bluffant[^1]. Et l’explication elle-même est nettement plus logique que dans *Prometheus*, même si, en regardant dans le détail, on peut relever aisément des inconsistances et paradoxes. Et puis, Ridley Scott semble adorer inventer de nouvelles variantes, jusqu’à l’excès : fallait-il vraiment ajouter ces spores et la créature qui sort par le dos ? Certes, c’est impressionnant quoi que pas très fin et ça fait une scène d’horreur facile, mais ce n’est pas cohérent avec le reste et cela ajoute encore de la confusion sur la lignée des Aliens, ce qui n’était vraiment pas nécessaire. La représentation de la cité des Ingénieurs manque quant à elle cruellement d’originalité, on pense à un mélange de toutes les cités antiques jusqu’aux Mayas et franchement, c’est déjà-vu mille fois et un peu fainéant de la part des scénaristes. De même, faut-il vraiment un personnage féminin dans chaque film ? On dirait que Ridley Scott considère que c’est un élément clé pour accompagner ses Aliens, mais il serait peut-être temps de trouver autre chose. Dans ce rôle, Katherine Waterston n’est pas mauvaise, mais il est toujours aussi difficile de passer après Sigourney Weaver et un peu de renouvellement n’aurait pas fait de mal en la matière. Quant aux créatures, le cinéaste a oublié la grande leçon de son film original et il les montre beaucoup trop, si bien qu’elles ne sont plus du tout aussi impressionnantes. Les premières que l’on croise évoquent davantage un [chaton](https://voiretmanger.fr/wp-content/uploads/2017/05/chaton.gif) qu’une machine à tuer, ce qui est tout de même gênant. 
+
+<img src="https://voiretmanger.fr/wp-content/uploads/2017/05/alien-covenant.jpg" alt="" width="3300" height="2200" class="aligncenter size-full wp-image-17974" />
+
+Ridley Scott a créé une saga par accident et *Alien, le huitième passager* ne devait probablement jamais avoir de suite, encore moins cinq suites. La différence est sensible par rapport à d’autres grandes sagas nées au cinéma : il n’avait pas de vision d’ensemble et l’histoire tient difficilement la route. *Alien: Covenant* prouve d’ailleurs qu’il n’a toujours pas de vision d’ensemble et qu’il improvise son histoire, quitte à laisser de grosses incohérences sur la route. Mais *Alien* n’avait pas nécessairement besoin d’explications et on se demande bien pourquoi le réalisateur s’est lancé dans ces préquelles sans avoir une idée derrière la tête. Ridley Scott invente une origine pour sa créature mythique et qu’importe si l’explication est bancale ou trop banale. C’est un petit peu dommage de gâcher la saga de la sorte et de réaliser un film d’action banal et bien peu subtil sur le dos des xénomorphes. *Alien: Covenant* reste un divertissement prenant, mais c’est à peu près tout. 
+
+[^1]: Même si, du coup, le twist final est beaucoup moins surprenant que le scénario veut le laisser entendre. Le jeu subtil de Michael Fassbender permet de trop bien distinguer les deux androïdes, si bien que l’on a du mal à comprendre comment le personnage principal a pu se faire avoir. 
