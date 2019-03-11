@@ -1,0 +1,37 @@
+---
+ID: 1228
+post_title: 'Espion(s) de Nicolas Saada : le bon cinéma français existerait donc ?'
+post_name: espions-nicolas-saada
+author: Nicolas
+post_date: 2009-02-21 00:30:03
+post_excerpt: "Il existe bien un cinéma français digne d'intérêt : Espion(s) de Nicolas Saada en fait indéniablement parti."
+layout: post
+link: >
+  https://voiretmanger.fr/espions-nicolas-saada/
+published: true
+tags:
+  - Espionnage
+  - Thriller
+categories:
+  - À voir
+---
+<p>Quand un critique des <em>Cahiers du cinéma</em> passe derrière la caméra, on peut légitimement craindre le pire. Comprenons-nous bien : je suis un grand fan devant l'éternel de la critique un peu intellectuelle, voire intellectualisante, façon <em>Télérama</em> ou <em>Inrockuptibles</em>. Mais les Cahiers, c'est différent je trouve : ils sont apparemment incapables d'apprécier simplement un film, il faut toujours l'interroger plus ou moins métaphysiquement, en tout cas il faut une interrogation plus générale sur le cinéma, de quoi penser. Ils ne connaissent pas le premier degré et, pis encore, sont incapables de sortir de leur image d'intellectuels pour, par exemple, "s'abaisser"  à apprécier un <em>blockbuster</em> bien américain. Or moi, si j'aime bien le cinéma intello, mais j'aime aussi, de temps, un bon gros navet américain, <em>just for fun</em>.</p>
+<p>Bref, je craignais un peu le pire, mais Nicolas Saada ne m'a pas déçu. Son film est tout bonnement excellent, et cela me fait sincèrement plaisir de le dire alors qu'il s'agit d'un cinéma français. Quand je vois, cette semaine, la sortie de l'innommable bouse que constitue, sans aucun doute (il ne manquerait plus que je regarde les films avant de les descendre, tiens...), <em>Le code a changé</em>. Il existe bien un cinéma français digne d'intérêt, mais il faut le chercher longtemps, et surtout ne pas le louper. <em>Espion(s)</em> en fait, en tout cas, indéniablement parti.</p>
+
+<div style="text-align: center;"><a href="http://www.allocine.fr/film/fichefilm_gen_cfilm=129239.html"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2009/02/19033818-w434-h-q80.jpg" border="0" alt="19033818_w434_h_q80.jpg" width="434" height="578" /></a></div>
+
+<p>Le scénario est à la fois connu, prévisible et du genre "casse-gueule" : il eût été facile de rater complètement un film avec un tel scénario. Soit un jeune homme (Guillaume Canet, qui n'a jamais été aussi bon qu'ici) qui a fait plein d'études, mais a mal tourné et se retrouve à la sécurité de Roissy où il vole de menus objets. Mais un jour, il ouvre une valise interdite, car diplomatique, et tombe sur un produit explosif. S'ouvre alors une série d'épisodes où la DST lui propose de se racheter en échange d'une mission d'information à Londres. Sa mission est simple : séduire la femme d'un supposé brigand (Géraldine Pailhas, excellente) pour en apprendre plus. On s'en doute, la limite entre travail et véritable amour va être ténue.</p>
+<p>Si le film n'échoue pas lamentablement, c'est à la fois grâce au réalisateur et aux acteurs. Ces derniers sont vraiment excellents, notamment elle qui offre un jeu tout en précision et finesse où tous les sentiments passent successivement. Elle est vraiment convaincante, toute en retenue jusqu'au moment où elle craque, puis bouillante de colère froide quand elle apprend la vérité. Lui excelle dans l'art de mélanger les cartes, de sorte que l'on ne sait jamais s'il simule ou aime vraiment.</p>
+<p>Mais des acteurs ne sont rien sans un réalisateur pour les diriger. Et pour un premier essai sur le grand écran, on peut dire que Nicolas Saada s'en sort bien, très bien même. Il réussit, déjà, à cacher son manque de moyen qui ne m'a jamais gêné et qui, avouons-le, m'a semblé évident surtout après l'avoir lu dans des critiques. Cela ne m'a pas sauté aux yeux parce que Saada ne choisit pas le spectaculaire à l'américaine (et à la française, quand on veut être plus américain qu'Hollywood...), mais plutôt l'émotion et l'ambiance. Le film réussit à tisser une ambiance très particulière, mélange de paranoïa (en toile de fond, on retrouve en effet le terrorisme international et les attentats de Londres de 2005) et de désir. Autre mérite de la réalisation, sa légèreté : le film est court, mais intense (contrairement au <a href="https://voiretmanger.fr/2009/02/17/etrange-histoire-de-benjamin-button-david-fincher/"><em>blockbuster</em> de la semaine dernière</a>, tiens...) et le réalisateur a su manier l'ellipse avec beaucoup de talent.</p>
+<p>Nicolas Saada a, apparemment, beaucoup étudié la musique de film. Et cela s'entend : la bande-son de ce premier film est excellente, mêlant morceaux originaux créés par le musicien de Soderbergh entre autres, rien que ça, et morceaux repris avec souvent de très bons choix (<em>Boys &amp; Girls</em> des Blur, par exemple). L'idée a, apparemment, été de rassembler, par la musique, les deux pôles du film, espionnage et amour. Le résultat est convaincant, avec un thème principal à base de cordes, inquiétant et romantique à la fois.</p>
+<p>Je pourrai encore parler longtemps de ce film, mais je vais plutôt respecter ce qu'il fait d'ailleurs très bien, à savoir ne pas tout dire, laisser des zones d'ombre (à cet égard, j'aime beaucoup la fin, que je ne révélerai pas histoire de conserver un peu de suspense...). Tout ce que je peux faire, c'est vous recommander chaudement d'aller voir ce film, histoire d'encourager les donneurs de sous d'en donner plus à des gens comme Nicolas Sadaa qu'à des réalisateurs incapables de faire autre chose que l'habituelle soupe française, comme Danièle Thompson tiens... ((Oula, je suis remonté moi ce soir... :D))</p>
+<p><strong>À lire aussi</strong> : les critiques positives, bien sûr, de <em><a href="http://www.telerama.fr/cinema/films/espion-s,370735,critique.php">Télérama</a></em> et des <em><a href="http://www.lesinrocks.com/cine/cinema-article/article/espions/">Inrockuptibles</a></em>. À ce propos, il est intéressant de constater, à nouveau, la différence de réception entre la critique et le public, si j'en crois Allociné en tout cas.</p>
+<p>Au fait, j'ai oublié de le préciser, mais comme <a href="http://www.toujoursraison.com/2009/01/espions.html">le rappelle Rob Gordon</a> (avec qui je suis d'ailleurs entièrement d'accord), <strong>Espion(s)</strong> n'est pas vraiment un film d'espionnage et vous serez déçus si vous y allez pour ça. Il n'a pas, non plus, tort ((En même temps, il est supposé avoir toujours raison...)) quand il dit que le film, tout en gardant son identité française, est aussi "<em>so british</em>" : la majeure partie de l'intrigue se passe à Londres, et les dialogues sont en grande partie en anglais.</p>
+
+<div class="amazon">
+<h3>Vous voulez m'aider ? ((<a href="https://voiretmanger.fr/soutien/">À propos de la publicité…</a>))</h3>
+<ul>
+	<li><a href="http://www.amazon.fr/gp/product/B0029KH7E6/ref=as_li_ss_tl?ie=UTF8&tag=leblogdenic07-21&linkCode=as2&camp=1642&creative=19458&creativeASIN=B0029KH7E6">Acheter le film en Blu-Ray sur Amazon</a></li>
+	<li><a href="http://www.amazon.fr/gp/product/B0029KH7E6/ref=as_li_ss_tl?ie=UTF8&tag=leblogdenic07-21&linkCode=as2&camp=1642&creative=19458&creativeASIN=B0029KH7E6">Acheter le film en DVD sur Amazon</a></li>
+</ul>
+</div>
