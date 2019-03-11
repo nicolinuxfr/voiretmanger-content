@@ -1,0 +1,44 @@
+---
+ID: 6436
+post_title: '<em>C&rsquo;est arrivé près de chez vous</em>, Rémy Belvaux, André Bonzel et Benoît Poelvoorde'
+post_name: >
+  arrive-pres-chez-vous-belvaux-bonzel-poelvoorde
+author: Nicolas
+post_date: 2012-05-13 09:38:20
+post_excerpt: "Devenu culte pour certains, C'est arrivé près de chez vous reste assez méconnu du grand public. Ce premier film pour Benoît Poelvoorde est pourtant une expérience de cinéma fascinante, mais aussi souvent gênante. Un film inclassable, à (re)découvrir…"
+layout: post
+link: >
+  https://voiretmanger.fr/arrive-pres-chez-vous-belvaux-bonzel-poelvoorde/
+published: true
+tags:
+  - Expérience
+  - Faux documentaire
+  - Humour
+  - Noir et blanc
+  - Parodie
+  - Société
+  - Violence
+categories:
+  - À voir
+---
+<p><em>C'est arrivé près de chez vous</em> est difficile à classer dans une case. Conçu à l'origine comme la parodie d'une émission belge qui proposait des documentaires où le journaliste s'efface pour laisser son objet à nu devant la caméra, ce film co-réalisé par Rémy Belvaux, André Bonzel et Benoît Poelvoorde est un faux documentaire sur un homme qui gagne sa vie par le meurtre. Le résultat est une expérience de cinéma étonnante, un film marqué par un humour très noir, sans aucune retenue ni sens du politiquement correct. <em>C'est arrivé près de chez vous</em> met ses spectateurs mal à l'aise, mais c'est justement le signe de sa réussite.</p>
+
+<div style="text-align: center;"><a href="http://www.allocine.fr/film/fichefilm_gen_cfilm=7383.html"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2012/05/c-est-arrive-pres-de-chez-vous-belvaux-bonzel-poelvoorde.jpg" alt="C est arrive pres de chez vous belvaux bonzel poelvoorde" width="100%" /></a></div>
+<p>Le film s'ouvre sur un petit point technique. Un homme accroche des pierres à un drap blanc en expliquant qu'un corps doit avoir trois fois plus de pierres que son poids pour couler. Une entrée en matière qui plonge d'emblée les spectateurs dans le vif du sujet : <em>C'est arrivé près de chez vous</em> évoque le quotidien d'un homme qui tue pour vivre. Si certains vont travailler à l'usine ou dans des bureaux, Ben a choisi de voler de l'argent, souvent prélevé sur le lieu d'habitation de ses victimes. Il choisit de préférence des petites gens, des personnes âgées issues des classes populaires qui seront plus enclines à cacher le peu d'argent qu'elles possèdent sous leur matelas. Ce quotidien devenu tout à fait normal pour Ben est transmis par les caméras et le micro d'une équipe de la télévision venue tourner un documentaire sur Ben. Les journalistes ne s'offusquent guère du mode de vie de leur sujet, ils restent à distance et finissent même par y adhérer. Bientôt, le journaliste devient aussi complice…</p>
+<p>Surréaliste. C'est certainement le sentiment qui vient le plus vite à l'esprit quand on découvre <em>C'est arrivé près de chez vous</em>. L'idée de départ est extrêmement originale : filmer un serial-killer au quotidien, découvrir ses méthodes et ses motivations, sans jugement, pour en faire un documentaire. Il fallait y penser, surtout au début des années 1990, avant l'invasion de la télé-réalité et la multiplication des émissions d'enquêtes toujours plus extrêmes. Très vite, le spectateur est frappé par la normalité d'images pourtant extrêmement violentes. Ben n'est pas vraiment un serial-killer, il ne tue jamais par plaisir et n'éprouve d'ailleurs aucune satisfaction à l'idée de tuer. Le meurtre est pour lui une évidence, le coup part très vite, c'est la plupart du temps très propre. À un moment, il va même jusqu'à provoquer la crise cardiaque chez une vieille au cœur fragile, plutôt que de la tuer d'une balle. Ben tue, il prend l'argent, il s'en va : c'est donc son métier, au quotidien. <em>C'est arrivé près de chez vous</em> est un film parfois drôle, mais d'un humour toujours extrêmement noir, on le comprend. Ce côté quotidien, cette normalité même est l'occasion de quelques scènes cocasses, d'autant que le personnage principal n'éprouve aucune compassion pour ses victimes qui ne sont pour lui que des déchets qu'il doit évacuer. Par certains aspects, le film de Rémy Belvaux, André Bonzel et Benoît Poelvoorde rappelle la série <em>Dexter</em>, la classe américaine en moins.</p>
+
+<div style="text-align: center;"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2012/05/poelvoorde-arrive-pres-chez-vous.jpg" alt="Poelvoorde arrive pres chez vous" width="100%" /></div>
+<p>C'est précisément parce que <em>C'est arrivé près de chez vous</em> est filmé comme un documentaire extrêmement sérieux, que le long-métrage suscite le rire. On ne peut que rire devant ce personnage qui fait de longs monologues sur sa condition ou sur la société, avec des analyses dignes des meilleurs comptoirs. Ben devient même hilarant quand il se met à déclamer une <a href="http://fr.wikipedia.org/wiki/C'est_arrivé_près_de_chez_vous#Film">poésie sur les pigeons</a>, mais <em>C'est arrivé près de chez vous</em> n'est pas une comédie légère pour autant. Bien au contraire, le film dérange et met mal à l'aise à plusieurs reprises. Les journalistes qui filment le criminel sont censés être en retrait. Les voir assister sans intervenir aux crimes de leur sujet est déjà assez étrange, mais ils s'impliquent de plus en plus dans ces actions criminelles. Au fur et à mesure que l'histoire avance, les journalistes passent de spectateurs passifs au statut de complices actifs. Ils vont même jusqu'à nettoyer le massacre de leur sujet à la fin du film, tandis que plusieurs membres de l'équipe de tournage meurent pendant la captation, sans que cela ne les gêne outre mesure. Cette question de l'implication de journalistes censés traiter leur sujet de manière objective est très intéressante : les trois réalisateurs montrent bien que le point de vue de la caméra n'est jamais objectif. <em>C'est arrivé près de chez vous</em> va bien sûr très loin puisque les journalistes finissent par participer à une scène de viol qui est d'ailleurs montrée en grande partie dans une scène particulièrement gênante.</p>
+<p>Film tourné sans moyen, <em>C'est arrivé près de chez vous</em> offre pourtant une prestation très honorable sur le plan technique. Le manque de moyen est visible dès le choix du noir et blanc, moins coûteux à produire que la couleur, mais cette contrainte technique est astucieusement utilisée par les cinéastes qui peuvent ainsi se permettre de montrer des plans qui auraient été beaucoup plus forts en couleur. Pas d'argent, mais une liberté totale : Rémy Belvaux, André Bonzel et Benoît Poelvoorde se sont tout permis et le résultat témoigne bien de cette liberté. <em>C'est arrivé près de chez vous</em> est un film foisonnant, parfois aussi brouillon, tantôt drôle, tantôt grave. Face à la caméra la majeure partie du temps, Benoît Poelvoorde assure le spectacle et impressionne déjà, dans son tout premier rôle. Loin des clichés qui le caractériseront dans la suite de sa carrière, l'acteur est ici excellent dans un rôle de psychopathe et dans un humour noir qui lui va à merveille. Il est en fait à toutes les étapes de la construction du film, autant à la réalisation qu'au scénario et aux dialogues et sa vraie mère et grand-mère jouent leurs propres rôles. <em>C'est arrivé près de chez vous</em> a ainsi tout du film amateur et le résultat surprend justement par son professionnalisme. L'image n'est pas toujours très nette, ni très stable, mais ces hésitations participent à renforcer le réalisme du film.</p>
+
+<div class="video-container"><iframe class="aligncenter" src="https://www.youtube.com/embed/UK9XAw0a-rE" frameborder="0" allowfullscreen></iframe></div>
+
+<p><em>C'est arrivé près de chez vous</em> est sans conteste un film étonnant. Rémy Belvaux, André Bonzel et Benoît Poelvoorde signent un premier long-métrage quasiment amateur, un faux documentaire sur la vie d'un meurtrier qui finit par mettre ses spectateurs mal à l'aise. Une belle preuve de réussite pour cette comédie noire, très noire, où rien n'est tabou, ni la mort ni même le viol. <em>C'est arrivé près de chez vous</em> est aussi l'occasion de découvrir un grand acteur puisque Benoît Poelvoorde y fait ses premiers pas devant la caméra. Pour toutes ces raisons, le film mérite d'être découvert, mais soyez prévenus, vous ne serez pas ménagé…</p>
+
+<div class="amazon">
+<h3>Vous voulez m'aider ?</h3>
+<ul>
+	<li><a href="http://www.amazon.fr/gp/product/B001FY2MY2/ref=as_li_ss_tl?ie=UTF8&amp;tag=leblogdenic07-21&amp;linkCode=as2&amp;camp=1642&amp;creative=19458&amp;creativeASIN=B001FY2MY2">Acheter le film en Blu-Ray sur Amazon</a></li>
+	<li><a href="http://www.amazon.fr/gp/product/B00290FWJS/ref=as_li_ss_tl?ie=UTF8&amp;tag=leblogdenic07-21&amp;linkCode=as2&amp;camp=1642&amp;creative=19458&amp;creativeASIN=B00290FWJS">Acheter le film en DVD sur Amazon</a></li>
+</ul>
+</div>
