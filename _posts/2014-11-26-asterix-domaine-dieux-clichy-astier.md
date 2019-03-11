@@ -1,0 +1,43 @@
+---
+ID: 12427
+post_title: '<em>Astérix : Le Domaine des dieux</em>, Louis Clichy et Alexandre Astier'
+post_name: asterix-domaine-dieux-clichy-astier
+author: Nicolas
+post_date: 2014-11-26 22:43:19
+layout: post
+link: >
+  https://voiretmanger.fr/asterix-domaine-dieux-clichy-astier/
+published: true
+tags:
+  - Adaptation bande-dessinée
+  - Animation
+  - Argent
+  - Comédie
+  - Humour
+  - Société
+  - Sociologie
+  - Sorties du moment
+categories:
+  - À voir
+---
+La saga *Astérix*, si excellente en bande-dessinée, a connu des sorts divers au cinéma, mais les bonnes adaptations ont été beaucoup plus rares que les médiocres. À dire vrai, on ne retiendrait vraiment qu'*Astérix et Obélix : Mission Cléopâtre*, mais cette excellente comédie était d'abord un film d'Alain Chabat, avant d'être une adaptation de l'œuvre de René Goscinny et Albert Uderzo. Après plusieurs essais totalement ratés en prises de vue réelles, il était probablement grand temps d'essayer autre chose, et on ne peut que saluer le choix de Louis Clichy et d'Alexandre Astier en faveur de l'animation. D'entrée, *Astérix : Le Domaine des dieux* est plus proche de la bande-dessinée et c'est plutôt une bonne chose. Et bien entendu, il y a Alexandre Astier qui signe le scénario et qui est à l'initiative du projet : l'homme touche-à-tout prouve à nouveau qu'il n'est plus seulement le créateur de [*Kaamelott*](https://voiretmanger.fr/kaamelott-astier/) et on avait hâte de voir ce que son univers pouvait donner, une fois confronté à celui d'*Astérix*. Et le résultat est très convaincant : *Astérix : Le Domaine des dieux* est une lecture modernisée du tome original qui plaira autant aux petits qu'aux grands. Un excellent film familial !
+
+<a href="http://www.allocine.fr/film/fichefilm_gen_cfilm=187191.html"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2014/11/asterix-domaine-dieux-clichy-astier.jpg" alt="Asterix domaine dieux clichy astier" title="asterix-domaine-dieux-clichy-astier.jpg" width="1600" height="2163" /></a>
+
+Quand on a proposé à Alexandre Astier de réaliser « son » adaptation d'un Astérix, il n'a pas hésité une seconde et a choisi *Le Domaine des dieux*. Le dix-septième album des aventures du Gaulois n'est pas forcément le plus célèbre, ce n'est pas le plus exotique ou le plus spectaculaire, mais c'est aussi le plus intéressant. Car c'est le seul où César est vraiment à deux doigts de gagner et de raser le village des irréductibles gaulois, non pas en utilisant la force comme toujours, mais la ruse et l'attrait de l'argent. L'idée de construire une ville romaine aux portes du village et ainsi d'attirer les Gaulois dans la civilisation romaine et leur enlever l'envie de défendre leur village et leur mode de vie. C'est une idée assez diabolique et qui a failli réussir : même si Uderzo et Goscinny ont aussi imaginé d'autres histoires où les Romains réussissent à détruire le village, c'est probablement avec celle-ci que César est aussi proche de la victoire. *Astérix : Le Domaine des dieux* est donc un choix intéressant, mais pas forcément un choix facile, surtout pour un film qui se veut familial et qui doit plaire aux plus jeunes. Pour autant, on sent qu'Alexandre Astier est un vrai fan non seulement de cet album, mais d'Astérix de manière générale et son adaptation est très fidèle et respectueuse de l'œuvre originale. Là où Alain Chabat importait son univers cinématographique dans celui des Gaulois, le scénario respecte à la lettre la bande-dessinée, à tel point que les meilleurs connaisseurs en reconnaitront certaines cases. Mais cela ne veut pas dire qu'il est inutile de voir *Astérix : Le Domaine des dieux* si on connaît bien l'original : tout en respectant sa source, le créateur de *Kaamelott* a aussi glissé sa patte, pour constituer un mélange original plutôt bien trouvé.
+
+<img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2014/11/asterix-domaine-dieux-astier-clichy.jpg" alt="Asterix domaine dieux astier clichy" title="asterix-domaine-dieux-astier-clichy.jpg" width="2100" height="1400" />
+
+*Astérix : Le Domaine des dieux* vise toute la famille et à ce titre, le long-métrage joue sur plusieurs tableaux. Il y a bien entendu l'histoire originale, celle du village gaulois qui ne cède pas par la force, mais sous la pression de l'argent apporté par les Romains qui viennent habiter au pied du village. Comme dans la bande-dessinée, le film de Louis Clichy et Alexandre Astier s'adresse autant aux plus jeunes qui comprendront en partie l'histoire, qu'aux adultes qui auront peut-être beaucoup plus conscience de ce que cela signifie. À bien des égards, c'est une belle illustration du concept d'acculturation en sociologie : deux groupes totalement différents se rencontrent et apprennent à se découvrir et à se connaître. Les civils venus de Rome ne sont pas forcément impressionnés par les Gaulois et ces derniers ne savent pas comment réagir face à ces hommes, ces femmes et ces enfants qu'ils ne peuvent pas simplement baffer, comme les soldats de base. Le plan de César est vraiment diabolique et il fonctionne remarquablement bien : le film est d'ailleurs excellent quand il s'agit de faire sentir que la victoire romaine est proche. *Astérix : Le Domaine des dieux* reste avant tout une comédie et c'est à ce niveau qu'Alexandre Astier impose le plus sa marque. Là encore, le film joue sur plusieurs niveaux en mêlant les gags, souvent visuels, de l'œuvre originale à des références et clins d'œil plus modernes. Après un générique qui évoque assez ceux de *James Bond*, on a une citation directe au *Seigneur des Anneaux* et des dizaines de références, mais qui sont parfaitement intégrées à l'histoire. Le film a l'intelligence de ne pas assener une longue liste de références, comme c'est parfois le cas et le résultat est très convaincant. On s'amuse très souvent dans cette relecture de la bande-dessinée et même si la version d'Alain Chabat reste meilleure sur ce point, il faut encore une fois saluer le respect de l'œuvre originale. Ce qui n'empêche pas Alexandre Astier de marquer son film de sa présence : il impose ses fidèles parmi les voix — on reconnaît aisément celle de son père, Lionnel Astier, et avec beaucoup de plaisir celle de Serge Papagalli — et il impose son humour dès qu'il le peut. C'est surtout l'armée romaine qui tombe dans le ridicule sur le même mode que les Chevaliers de la Table ronde et c'est souvent très drôle… sans être envahissant. Un bien bel équilibre.
+
+<img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2014/11/clichy-astier-asterix-domaine-dieux.jpg" alt="Clichy astier asterix domaine dieux" title="clichy-astier-asterix-domaine-dieux.jpg" width="2100" height="1400" />
+
+Astérix est de retour au cinéma et pour une fois, c'est une bonne nouvelle. On n'osait plus vraiment attendre de bonne adaptation des bandes-dessinées de Goscinny et d'Uderzo et il a fallu réunir un fan et un spécialiste de l'animation pour obtenir, enfin, un bon résultat. *Astérix : Le Domaine des dieux* est une vraie réussite, un film familial qui plaira à tout âge et cette relecture fidèle, mais modernisée doit son succès autant à Alexandre Astier qu'à Louis Clichy. Le premier signe un scénario malin, drôle sans être lourd, respectueux tout en conservant son propre univers et c'est un succès incontestable. Le deuxième a fait ses armes chez Pixar (il a travaillé sur *Wall-E* et *Là Haut*, rien que cela) et cela se voit : le style est assez proche du dessin d'Uderzo, mais dans une vision plus moderne, avec plus de relief et l'animation est extrêmement réussie. *Astérix : Le Domaine des dieux* est une production française qui n'a pas à rougir face aux superproductions américaines : ce film est aussi réussi techniquement, et son histoire est toujours aussi passionnante, plus de quarante ans après.
+
+<div class="amazon" markdown="1">
+### Vous voulez [m'aider](https://voiretmanger.fr/soutien/) ?
+
+- [Acheter le film en Blu-ray sur Amazon](http://www.amazon.fr/gp/product/B00PQTNWS2/ref=as_li_ss_tl?ie=UTF8&tag=leblogdenic07-21&linkCode=as2&camp=1642&creative=19458&creativeASIN=B00PQTNWS2)
+- [Acheter le film en DVD sur Amazon](http://www.amazon.fr/gp/product/B00PQTNXUE/ref=as_li_ss_tl?ie=UTF8&tag=leblogdenic07-21&linkCode=as2&camp=1642&creative=19458&creativeASIN=B00PQTNXUE)
+- [Acheter ou louer le film sur l'iTunes Store](https://itunes.apple.com/fr/movie/asterix-le-domaine-des-dieux/id935335962)
+</div>
