@@ -1,0 +1,44 @@
+---
+ID: 3938
+post_title: '<em>Captifs</em>, Yann Gozlan'
+post_name: captifs-gozlan
+author: Nicolas
+post_date: 2010-08-26 23:32:04
+post_excerpt: "Captifs est un survival très classique, mais plutôt efficace quand il s'agit de susciter l'effroi du spectateur. Réaliste et bien réalisé malgré un budget sensiblement limité, ce premier film de Yann Gozlan mérite que l'on s'y intéresse."
+layout: post
+link: https://voiretmanger.fr/captifs-gozlan/
+published: true
+tags:
+  - Huis clos
+  - Prison
+  - Survival
+  - Thriller
+  - Vite oublié
+categories:
+  - À voir
+---
+<p><em>Captifs</em>, premier film de Yann Gozlan, est ce que l'on appelle un "film de genre", soit un film qui suit le schéma attendu d'un genre. En l'occurrence, il s'agit du thriller tendance survival : prenez des gentils, mettez les dans les mains de méchants, et filmez jusqu'à ce qu'il n'y ait plus un seul gentil et/ou méchant. Le cinéma de genre semble revenir en force dans le cinéma français, et <em>Captifs</em> est un des représentants de ce retour. Le résultat est plutôt réussi, quoique très convenu.</p>
+
+<a href="http://www.allocine.fr/film/fichefilm_gen_cfilm=148444.html"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2010/08/captifs-gozlan.jpg" border="0" alt="captifs-gozlan.jpg" width="690" height="934" /></a>
+
+<p>Dans <em>Captifs</em>, les gentils sont trois Français membres d'une mission humanitaire dans les Balkans. Une femme, Carole, et deux hommes qui ont terminé leur mission et rentrent chez eux. Sur le chemin du retour, ils se perdent totalement dans un pays qu'il connaisse mal et où la sécurité routière n'a manifestement pas son travail tant les panneaux indicateurs sont absents. Ils finissent par tomber sur une ferme marquée par les combats où ils demandent leur chemin. Mais chemin faisant, des hommes cagoulés et armés les arrêtent et les enferment dans les cellules du sous-sol d'une ferme isolée. Les voilà tous captifs, d'où le titre, sans savoir ni par qui, ni pourquoi. Leurs ravisseurs prennent soin d'eux, les soignent et ils s'attendent à une demande de rançon qui pourrait donc leur permettre de s'en sortir la vie sauve. Mais l'ambiance lourde ne laisse aucun doute sur la question, leur sort sera bien plus cruel. Je ne veux rien révéler de l'intrigue, car cela nuirait indéniablement au suspense et à l'intérêt du film, mais rappelons tout de même qu'il s'agit d'un survival…</p>
+<p>Inutile de le nier, <em>Captifs</em> est assez efficace. Sans effrayer véritablement, le film instaure une ambiance oppressante et glauque dès la première scène de prison et il faut avouer que le stress de l'attente puis l'horreur de la découverte de la vérité sont bien rendus par Yann Gozlan. Sa prison est très simple et classique, avec ses murs sales, ses barreaux aux fenêtres et ses vieux matelas posés sur le sol. Elle constitue un huis clos propice aux montées de tension et le spectateur est autant pris par l'inquiétude de l'inconnu que peuvent l'être les personnages. Les méchants sont vraiment très méchants, sadiques avec leurs petits rites qui visent à détruire psychologiquement les prisonniers. Tout le dispositif tourne autour d'un vieux téléphone dans le couloir, téléphone annonciateur d'horreurs comme on le pressent avant même qu'elles surviennent. Faute de moyens suffisants pour proposer une fresque épique, Yann Gozlan a parié sur la bande-son et c'est indéniablement une bonne idée, même si son usage est parfois trop systématique ou classique, à la limite de la caricature. Un soin particulier a été apporté à l'environnement sonore : les chiens qui aboient, une petite fille qui pleure, une porte qui grince, des pneus qui crissent et annoncent une libération, peut-être, ou la fin… Le point de vue en général centré sur le personnage de Carole permet une immersion subjective plus efficace encore : quand une mine explose près d'elle, elle est sourde quelques minutes et la bande-son du film est également étouffée, par exemple. Un procédé déjà rencontré au cinéma, mais qui prouve ici encore son efficacité.</p>
+
+<div style="text-align: center;"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2010/08/captifs-elmaleh-felix-gozlan.jpg" border="0" alt="captifs-elmaleh-felix-gozlan.jpg" width="690" height="388" /></div>
+
+Efficace pour susciter l'horreur et l'effroi, plutôt que vraiment la peur, <em>Captifs</em> se plante par contre en voulant apporter une couche supplémentaire avec l'enfance de Carole. Le film ouvre ainsi sur une partie de cache-cache entre la jeune Carole et son amie. Les deux petites filles, moins de 10 ans, s'entendent à merveille et jouent dans une ferme, jusqu'à ce que Carole retrouve son amie à moitié dévorée par un gros chien. Elle s'enferme alors dans une voiture qui se trouvait là alors que le chien enragé fait tout pour entrer. Filmé à la manière de certains films d'horreur, avec comme seule idée en tête de faire sursauter le spectateur[^1], cette séquence est très nettement marquée du sceau du traumatisme de l'enfance. Par la suite, <em>Captifs</em> exploitera ce traumatisme jusqu'à plus soif, et même au-delà. Si la phobie des chiens de Carole est assez bien exploitée, même si de manière un peu lourde, la petite fille qu'elle sauve comme pour sauver métaphoriquement son amie d'enfance est vraiment, très clairement, de trop. C'est inutile et cela nuit même à l'histoire en l'éloignant du genre du survival. Dommage donc, mais cette erreur de parcours ne gâche pas tout le film et reste suffisamment discret pendant l'essentiel du film.
+
+<p><em>Captifs</em> n'a pas bénéficié d'un budget digne d'Hollywood ou même des comédies françaises, mais cela ne se voit pas trop. Yann Gozlan a su faire des choix malins, à commencer par celui d'un genre assez simple (un survival linéaire) et d'un huis clos qui simplifie grandement les problèmes de décors. Avec un peu de forêts et une ferme alsaciennes, il constitue des Balkans convaincants et le décor de prison, central dans le film, est attendu, mais réussi. Si le film commence avec une photographique proche du documentaire, il s'enrichit néanmoins d'effets esthétisants assez bien vus pour accentuer encore le stress des spectateurs. La lumière devient plus faible, les couleurs disparaissent et Gozlan filme au plus près l'effroi de ses personnages. Mais le plus malin reste certainement la bande-son. On a déjà évoqué son efficacité, même si elle est parfois un peu trop grossière et sonne plus comme la parodie de la musique d'un film d'horreur, perdant au passage toute efficacité. Ne faisons pas trop la fine bouche (oreille, plutôt), <em>Captifs</em> propose un environnement sonore bien fichu qui accentue le stress, tout en évitant au réalisateur de trop en faire avec l'image. Si les budgets étaient serrés, les économies n'ont pas été réalisées sur la chair et le sang et même si on ne voit jamais que le résultat (dommage, une extraction oculaire en direct, voilà qui aurait été bien fun), c'est réussi : à bon entendeur…</p>
+
+<div style="text-align: center;"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2010/08/captifs-eric-savin.jpg" border="0" alt="captifs-eric-savin.jpg" width="690" height="369" /></div>
+<p><em>Captifs</em> est un survival très classique et les amateurs du genre seront sans doute peu surpris. Mais le film de Yann Gozlan ne démérite pas et se révèle efficace pour susciter l'effroi chez les spectateurs. Il faut dire que le cadre réaliste — à tel point que, comme le clame l'affiche, l'histoire serait inspirée de faits réels — se révèle très efficace pour s'identifier aux personnages. Dommage, dès lors, que le réalisateur ait eu l'idée saugrenue d'ajouter au genre très simple du survival une touche vaguement psychologique qui n'avait rien à faire ici et qui gêne plus qu'autre chose. Le cinéma français peut-il vraiment faire du cinéma de genre ? La question reste posée… En attendant, ce premier film mérite qu'on s'y intéresse.</p>
+
+<div class="amazon" markdown="1">
+### Vous voulez [m'aider](https://voiretmanger.fr/soutien/) ?
+
+- [Acheter le film en Blu-ray sur Amazon](http://www.amazon.fr/gp/product/B004BF6O3M/ref=as_li_ss_tl?ie=UTF8&tag=leblogdenic07-21&linkCode=as2&camp=1642&creative=19458&creativeASIN=B004BF6O3M)
+- [Acheter le film en DVD sur Amazon](http://www.amazon.fr/gp/product/B004BF6O00/ref=as_li_ss_tl?ie=UTF8&tag=leblogdenic07-21&linkCode=as2&camp=1642&creative=19458&creativeASIN=B004BF6O00)
+- [Acheter ou louer le film sur l'iTunes Store](https://itunes.apple.com/fr/movie/captifs/id957778178)
+</div>
+
+[^1]: Et à mon profond énervement, je suis toujours aussi bon public à ce genre de plaisanterie. Pourtant, ce n'est pas faute de savoir que cela va se passer. Mais c'est plus fort que moi, incontrôlable, et je sursaute sur mon fauteuil quand cela arrive…
