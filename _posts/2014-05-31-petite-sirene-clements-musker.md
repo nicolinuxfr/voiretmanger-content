@@ -1,0 +1,44 @@
+---
+ID: 11678
+post_title: '<em>La Petite Sirène</em>, Ron Clements et John Musker'
+post_name: petite-sirene-clements-musker
+author: Nicolas
+post_date: 2014-05-31 11:30:57
+post_excerpt: "Après des années difficiles, <em>La Petite Sirène</em> permet aux studios Disney de revenir sur le devant de la scène. En retournant aux contes européens du XIXe sicèle, Ron Clements et John Musker signent plus plus qu'un classique parmi d'autres, ils fondent les bases des années à venir pour le studio. Une réussite indémodable !"
+layout: post
+link: >
+  https://voiretmanger.fr/petite-sirene-clements-musker/
+published: true
+tags:
+  - Adaptation littéraire
+  - Amour
+  - Animation
+  - Animaux
+  - Comédie musicale
+  - Conte
+  - Drame
+  - Famille
+categories:
+  - À voir
+---
+Pour les studios d'animation Disney, *La Petite Sirène* est leur dernière carte. Après des années difficiles, avec quelques succès commerciaux certes, mais dépourvues de classiques dignes des premiers chef-d'œuvres, la branche animation est sur le point de fermer, ou plutôt de se recentrer sur les petites séries qui commencent à très bien fonctionner à la télévision. Pourtant, le succès de [*Basil, détective privé*](https://voiretmanger.fr/basil-detective-prive-clements-mattinson-michener-musker/ "Basil, détective privé, Ron Clements, Burny Mattinson, David Michener et John Musker"), sorti en 1986, permet de laisser au studio une nouvelle chance et les dirigeants d'alors décident d'offrir une vraie chance en misant tout sur un film aussi ambitieux qu'à la grande époque. Plus ambitieux, même, puisque le vingt-huitième [classique Disney](https://voiretmanger.fr/saga/classiques-danimation-disney/) est le plus coûteux de l'histoire du studio à sa sortie. Dernier film d'animation à utiliser les techniques traditionnelles de dessin, c'est aussi le premier d'une longue série. Entre retour au conte et nouvelles idées, Ron Clements et John Musker posent avec *La Petite Sirène* les bases du renouveau du studio d'animation. Ils marquent ainsi durablement le studio — c'est encore eux qui ont réalisé [*La Princesse et la grenouille*](https://voiretmanger.fr/princesse-grenouille-walt-disney/ "La Princesse et la grenouille, John Musker et Ron Clements"), plus de vingt ans plus tard — et composent au passage un classique qui n'a pas pris une ride. 
+
+<div style="text-align:center;"><a href="http://www.allocine.fr/film/fichefilm_gen_cfilm=18115.html"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2014/05/la-petite-sirene-disney.jpg" alt="La petite sirene disney" title="la-petite-sirene-disney.jpg" width="1000" height="1573" /></a></div>
+
+En adaptant un conte européen du XIXe siècle, les studios Disney semblent d'abord revenir à leurs origines. Plus de cinquante ans après la sortie de [*Blanche-Neige et les sept nains*](https://voiretmanger.fr/blanche-neige-sept-nains-hand/ "Blanche-Neige et les sept nains, David Hand") qui ouvrait cette tradition des adaptations européennes et exactement trente ans après le dernier conte adapté — c'était [*La Belle au bois dormant*](https://voiretmanger.fr/belle-bois-dormant-geronimi/ "La Belle au bois dormant, Clyde Geronimi"), en 1959 —, un classique va à nouveau chercher dans les contes. Celui de Hans Christian Andersen qui est à la base de *La Petite Sirène* n'a pas été découvert récemment par le studio, au contraire même. Le projet de l'adapter remonte à la fin des années 1930, aux origines de Disney presque. Le projet avait alors été abandonné pour diverses raisons, la principale étant sans doute financière : raconter l'histoire d'Ariel, une sirène, est très ambitieux et le studio affronte les années 1940 avec des revenus réduits à cause de la Seconde Guerre mondiale. Fin des années 1980, les équipes en charge de Disney sentent que le studio d'animation est à nouveau dans une impasse. Les finances ne sont plus trop un problème, mais aucun classique récent n'a su attirer les foules et les derniers longs-métrages n'ont plus l'ambition d'autrefois. Pour relancer la machine, quoi de plus naturel qu'un conte traditionnel ? Pourtant, à première vue, Ron Clements et John Musker ne s'attaquent pas au plus facile avec cette histoire d'amour impossible qu'il a fallu embellir et lui greffer une fin heureuse. Quoi qu'il en soit, *La Petite Sirène* retrouve une profondeur dans le propos qui pouvait manquer à ses prédécesseurs et si les animaux sont toujours présents et parlants, les humains retrouvent la première place, même si c'est souvent sous la forme de sirène. Un retour aux sources qui fait du bien au long-métrage, tout en relançant le mythe de la princesse, largement oublié par le studio. C'est aussi pour cela que l'on a tant l'impression de voir une renaissance : sur de nombreux points, Walt Disney semble retrouver sa première vocation avec cette adaptation d'un conte traditionnel. 
+
+<div style="text-align:center;"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2014/05/clements-musker-disney-la-petite-sirene.jpg" alt="Clements musker disney la petite sirene" title="clements-musker-disney-la-petite-sirene.jpg" width="1800" height="1200" /></div>
+
+Sur le plan technique aussi, *La Petite Sirène* crée une rupture. Ce n'est pas forcément du côté de l'animation à proprement parler qu'il faut chercher les nouveautés, même si le vingt-huitième classique est intéressant pour être le dernier à être entièrement réalisé à l'ancienne, sur du papier. Certaines séquences, dont une dans un escalier qui se repère facilement, ont été dessinées par un ordinateur, mais tout le travail de peinture a entièrement été réalisé à la main. Quand on pense aux séquences sous-marines et aux milliers de bulles que l'on peut voir, on se dit que ce n'était pas une mince affaire. De fait, le long-métrage réalisé par Ron Clements et John Musker est le plus ambitieux du studio, et celui qui a coûté le plus cher à réaliser à sa sortie. Un pari dangereux pour Disney, mais on voit bien que l'entreprise qui gagne désormais de l'argent aussi avec la télévision et ses parcs d'attraction a tout misé sur ce nouvel opus. Paradoxalement, les dessins ne sont pas aussi travaillés que par le passé et notamment pour les personnages qui sont dessinés de manière assez simples. Sur ce point, les animateurs ont opté pour une simplicité plutôt bien vue : quand on revoit le film aujourd'hui, l'âge du film ne se sent pas et on pourrait très bien imaginer qu'il vient de sortir, à quelques détails près. Une belle performance, mais la plus grosse nouveauté n'est pas visuelle, mais auditive. Pour la première fois dans l'histoire du studio, les chansons ne sont pas là simplement parce qu'il faut faire chanter les personnages, mais pour faire avancer l'action. À l'image d'une comédie musicale, *La Petite Sirène* exploite les chansons non seulement pour évoquer une situation, mais aussi comme moyen d'avancer dans le récit. On voit ainsi Ariel qui se demande si elle veut devenir humaine et abandonner sa condition de sirène pour retrouver son prince, et c'est la chanson qui la décide. Plus tard, c'est la sorcière Ursula qui dévoile son plan en chanson et le met en œuvre pendant qu'elle chante. Cela peut nous sembler tout à fait banal aujourd'hui et pour cause, tous les films d'animation sortis depuis en font autant. À l'époque toutefois, c'était une vraie nouveauté et c'est sans conteste la plus importante pour le studio.
+
+<div style="text-align:center;"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2014/05/disney-la-petite-sirene.jpg" alt="Disney la petite sirene" title="disney-la-petite-sirene.jpg" width="1800" height="1200" /></div>
+
+Porté par une histoire de princesse classique, mais bien menée, *La Petite Sirène* est un classique qui se regarde avec encore beaucoup de plaisir. La méchante est ici terrifiante à souhait et les enjeux sont vraiment dramatiques : Ariel doit-elle abandonner sa famille pour retrouver un ennemi naturel ? Ron Clements et John Musker trouvent le ton juste et le bon rythme et composent un grand classique, un de ceux qui ont attiré des millions de spectateurs dans les salles et qui conservent toujours autant de succès avec les années. *La Petite Sirène* est indémodable : à voir et à revoir !
+
+<div class="amazon" markdown="1">
+### Vous voulez [m'aider](https://voiretmanger.fr/soutien/) ?
+
+- [Acheter le film en Blu-ray sur Amazon](http://www.amazon.fr/gp/product/B00DE6NGOO/ref=as_li_ss_tl?ie=UTF8&tag=leblogdenic07-21&linkCode=as2&camp=1642&creative=19458&creativeASIN=B00DE6NGOO)
+- [Acheter le film en DVD sur Amazon](http://www.amazon.fr/gp/product/B00GS0X9CC/ref=as_li_ss_tl?ie=UTF8&tag=leblogdenic07-21&linkCode=as2&camp=1642&creative=19458&creativeASIN=B00GS0X9CC)
+- [Acheter ou louer le film sur l'iTunes Store](https://itunes.apple.com/fr/movie/la-petite-sirene/id705684208)
+</div>
