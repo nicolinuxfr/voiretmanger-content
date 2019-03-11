@@ -1,0 +1,46 @@
+---
+ID: 11932
+post_title: '<em>La Planète des Singes : l&rsquo;affrontement</em>, Matt Reeves'
+post_name: planete-singes-affrontement-reeves
+author: Nicolas
+post_date: 2014-07-29 23:56:32
+post_excerpt: "<em>La Planète des Singes : l'affrontement</em> poursuit la saga et, après un reboot réussi, ces premiers combats entre les singes et les hommes sont explosifs et impressionnants, mais aussi passionnants. Matt Reeves ne favorise pas un camp plutôt que l'autre dans cette relecture pour le moins inquiétante."
+layout: post
+link: >
+  https://voiretmanger.fr/planete-singes-affrontement-reeves/
+published: true
+tags:
+  - Action
+  - Animaux
+  - Apocalypse
+  - Blockbuster
+  - Dystopie
+  - Famille
+  - Guerre
+  - Maladie
+  - Science-Fiction
+  - Sorties du moment
+categories:
+  - À voir
+---
+La saga de [*La Planète des Singes*](https://voiretmanger.fr/saga/la-planete-des-singes/) comptait déjà plusieurs films et une mythologie bien ancrée quand Rupert Wyatt a eu l'idée saugrenue d'en proposer un redémarrage. Sorti en 2011, [*La Planète des Singes : les origines*](https://voiretmanger.fr/planete-singes-origines-wyatt/ "La Planète des Singes : les origines, Rupert Wyatt") laissait envisager le pire — qui voudrait d'un reboot de [*La planète des Singes*](https://voiretmanger.fr/planete-singes-schaffner/ "La planète des Singes, Franklin J. Schaffner"), l'original des années 1960 ? Fort heureusement, le long-métrage était bien différent : en recommençant à zéro, ce blockbuster a marqué les esprits par son réalisme dans un cadre tout à fait contemporain. Trois ans après, l'histoire se poursuit avec logiquement, après les origines, les premiers combats. *La Planète des Singes : l'affrontement* n'est plus signé du même réalisateur, mais Matt Reeves n'a pas cherché à se distinguer et il reste dans la droite ligne de son prédécesseur. Et c'est tant mieux : ces premiers combats entre singes et humains sont une vraie réussite, car ils sont étouffants et inquiétants. Un blockbuster estival, explosif sans être stupide, à ne pas rater, même si vous n'avez jamais vu que le précédent film. C'est même encore mieux si vous ne connaissez rien de l'histoire originale et que vous ignorez l'issue des affrontements : allez-le voir avant de lire la suite !
+
+<div style="text-align:center;"><a href="http://www.allocine.fr/film/fichefilm_gen_cfilm=206986.html"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2014/07/planete-singes-affrontement-reeves.jpg" alt="Planete singes affrontement reeves" title="planete-singes-affrontement-reeves.jpg" width="1400" height="2068" /></a></div>
+
+On quittait *La Planète des Singes : les origines* sur une image assez terrifiante : les premiers singes rendus intelligents par l'action du traitement pour Alzheimer se libèrent et quittent San Francisco pour la forêt. Alors que le générique de cette suite instaure un climat anxiogène en évoquant une maladie qui s'est développée dans le monde entier, offrant aux singes leur intelligence tout en décimant les populations humaines, Matt Reeves ouvre son film sur une séquence extrêmement angoissante. La première image est centrée sur des yeux et on reconnaît ceux de César, le tout premier singe intelligent devenu leader des autres primates des environs. Le groupe a grossi depuis la fin du premier film et les singes sont désormais très nombreux et très bien organisés. Ils se préparent à une attaque et on s'attend à ce qu'ils s'en prennent aux hommes… il n'en est rien. *La Planète des Singes : l'affrontement* réussit le tour de force de nous faire penser que les singes s'en prennent aux hommes, alors qu'ils sont simplement partis chasser des biches. Quand on le comprend, une question s'installe dans la salle : pourquoi n'y a-t-il pas d'hommes contre ces singes ? Cette question n'a pas de réponse immédiate, et pour cause : pendant une dizaine de minutes environ, on ne voit strictement que des singes. Des sous-titres nous permettent de comprendre les gestes des animaux, tandis que l'on découvre la société qu'ils ont mis en place, avec même une sorte de place forte qui les protège des autres menaces de la nature. Pendant tout ce temps, les hommes sont absents, tout simplement. César se demande s'il en reste un seul et on ne peut pas s'empêcher d'y penser aussi. Peu à peu, le doute s'installe et, en tant que spectateurs bien humains, on est pris par un sentiment étrange, un malaise face à ces singes qui ont pris le pouvoir et semblent avoir décimés tous les hommes de la planète.
+
+<div style="text-align:center;"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2014/07/planete-singes-affrontement-matt-reeves.jpg" alt="Planete singes affrontement matt reeves" title="planete-singes-affrontement-matt-reeves.jpg" width="2100" height="1400" /></div>
+
+Naturellement, ce doute finit par se dissiper quand l'affrontement annoncé dans le titre survient enfin. Matt Reeves adopte d'abord le point de vue des singes, mais on découvre aussi quelques protagonistes humains, et c'est encore l'occasion d'une surprise. Contrairement à ce que l'on pouvait croire, *La Planète des Singes : l'affrontement* n'exploite plus les personnages de son prédécesseur, et ce sont de nouveaux héros que l'on découvre pour celui-ci. En l'occurrence, Malcom est envoyé dans la forêt par le chef d'un camp de réfugiés barricadé dans un immeuble de San Francisco. Son objectif, restaurer un ancien barrage pour qu'il produise de l'électricité. Dans l'univers post-apocalyptique que l'on découvre au fil du film, la maladie a fait tellement de ravages que les sociétés se sont effondrées, et les centrales nucléaires avec elles. Pour avoir de l'électricité et survivre, la communauté humaine a besoin de ce barrage qui se trouve, on s'en doute, en plein cœur du territoire contrôlé par les singes. *La Planète des Singes : l'affrontement* tourne entièrement autour de cet enjeu local et assez simple avec, dans chaque camp, des partisans de la guerre. Les hommes sont peu nombreux et affaiblis, mais ils ont encore pour eux une force de frappe incomparable avec leurs armes. Les singes quant à eux sont bien plus nombreux et plus forts, tandis que leur intelligence est toujours plus développée, un atout précieux. Sur cette base, Matt Reese aurait pu signer un blockbuster conventionnel très guerrier, mais le cinéaste a l'intelligence d'en faire un petit peu plus. Mettant en parallèle les deux camps, le long-métrage montre bien que les singes et les hommes ne sont, au fond, pas si différents et qu'il n'y en a pas vraiment un pour sauver l'autre. On n'en dira pas trop pour préserver le suspense bien réel, même si l'issue de *La Planète des Singes : l'affrontement* ne fait pas vraiment de doute. Quoi qu'il en soit, on se demande toujours comment ces premiers combats vont se terminer, et le film a la bonne idée de ne pas imposer un camp plutôt qu'un autre. Si on a tendance à se retrouver plutôt du côté des humains cette fois, les singes ne sont pas de monstrueuses créatures que l'on peut détester en bloc, les choses sont plus complexes que cela.
+
+<div style="text-align:center;"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2014/07/reeves-planete-singes-affrontement.jpg" alt="Reeves planete singes affrontement" title="reeves-planete-singes-affrontement.jpg" width="1728" height="1152" /></div>
+
+*La Planète des Singes : l'affrontement* est plus classique que son prédécesseur en faisant s'affronter singes et humains, certes. Mais le film de Matt Reeves n'est absolument pas la déception que l'on pouvait craindre : certes, ce blockbuster estival est spectaculaire et on reconnaît bien dans certaines scènes impressionnantes la patte du réalisateur de *Cloverfield*, mais le long-métrage n'en a pas oublié son scénario pour autant. Plutôt que de se concentrer sur quelques humains héroïques, le scénario est plutôt équilibré et évite tout manichéisme. Au fond, les deux camps sont renvoyés dos à dos, une idée assez gonflée, car plutôt déprimante, pour un film aussi grand public. Ce choix est plutôt heureux, tant les acteurs en chair et en os sont inférieurs aux singes qui sont plus vrais que nature, malgré leur origine numérique. *La Planète des Singes : l'affrontement* est un grand spectacle qui ne manque pas de réflexion sur la place de l'homme dans la nature, un blockbuster convaincant à ne pas manquer !
+
+<div class="amazon" markdown="1">
+### Vous voulez [m'aider](https://voiretmanger.fr/soutien/) ?
+
+- [Acheter le film en Blu-ray sur Amazon](http://www.amazon.fr/gp/product/B00M8B0Z6I/ref=as_li_ss_tl?ie=UTF8&tag=leblogdenic07-21&linkCode=as2&camp=1642&creative=19458&creativeASIN=B00M8B0Z6I)
+- [Acheter le film en DVD sur Amazon](http://www.amazon.fr/gp/product/B00M8B0YKU/ref=as_li_ss_tl?ie=UTF8&tag=leblogdenic07-21&linkCode=as2&camp=1642&creative=19458&creativeASIN=B00M8B0YKU)
+- [Acheter ou louer le film sur l'iTunes Store](https://itunes.apple.com/fr/movie/la-planete-des-singes-laffrontement/id892897919)
+</div>
