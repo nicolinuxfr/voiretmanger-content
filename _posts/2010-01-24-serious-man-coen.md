@@ -1,0 +1,45 @@
+---
+ID: 2529
+post_title: '<em>A Serious Man</em>, Joel et Ethan Coen'
+post_name: serious-man-coen
+author: Nicolas
+post_date: 2010-01-24 00:38:01
+post_excerpt: "A Serious Man pourrait être une comédie légère à base d'humour juif s'il ne s'agissait pas d'un film des frères Coen. Du coup, c'est un film bien plus ambitieux et passionnant doté d'un humour très noir. "
+layout: post
+link: >
+  https://voiretmanger.fr/serious-man-coen/
+published: true
+tags:
+  - Humour
+  - Philosophie
+  - Religion
+  - Société
+categories:
+  - À voir
+---
+<p>Avec <em>A Serious Man</em>, les deux frères Coen réussissent encore une fois à surprendre, tout en conservant leur style si particulier, une folie toujours plus affirmée au fil des films. On dit souvent que le duo alterne projets ambitieux et sérieux et films plus légers. Si <em>A Serious Man</em> est une comédie comme <em><a href="https://voiretmanger.fr/2008/12/11/burn-after-reading/">Burn After Reading</a></em>, leur film précédent, on est ici très loin de la légèreté de ce dernier. L'humour se fait ici très noir et ironique. Une vraie réussite.</p>
+
+<div style="text-align: center;"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2010/01/a-serious-man.jpg" border="0" alt="a-serious-man.jpg" width="600" height="924" /></div>
+<p><em>A Serious Man</em> raconte les (mes)aventures de Larry Gopnik, un jeune professeur de physique de l'université de Minneapolis en attente d'une titularisation. Sa vie semble réglée comme une montre suisse et suit tous les archétypes de la Middle-Class américaine des années 1960 : grosse voiture, pavillon de banlieue avec un petit jardin ouvert autour, une femme, deux enfants, un garçon et une fille. La titularisation est en bonne voie, il aime son travail, et tout semble aller pour le mieux dans le meilleur des mondes.</p>
+<p>Sauf que cela ne se passe jamais vraiment comme prévu chez les frères Coen. Ça ne manque pas cette fois, puisque les ennuis commencent très vite pour ce pauvre Larry. Des ennuis qu'il accumule d'ailleurs pendant tout le film, dans une montée en puissance des plus grisante et qui rappelle certains titres de musique. C'est d'abord au sein de la famille que naissent les problèmes : sa femme, qui constate de nombreux "problèmes" dans le couple, veut le quitter et lui annonce un soir qu'ils devraient penser au divorce. Puis c'est sa titularisation qui est remise en cause, alors qu'un élève sud-coréen cherche à acheter son année. Les ennuis s'ajoutent les uns aux autres, impitoyablement, et notre héros n'en peut bientôt plus.</p>
+
+<div style="text-align: center;"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2010/01/serious-man-coen.jpg" border="0" alt="serious-man-coen.jpg" width="600" height="400" /></div>
+<p>Larry est juif et pour régler ses multiples problèmes, quoi de mieux qu'un conseil de son rabbin ? C'est en tout cas ce que lui conseille son entourage et il finit par accepter l'idée. <em>A Serious Man</em> contient ainsi trois confrontations avec trois rabbins différents, trois moments clés du film si l'on en croit le choix des réalisateurs de les marquer d'un écran noir et d'un gimmick audio pour les introduire. Ces trois rendez-vous psycho-religieux sont en tout cas des climax dans l'humour. Chacun à leur manière, ne répondent au mieux pas à Larry, mais bien souvent l'enfoncent encore un peu plus dans les ennuis. Ce sont l'occasion de succulentes scènes, comme le récit très amusant du dentiste, ou encore une obsession pour un parking.</p>
+<p>L'humour est omniprésent dans le film, d'ailleurs classé dans le genre de la comédie. Mais il ne s'agit pas d'un humour au premier degré, comme ce pouvait l'être pour <em>Burn After Reading</em> (et encore, je ne suis pas sûr que les frères Coen aient jamais réalisé un film au premier degré). Non, l'humour ici est noir, ironique, mordant. Le scénario n'est, de toute façon, pas des plus gais et la fin est très éloignée des traditionnels happy-ends à l'américaine. C'est aussi souvent un humour que l'on range dans la catégorie un peu vague de l'humour juif, et <em>A Serious Man</em> aurait pu, par certains aspects, être réalisé par Woody Allen. Le poids de traditions parfois stupides et d'une communauté souvent bien trop pesante, les messages pseudo-philosophiques pour agir en fonction de la volonté de Dieu… autant d'éléments qui auraient trouvé leur place chez le New-Yorkais.</p>
+
+<div style="text-align: center;"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2010/01/coen-serious-man.jpg" border="0" alt="coen-serious-man.jpg" width="600" height="406" /></div>
+<p>Sauf que Joel et Ethan Coen imposent vite leur marque, qui pourrait se résumer à la folie. Folie des personnages bien sûr, et folie ici d'un Larry qui perd visiblement la tête, fait les pires rêves et ne sait visiblement pas du tout comment s'en sortir. On le voit sur le point de craquer, voire craquer tout à fait. Folie aussi du scénario, imprévisible et hors de contrôle, à l'image du mythique rabbin qui, devant un jeune ébahi qui vient tout juste de faire sa Bar Mitzvah, les noms des membres du mythique groupe <a href="http://fr.wikipedia.org/wiki/Jefferson_Airplane">Jefferson Airplanes</a>, comme s'il fallait y trouver un enseignement biblique. L'histoire peut ainsi brusquement prendre un tournant comique, tandis que le scénario se permet des excroissances digressives, comme toute l'histoire du jeune Sud-Coréen, mais aussi bien sûr comme le début du film. <em>A Serious Man</em> commence en effet, pour une raison qui reste largement mystérieuse, par une sorte de parabole en yiddish où un couple est menacé par le diable, mais réussit à le vaincre. Je ne sais pas ce que les réalisateurs ont voulu faire — montrer la place des femmes dans la société juive et <em>a contrario</em> la faiblesse des hommes ? signaler que la poisse peut arriver n'importe où, n'importe quand, à n'importe qui ? ou tout simplement s'amuser autour d'un cinéma différent ? –, mais cette introduction ne manque pas d'étonner.</p>
+<p>Le film est porté par un Michael Stuhlbarg très convaincant pour interpréter Larry, mais aussi par la musique. Elle prend ici (comme toujours ?) une place essentielle, les Jefferson Airplane jouant presque un rôle à eux tous seuls. Ce sont, en tout cas, eux qui offrent au film "Somebody To Love", une chanson mise en avant dès la bande-annonce, qui ouvre le film et qui est ensuite reprise à plusieurs reprises. Inconsciemment, elle impose à tout le film son rythme et son refrain évoque en boucle la nécessité d'aimer et d'être aimé. Comme si le film offrait une autre solution à Larry, fort différente des solutions religieuses.</p>
+
+<div style="text-align: center;"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2010/01/serious-man-freres-coen.jpg" border="0" alt="serious-man-freres-coen.jpg" width="600" height="371" /></div>
+<p>Une fois encore, Joel et Ethan Coen s'imposent comme de grands réalisateurs. Sous des apparences légères, <em>A Serious Man</em> est en fait un film plus grave qu'il n'en a l'air, posant de nombreuses questions sur la vie, la religion et même les sciences. Les frères Coen proposent une vision du monde très désabusée, cynique et réjouissante à condition d'aimer l'humour noir. On n'éclate pas de rire toutes les trente secondes, mais tout le film est empreint d'un humour finalement assez subversif.</p>
+<p>La critique "officielle" est largement <a href="http://www.allocine.fr/film/revuedepresse_gen_cfilm=128311.html">unanime et enthousiaste</a>, et on retrouve cette tendance dans la blogosphère. Rob a ainsi <a href="http://www.toujoursraison.com/2010/01/serious-man.html">beaucoup aimé</a>, idem chez <a href="http://laternamagika.wordpress.com/2010/01/22/a-serious-man-de-joel-et-ethan-coen/">Lantera Magica</a>. Le Dr Orlof est enchanté et il <a href="http://drorlof.over-blog.com/article-le-principe-d-incertitude--43451954.html">explique longuement pourquoi</a> : ses arguments sont vraiment convaincants et valent le détour, notamment sur la destruction du monde rassurant des sciences au profit de celui, beaucoup plus inquiétant, de la religion. Par contre, <a href="http://www.critikat.com/A-Serious-Man.html">Critikat</a> n'a pas aimé du tout, voyant un film "sans grande folie, et presque sans surprises". Étonnant...</p>
+
+<div class="amazon">
+<h3>Vous voulez m'aider ? ((<a href="https://voiretmanger.fr/soutien/">À propos de la publicité…</a>))</h3>
+<ul>
+	<li><a href="http://www.amazon.fr/gp/product/B002E2M5IC/ref=as_li_ss_tl?ie=UTF8&tag=leblogdenic07-21&linkCode=as2&camp=1642&creative=19458&creativeASIN=B002E2M5IC">Acheter le film en Blu-Ray sur Amazon</a></li>
+	<li><a href="http://www.amazon.fr/gp/product/B0037W55Q2/ref=as_li_ss_tl?ie=UTF8&tag=leblogdenic07-21&linkCode=as2&camp=1642&creative=19458&creativeASIN=B0037W55Q2">Acheter le film en DVD sur Amazon</a></li>
+	<li><a href="https://itunes.apple.com/fr/movie/a-serious-man/id375352678">Acheter ou louer le film sur l'iTunes Store</a></li>
+</ul>
+</div>
