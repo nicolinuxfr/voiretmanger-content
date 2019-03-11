@@ -1,0 +1,69 @@
+---
+ID: 3072
+post_title: Peter Gabriel à Bercy (22 mars 2010)
+post_name: peter-gabriel-bercy-mars-2010
+author: Nicolas
+post_date: 2010-03-23 02:00:59
+post_excerpt: >
+  Peter Gabriel sur scène parvient, comme
+  sur disque, à surprendre encore et
+  toujours. Ce concert était mon
+  troisième de lui, et ce fut encore une
+  autre expérience, aussi passionnante
+  que les précédentes. Où peut-on
+  acheter ses billets pour le prochain
+  concert en France ?
+layout: post
+link: >
+  https://voiretmanger.fr/peter-gabriel-bercy-mars-2010/
+published: true
+tags:
+  - Bercy
+  - Classique
+  - Concert
+  - Mélange
+  - Scratch My Back
+categories:
+  - À voir… en live
+---
+<p>Ce soir, pour la troisième fois, j'allais voir Peter Gabriel en live. C'est le seul artiste que j'ai vu trois fois sur scène en un temps finalement assez court, la première fois remontant à 2004. Mais comme sur ses albums, Peter Gabriel propose à chaque fois une nouvelle expérience. Ces trois concerts ont été très différents, de la grosse machine du Still Growing Up Tour au concert léger de festival, et ce soir un concert sans batterie ni guitare, encore différent de tout ce que j'avais pu entendre jusque-là. Ce soir, j'ai été surpris, j'ai frissonné de bonheur, et au bout de 3 bonnes heures de concert, ma première réaction a été "comment, déjà ?". En un mot, un excellent concert !</p>
+
+<div style="text-align: center;"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2010/03/peter-gabriel-new-blood.jpg" border="0" alt="peter-gabriel-new-blood.jpg" width="666" height="432" /></div>
+
+<p>La "tournée" New Blood à laquelle appartient ce concert parisien défend <em><a href="https://voiretmanger.fr/2010/02/08/scratch-my-back-peter-gabriel/">Scratch My Back</a></em>, album que j'ai déjà eu longuement l'occasion d'évoquer. À l'image des reprises sur l'album, les concerts de New Blood sont annoncés sans guitare, ni batterie, mais avec un orchestre symphonique pour remplacer les instruments traditionnels du rock. L'orchestre varie en fonction des localisations, à Paris c'était l'orchestre philharmonique de Radio France, rien que cela. Ce choix radical est pour le moins intéressant sur le papier (et pour ma part, je n'ai pas hésité bien longtemps avant d'acheter ma place), mais a deux inconvénients majeurs : en fait de tournée, il y a en tout et pour tout 5 dates en Europe, dont deux à Berlin et deux à Londres. Et puis le prix des places s'est apparemment hissé au niveau de l'opéra, avec les meilleures places qui se vendaient aux alentours de 200 €. J'ai payé ma place environ 70 €, mais je ne le regrette pas une seule seconde, tant chaque seconde du concert en valait le coup et le coût.</p>
+<p>Le concert commence avec une mini première partie assumée par Ane Brun, chanteuse tendance folk que je ne connaissais pas et qui assure aussi les chœurs avec Peter Gabriel. Ce dernier, fidèle à sa traditionnelle modestie, l'introduit en personne puis s'éclipse discrètement le temps de… deux morceaux. Difficile de parler de première partie donc, mais ça n'était pas désagréable et Bercy a été mis dans l'ambiance du concert. Après une pause, on aperçoit des dizaines de musiciens se glisser derrière le rideau de LEDs qui fait office, à ce moment, de mise en scène. L'ambiance monte d'un cran et c'est un Bercy déjà chargé à bloc qui accueille l'homme de la soirée, Peter Gabriel bien sûr. L'orchestre entame immédiatement les premières notes de "<em>Sledgehammer</em>", des notes évidemment connues de tous et les hurlements de joie ne se font pas attendre… très vite interrompues par le musicien qui donne alors le programme de cette soirée "nouvelle" où le tube, classique entre les classiques, n'a pas sa place.</p>
+
+<div style="text-align: center;"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2010/03/bercy-peter-gabriel-new-blood.jpg" border="0" alt="bercy-peter-gabriel-new-blood.jpg" width="560" height="373" /></div>
+<p>Le concert commence donc avec l'intégralité des morceaux de <em>Scratch My Back</em> proposés dans l'ordre, qui plus. Je ne suis pas trop fan de ce principe en règle générale, ce qui se justifie sur un album ne fonctionnant pas forcément en concert. Mais après tout, pourquoi pas, et cette idée a eu le mérite de rappeler que cet album de reprises possède en fait une très grande unité, tant technique que thématique. L'amour y prend ainsi une place prépondérante, comme en témoigne le grand usage des lumières rouges (couleur des habits des techniciens que Peter Gabriel met désormais systématiquement en avant). La salle n'apprécie pas forcément ses reprises, qu'elle ignore en grande partie ("<em>My Body is a Cage</em>" est un excellent moyen de détecter cette ignorance…) : les personnes derrière moi avouèrent même pendant l'entracte n'avoir reconnu aucun titre ! Sans aller jusque-là, le public de Bercy est moyennement réceptif, applaudissant poliment entre chaque morceau, sans faire preuve d'enthousiasme débordant.</p>
+<p>Quelques moments forts pendant cette première partie, les mêmes que sur l'album finalement. La reprise d'Arcade Fire m'a littéralement scotché, je l'ai trouvée excellente, aussi puissante que sur l'album, parfaite. Peut-être en attendais-je trop, mais "Après moi", la reprise de Regina Spektor, m'a semblé un peu moins forte que ce à quoi je pensais. Enfin, c'était très bon, comme l'ensemble de cette partie, avec évidemment mes préférences pour certains morceaux. Cette partie fut l'occasion de vérifier que Peter Gabriel a conservé toute sa voix, puissante et juste, mais aussi que l'acoustique d'une salle dépend d'abord et avant tout du soin que l'on apporte aux ondes qui sortent des enceintes. Je gardais un très bon souvenir de son précédent concert à Bercy, et là encore j'ai été très agréablement surpris par un son très propre.</p>
+
+<div style="text-align: center;"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2010/03/peter-gabriel-live-france-inter-104.jpg" border="0" alt="peter-gabriel-live-france-inter-104.jpg" width="667" height="429" /></div>
+<p>Après l'excellente reprise de Radiohead — certes, peut-être pas taillée pour une salle de la taille de Bercy —, le rideau rouge s'abaisse et on annonce vingt minutes d'entracte. Quand j'évoquais l'opéra, c'est vraiment ça, d'autant que le même rituel est observé : l'orchestre entre, puis son chef d'orchestre, et enfin seulement Peter Gabriel. Pendant ces vingt minutes, une question me travaille continuellement : que va-t-on nous proposer ensuite ? J'ignorais jusqu'à l'existence du concert donné en petit comité à Radio France et donc je n'avais rien lu dessus, et c'est tant mieux. Quand le rideau s'est à nouveau levé, je ne savais vraiment pas à quoi m'attendre. Et quelle ne fut pas ma surprise de constater que l'orchestre était toujours là, seul. La seconde partie a donc consisté en des relectures de titres plus ou moins anciens de Peter Gabriel.</p>
+<p>Relectures, le mot est encore faible. Les morceaux proposés ce soir n'avaient plus grand-chose à voir avec les originaux, un peu comme sur <em>Scratch My Back</em> finalement, comme si Peter Gabriel avait fait des reprises de ses propres titres. En général, les titres étaient reconnus par les paroles, non par la mélodie. C'est troublant de connaître un titre sur le bout des ongles, de l'avoir entendu dans des dizaines de versions et de ne pas le reconnaître immédiatement. C'est aussi le gage d'un renouvellement complet, indispensable pour éviter la monotonie des concerts. On peut sans doute reprocher beaucoup de choses à Peter Gabriel, mais certainement pas le fait de se répéter ! Ces relectures m'ont semblé inégales, forcément, on ne peut pas non plus être excellent en permanence. Elles sont néanmoins toutes intéressantes, surtout quand elles jouent sur nos attentes comme sur "<em>Digging In The Dirt</em>" où un moment calme intervient là où on attendait une explosion de l'orchestre. "<em>Signal To Noise</em>" est un titre qui semble n'avoir été écrit que pour cette tournée, et les mots sont faibles pour transcrire ce que j'ai ressenti à l'écoute de l'un de mes morceaux préférés de Peter Gabriel. Rien qu'à y penser, j'en ai encore des frissons.</p>
+<p>La grosse surprise de ce soir, et mon coup de cœur, fut indéniablement la version orchestrale de « <em>The Rythm of The Heat</em> ». C'est peut-être mon titre préféré de l'artiste, notamment pour ce final à base de percussions, et la version entendue aux Vieilles Charrues m'avait énormément plue, à tel point que je ne pensais pas penser trouver mieux avant ce soir. Il faudrait réécouter la version orchestre pour en être sûr, mais rien que le fait de faire ce morceau sans la moindre batterie est une idée géniale, et qui fonctionne si bien ! J'en suis vraiment resté bouche bée. Les "classiques" n'ont pas été en reste, avec une bonne version de "<em>Don't Give Up</em>" pour clore le concert, même si n'est pas Kate Bush qui veut, quand même, ou encore un "<em>In Your Eyes</em>" marqué par la présence surprise de Youssou N' Dour en personne.</p>
+
+<div style="text-align: center;"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2010/03/peter-gabriel-new-blood-104.jpg" border="0" alt="peter-gabriel-new-blood-104.jpg" width="665" height="432" /></div>
+<p>Peter Gabriel a toujours été un artiste complet, et ses concerts n'ont jamais manqué de mise en scène. S'il s'est effectivement beaucoup assagi depuis l'époque Genesis, et même depuis les tournées de <em>UP</em>, il reste que l'on a aussi beaucoup à regarder à ses concerts. La tournée "<em>New Blood</em>" confirme ce sentiment, avec la présence permanente de visuels affichés sur quatre bandeaux de LEDs, dont un horizontal et mobile qui monte ou descend en fonction des besoins. Pendant la première partie, c'est surtout une sorte d'animations iTunes qui bougeaient, mais de manière intelligente, en fonction de la musique. L'effet est assez réussi et évite de trop distraire le spectateur, ce qui est souvent le souci de ces écrans. À noter, sur "<em>The Book of Love</em>", une animation assez drôle avec des personnages en fils de fer surmontés de portraits. La seconde partie ressemblait plus à ce que Peter Gabriel a l'habitude de faire depuis quelques années, à base d'images bidouillées dans tous les sens, et de webcams.</p>
+<p>Ce concert est proche de l'irréprochable sur le plan technique, même si la voix de Peter était un peu en retrait sur la première partie. Je crois que les ingénieurs du son ont un peu abusé sur l'écho, mais c'était peut-être un choix qui permet de fondre la voix dans l'orchestre. Ce dernier est très présent, chaque instrument ayant droit à son micro apparemment. Ce qui conduit, live oblige, à quelques ratés, notamment des archets qui cognent des micros. C'est en tout cas fort plaisant d'entendre un orchestre symphonique au complet jouer des morceaux moins conventionnels, où une contrebasse soliste peut devenir l'instrument principal, ou bien où les cordes se font percussions. L'orchestre est d'une efficacité redoutable, mené de main de maître par son jeune chef. La voix de Peter Gabriel était excellente, je l'ai dit. Celle de Mélanie, sa fille, n'était même pas mauvaise, comme quoi tout se perd. Je serais curieux de savoir ce que donnerait un tel orchestre sans amplification, dans une salle adaptée, l'opéra Bastille ou la salle Pleyel par exemple. En tout cas, j'avais un peu peur d'aller écouter un orchestre à Bercy, et finalement c'est très bien passé. Chapeau aux ingénieurs du son…</p>
+
+<div style="text-align: center;"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2010/03/peter-gabriel.jpg" border="0" alt="peter-gabriel.jpg" width="665" height="430" /></div>
+<p>Encore un concert de Peter Gabriel, et toujours ce plaisir intact de le retrouver, de l'entendre parler français (pas d'évolution de ce côté, c'est toujours un peu confus… mais bon, les artistes internationaux qui font cet effort sont si rares que l'on ne dit rien), de le voir s'éclater sur scène. Premier concert de la tournée, donc avec quelques ratés qui, à mon sens, font tout l'intérêt des live (les shows trop bien huilés ont vite un intérêt limité, quand même), mais j'ai peur que ses troubles constants de mémoire (Peter avait les yeux rivés sur ses textes) soient plus un signe d'Alzheimer qu'autre chose.</p>
+<p>Trois concerts, et une envie toujours intacte de le voir sur scène. La prochaine fois qu'il passera à Paris, à moins d'être retenu à l'autre bout de la planète, j'y serai !</p>
+<p style="text-align: left;"><em>Couverture : kennymathieson @ <a href="http://www.flickr.com/photos/kennymathieson/3859625639/">FlickR</a></em></p>
+<p style="text-align: left;"><em>Les autres photos viennent <a href="http://www.petergabriel.com/" target="_blank">du site officiel</a></em><em>.</em></p>
+<p style="text-align: left;"><strong>Autres avis / photos : </strong></p>
+
+<ul>
+	<li>Le forum de <a href="http://www.pg-fr.com/forum/viewtopic.php?t=2965" target="_blank">pg-fr.com</a> (à partir de la <a href="http://www.pg-fr.com/forum/viewtopic.php?t=2965&amp;postdays=0&amp;postorder=asc&amp;start=75" target="_blank">page 6</a>)</li>
+	<li><a href="http://zegut.blogspot.com/2010/03/peter-gabriel-paris-bercy-22-mars-2010.html" target="_blank">Zegut</a></li>
+	<li><a href="http://www.parsenlive.fr/peter-gabriel-bercy-paris-22-03-10-6641" target="_blank">Pars en live</a></li>
+	<li><a href="http://www.ubikwit.net/peter-gabriel-new-blood-tour-paris-bercy-22-03-2010/" target="_blank">Ubikwit</a></li>
+</ul>
+
+<div class="amazon">
+<h3>Vous voulez m'aider ?</h3>
+<ul>
+	<li><a href="https://amzn.to/2rOFZQM">Peter Gabriel sur Amazon</a></li>
+	<li><a href="https://itunes.apple.com/fr/artist/peter-gabriel/id115433">Peter Gabriel sur l'iTunes Store</a></li>
+</ul>
+</div>
