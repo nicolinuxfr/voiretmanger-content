@@ -1,0 +1,40 @@
+---
+ID: 13722
+post_title: '<em>Hellboy</em>, Guillermo del Toro'
+post_name: hellboy-toro
+author: Nicolas
+post_date: 2015-05-18 17:57:22
+layout: post
+link: https://voiretmanger.fr/hellboy-toro/
+published: true
+tags:
+  - Action
+  - Adaptation bande-dessinée
+  - Amour
+  - Comics
+  - Monstres
+  - Superhéros
+categories:
+  - À voir
+---
+Guillermo del Toro a fait ses premiers pas dans l'univers des comics avec *Blade II*. Le succès ayant été au rendez-vous, le cinéaste mexicain obtient une reconnaissance internationale et surtout un grand nombre de propositions. Il ne choisit ni de poursuivre la saga *Blade*, ni celle de [*Harry Potter*](https://voiretmanger.fr/saga/harry-potter/), mais plutôt un projet qui lui tenait à cœur : adapter au cinéma le personnage de Hellboy créé dix ans auparavant par Mike Magnolia. *Hellboy* est le résultat de ce projet, une adaptation haute en couleurs comme pouvait l'être la bande-dessinée originale et surtout portée par un excellent personnage. Car dans la catégorie des superhéros, ce diable rouge qui voudrait surtout être normal est pour le moins atypique, et Guillermo del Toro a bien su rendre son caractère bizarre. Sans oublier qu'il tournait un blockbuster et l'action est aussi au rendez-vous. *Hellboy* a, en outre, la bonne idée de ne pas se prendre trop au sérieux et l'ensemble est très plaisant.
+
+<a href="http://www.allocine.fr/film/fichefilm_gen_cfilm=45279.html"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2015/05/hellboy-toro.jpg" alt="Hellboy toro" title="hellboy-toro.jpg" width="1500" height="2057" /></a>
+
+*Hellboy* commence avec une première scène qui évoque l'arrivée de son personnage principal sur terre. Dans une île perdue d'Écosse, à la fin de la Seconde Guerre mondiale, les Nazis tentent tout ce qu'ils peuvent pour inverser le cours de la guerre, y compris faire appel aux sciences occultes. En l'occurrence, ils essaient d'ouvrir un portail vers un monde parallèle plein de créatures diaboliques, mais l'expérience est interrompue prématurément par les Américains venus sur place. Une créature réussit toutefois à passer, pas un monstre hideux, mais au contraire un petit diablotin très mignon. Adopté par un spécialiste du paranormal sur place, Hellboy grandit avec un papa humain aux États-Unis et on le retrouve dans le présent, adulte et superhéros pour les besoins du FBI. D'emblée, Guillermo del Toro trouve le ton juste pour présenter son personnage : ce n'est pas le héros héroïque que l'on attendait, mais une créature qui aimerait plus que tout se fondre dans la masse et devenir humaine. Avec des cornes et surtout une énorme main en pierre, ce n'est pas évident toutefois et c'est donc un personnage bougon, voire dépressif. Il passe ses journées dans un sous-sol sécurisé, entouré de chats, à ne rien faire sauf quand on a besoin de lui. On le transporte alors dans un camion poubelle pour que le grand public ne sache rien de lui, il fait son boulot et retourne dans sa tanière. *Hellboy* dresse un portrait bien peu flatteur et c'est sa première qualité : il prend le contrepied de la majorité des films du genre et trouve ainsi sa voie, originale et très bien trouvée. 
+
+<img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2015/05/hellboy-john-hurt-ron-perlman.jpg" alt="Hellboy john hurt ron perlman" title="hellboy-john-hurt-ron-perlman.jpg" width="2100" height="1400" />
+
+Au fond, malgré son apparence diabolique, *Hellboy* est peut-être le plus humain des superhéros. Ce premier film à son effigie imagine une intrigue autour de Raspoutine et de nazis immortels qui veulent prendre leur revanche, mais elle est presque secondaire. On sait d'emblée que le camp du bien vaincra et ce n'est pas nécessairement ce qui intéresse le cinéaste, même si Guillermo del Toro filme avec un plaisir évident les nombreuses scènes d'action. Son film est explosif comme se doit de l'être tout bon blockbuster, on en prend plein les yeux et le spectacle est assuré, même si on a fait beaucoup mieux depuis, naturellement. *Hellboy* a toutefois bien vieilli et les effets ne sont pas hideux, avec une mention spéciale pour le masque utilisé pour transformer Ron Perlman en Hellboy. C'est du travail à l'ancienne — quatre heures de transformation nécessaires chaque jour — et c'est du travail bien fait, car il permet à l'acteur de laisser toutes ses émotions transparaître. C'est bien ça l'essentiel : derrière le grand spectacle, derrière le spectaculaire, Guillermo del Toro filme une histoire d'amour improbable entre sa créature et Liz, une fille qui se transforme en torche vivante quand elle se laisse envahir par les émotions. L'une des meilleures scènes se déploie ainsi quand le monstre suit la femme qu'il convoite, alors que le nouvel assistant envoyé par le FBI tente de la séduire autour d'un café. Hellboy suit la scène depuis les toits, un enfant de neuf ans à ses côtés, et le film parvient alors à être touchant, en plus d'être drôle. 
+
+<img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2015/05/hellboy-ron-perlman-selma-blair.jpg" alt="Hellboy ron perlman selma blair" title="hellboy-ron-perlman-selma-blair.jpg" width="2100" height="1400" />
+
+*Hellboy* n'est pas un chef-d'œuvre, mais Guillermo del Toro a très bien su adapter un comics en offrant la bonne dose de spectaculaire, mais sans prendre cet univers trop au sérieux. Son long-métrage est très plaisant à regarder, les amateurs de créatures seront aux anges avec le chien des enfers ajoutés par le réalisateur — qui aime vraiment bien les créatures étranges — et on peut apprécier autant le spectacle que l'ironie du personnage, ainsi que son côté émouvant quand il tente de séduire Liz. Un bon équilibre, pour un blockbuster réussi : mission remplie pour *Hellboy* !
+
+<div class="amazon" markdown="1">
+### Vous voulez [m'aider](https://voiretmanger.fr/soutien/) ?
+
+- [Acheter le film en Blu-ray sur Amazon](http://www.amazon.fr/gp/product/B000M2EHG4/ref=as_li_ss_tl?ie=UTF8&tag=leblogdenic07-21&linkCode=as2&camp=1642&creative=19458&creativeASIN=B000M2EHG4)
+- [Acheter le film en DVD sur Amazon](http://www.amazon.fr/gp/product/B0007LHG5Y/ref=as_li_ss_tl?ie=UTF8&tag=leblogdenic07-21&linkCode=as2&camp=1642&creative=19458&creativeASIN=B0007LHG5Y)
+- [Acheter ou louer le film sur l'iTunes Store](https://itunes.apple.com/fr/movie/hellboy/id378464986)
+</div>
