@@ -1,0 +1,37 @@
+---
+ID: 16530
+post_title: '<em>The Get Down</em>, Baz Lurhmann et Stephen Adly Guirgis (Netflix)'
+post_name: get-down-lurhmann-adly-guirgis-netflix
+author: Nicolas
+post_date: 2016-08-23 21:36:21
+layout: post
+link: >
+  https://voiretmanger.fr/get-down-lurhmann-adly-guirgis-netflix/
+published: true
+tags:
+  - Amitié
+  - Amour
+  - Comédie musicale
+  - Famille
+  - Histoire
+  - Musique
+  - Rap
+  - Série
+  - Société
+categories:
+  - À voir
+---
+<p>Baz Luhrmann ne s'était jamais penché sur le petit écran jusque-là, mais Netflix lui a offert cette opportunité. Le résultat, <em>The Get Down</em>, n'est pour le moment qu'une mini-série de six épisodes, mais c'est déjà une œuvre aussi dingue et ambitieuse que ce que l'on pouvait espérer du cinéaste. La première partie de la première saison de ce qui s'annonce comme une fresque musicale entre disco, hip-hop et punk se déroule à New York, à l'été 1977. Dans un Bronx secoué par les violences quotidiennes et abandonné par la classe politique, ce qui deviendra le hip-hop trouve ses premières marques avec des DJ qui découvrent comment transformer les disques et des &laquo;&nbsp;<em>MC</em>&nbsp;&raquo; (maîtres de cérémonie) qui affutent leurs rimes. Au milieu de ce joyeux vacarme, la série créée par Baz Lurhmann avec Stephen Adly Guirgis suit les pas de Zeke, un adolescent beaucoup trop malin pour son propre bien et qui trouve sa voie dans cette nouvelle musique. Entre comédie musicale déjantée et mise en scène outrancière, <em>The&nbsp;Get&nbsp;Down</em> assume pleinement le style de son créateur. On adhère ou on déteste, mais impossible de contester l'énergie et la nouveauté&nbsp;: une série folle qui ose de nouvelles formes, à voir&nbsp;!</p>
+<p><img class="aligncenter size-full wp-image-16532" src="https://voiretmanger.fr/wp-content/uploads/2016/08/the-get-down-netflix.jpg" alt="the-get-down-netflix" width="2100" height="1400" /></p>
+<p>Si vous avez déjà vu <a href="https://voiretmanger.fr/romeo-juliette-luhrmann/"><em>Romeo + Juliette</em></a> ou <a href="https://voiretmanger.fr/moulin-rouge-luhrmann/"><em>Moulin&nbsp;Rouge&nbsp;!</em></a>, vous connaissez forcément le style si particulier de Baz Lurhmann. Comment le décrire, si ce n'est en évoquant un mélange de Bollywood et de clips MTV, une association fortement indigeste, mais assumée et tellement maîtrisée qu'elle en devient séduisante. C'est souvent très kitsch, c'est presque toujours exagéré&nbsp;: le cinéaste australien est sans conteste l'un des plus étonnants de ces dernières années, ce qui le rend passionnant et si on accepte son univers, ses productions peuvent être réjouissantes. En passant à la télévision, le réalisateur s'offre une durée beaucoup plus longue et <em>The Get Down</em> dure déjà près de sept&nbsp;heures, de quoi risquer l'indigestion. Et de fait, son style est bien là, en entier, et si vous ne le supportez, vous ne tiendrez pas suffisamment pour terminer le pilote, qui ressemble déjà à lui seul à un long-métrage. La musique est au cœur du projet, elle est omniprésente, envahissante même, et la réalisation façon clips qui caractérise en temps normal le travail de Baz Lurhmann trouve ici tout son sens et elle est exacerbée. Associant images d'archives et tournage contemporain, la série nous expédie sans autre forme de procès dans le Bronx des années 1970 et c'est vertigineux. Les personnages sont quasiment tous fictifs, le scénario n'est ainsi nullement basé sur une histoire vraie, mais le travail de reconstitution est incroyable et les créateurs de la série se sont entourés des gens qui ont fait l'époque pour assurer un réalisme maximal. à l'écran, cela se voit&nbsp;: on est plongé dans un temps aujourd'hui disparu, un temps qui résonnait au son de la disco et des sirènes des pompiers, toujours affairés à éteindre les incendies souvent volontaires qui secouaient le quartier. Le réalisateur ne s'est pas privé pour faire de ce cadre son terrain de jeu pour multiplier les séquences toujours plus folles et <em>The Get Down</em> est assurément vertigineux.</p>
+<p><img class="aligncenter size-full wp-image-16533" src="https://voiretmanger.fr/wp-content/uploads/2016/08/netflix-get-down.jpg" alt="netflix-get-down" width="2100" height="1400" /></p>
+<p>La série est souvent trop étourdissante pour son propre bien et elle franchit parfois le seuil du ridicule de manière un petit peu trop prononcée. C'est toujours le cas chez Baz Lurhmann, mais ce n'est pas très grave, parce qu'il a des personnages à mettre en avant. C'est le cœur des meilleures séries et la dernière création originale de Netflix ne s'est pas trompée&nbsp;: on s'amuse (ou s'agace) de la mise en scène folle, on se passionne pour le sort de Zeke et de Mylène, pour Shaolin Fantastic et toute la bande du Get Down. Il y a une histoire d'amour entre deux adolescents, deux meilleurs amis qui se connaissent probablement depuis l'enfance et qui passent à l'&acirc;ge adulte en s'aimant. Dans le r&ocirc;le du garçon, Justice Smith est exceptionnel, tout simplement&nbsp;: c'est le premier r&ocirc;le principal pour cet acteur d'une vingtaine d'années (ce qui est peut-être un peu trop pour incarner son personnage, mais passons) et c'est déjà un grand r&ocirc;le, avec une présence à l'écran et toute la maturité naturelle qui était indispensable. Ce jeune homme est extrêmement malin, il comprend avec une acuité étonnante le monde qui l'entoure et il sait le décrire avec quelques mots qui atteignent systématiquement leur cible. Un r&ocirc;le parfait pour devenir maître de cérémonie et sa vie change précisément quand il rencontre Shaolin, DJ en herbe qui recherche quelqu'un pour accompagner ses mix.&nbsp;à ses c&ocirc;tés, Herizen F. Guardiola est très bien dans le r&ocirc;le de la copine qui veut à tout prix devenir une star de disco, mais qui est écrasée par un père pasteur intransigeant, mais son personnage est moins intéressant malgré tout. Parmi les meilleurs personnages de cette première partie, on retiendra le personnage de &laquo; Papa Fuerte &raquo; (Jimmy Smits), un magouilleur qui veut le bien du quartier et de sa communauté, mais qui veut aussi et surtout sa propre fortune. C'est un personnage complexe et qui s'enrichit au fil des épisodes et on espère que&nbsp;<em>The Get Down</em> s'orientera encore davantage vers ce type de personnages à l'avenir.</p>
+<p><img class="aligncenter size-full wp-image-16534" src="https://voiretmanger.fr/wp-content/uploads/2016/08/the_get_down_filles_danse_2809.jpeg" alt="" width="2100" height="1400" /></p>
+
+Baz Luhrmann, on aime ou on déteste, c'est un fait et il ne sert à rien d’épiloguer dessus. En revanche, on ne peut pas nier que <em>The Get Down</em> apporte un vent de fraicheur dans le monde de la série. Sur le plan formel, elle ne ressemble à aucune autre et c’est très bien ainsi. D’autant que, même si elle va un petit peu trop loin ici ou là, la première partie séduit par sa cohérence générale, son rythme et sa bande-originale très réjouissante. Baz Lurhmann donne envie de découvrir le hip-hop des tous débuts et il offre un éclairage nouveau sur l’art des graffitis. Espérons que la suite soit aussi bonne, mais <em>The Get Down</em> mérite déjà amplement le détour. Une réussite !
+
+<div class="amazon" markdown="1">
+### Vous voulez [m'aider](https://voiretmanger.fr/soutien/) ?
+
+- [Regarder la série sur Netflix](https://www.netflix.com/title/80025601)
+</div>
