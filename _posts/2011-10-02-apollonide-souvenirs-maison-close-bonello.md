@@ -1,0 +1,47 @@
+---
+ID: 5170
+post_title: '<em>L&rsquo;Apollonide, souvenirs de la maison close</em>, Bertrand Bonello'
+post_name: >
+  apollonide-souvenirs-maison-close-bonello
+author: Nicolas
+post_date: 2011-10-02 18:51:34
+post_excerpt: "L'Apollonide, souvenirs de la maison close offre une plongée réjouissante et réussie dans l'univers fermé d'une maison close parisienne au tournant du XXe siècle. Un ballet enchanteur, tout en douceur : un film très réussi, à voir."
+layout: post
+link: >
+  https://voiretmanger.fr/apollonide-souvenirs-maison-close-bonello/
+published: true
+tags:
+  - Amour
+  - Histoire
+  - Huis clos
+  - Sexe
+  - Société
+categories:
+  - À voir
+---
+Avec <em>L'Apollonide, souvenirs de la maison close</em>, Bertrand Bonello recompose une maison close au tournant du XXe siècle. Au cœur de la IIIe République, en pleine Belle-Époque, les maisons closes connaissent un véritable succès, mais la chute suit l'apogée. Les femmes commencent déjà à sortir des maisons closes pour aller sur les trottoirs, les clients se font de plus en plus rares et ce film raconte la fin d'une époque. Un film magnifique et terrible à la fois, à voir.
+
+<a href="http://www.allocine.fr/film/fichefilm_gen_cfilm=191004.html"><img class="aligncenter" style="border-style: initial; border-color: initial; border-width: 0px;" src="https://voiretmanger.fr/wp-content/uploads/2011/10/apollonide-souvenirs-maison-close-bonello.jpg" alt="Apollonide souvenirs maison close bonello" width="690" height="925" border="0" /></a>
+
+Un couloir sombre, une femme peu vêtue s'avance, vers son prochain client. <em>L'Apollonide, souvenirs de la maison close</em> plonge d'emblée son spectateur dans l'univers sombre et chaleureux d'une maison close parisienne, à la fin du XIXe siècle. Le film ne quitte quasiment jamais cet univers clos, comme son nom l'indique bien. Bertrand Bonello ne raconte pas vraiment d'histoire, il pose ses caméras et laisse les femmes constituer leur film par leur présence, par leurs récits aussi. Il n'y a pas vraiment d'héroïne parmi toutes les putains, mais <em>L'Apollonide, souvenirs de la maison close</em> s'attarde sur certaines d'entre elles : la juive, défigurée par un client sadique qui lui a taillé un sourire au couteau ; la petite, une nouvelle qui débarque dans cet univers censé la rendre libre ; l'italienne qui rêve d'épouser un client régulier, mais qui attrape la syphilis… Le ballet de corps féminins et masculins qui reprend chaque nuit forme le quotidien de ces filles qui ne sortent quasiment jamais, en tout cas jamais seules.
+
+<em>L'Apollonide, souvenirs de la maison close</em> plonge le spectateur dans une époque qu'il n'a pas connue. Bertrand Bonello s'attache à restituer le quotidien de ces femmes qui vendaient leur corps en toute légalité, au tournant du XXe siècle. On les voit se préparer en fin de journée pour le soir, on les voit ensuite discuter avec les clients, leur servir quelques coupes avant, éventuellement, de monter dans une chambre finir la nuit. <em>L'Apollonide, souvenirs de la maison close</em> offre un regard très positif sur les maisons closes et leurs occupantes. Loin des clichés que l'on peut avoir en tête aujourd'hui, ces filles sont bien traitées par les clients qui viennent ici pour discuter, jouer aux cartes et boire quelques verres. Certains repartent sans même coucher avec une fille, simplement pour le plaisir de partager un moment avec elle. Entre clients et filles, une relation de confiance s'instaure, d'amitié souvent, d'amour même parfois. La plupart des clients sont des hommes mariés et les convenances les empêchent de quitter femmes et enfants, mais leur amour est réel et assez touchant. Les filles du bordel rêvent toutes qu'un client rachète leurs dettes et les emmènent avec elles… L'Apollonide est une maison luxueuse, fréquentée exclusivement par le gratin de la noblesse ou de la bourgeoisie qui a réussi dans la France industrielle. Un lieu hors du monde et hors du temps, qui reste très nettement ancré dans le siècle qui se conclut, alors qu'une nouvelle ère s'ouvre. Si les marques d'actualité restent limitées, on entend tout de même parler de l'affaire Dreyfus, mais aussi de la première ligne de métro de Paris, critiquée d'ailleurs par l'un des clients.
+
+<img class="aligncenter" style="border-style: initial; border-color: initial; border-width: 0px;" src="https://voiretmanger.fr/wp-content/uploads/2011/10/apollonide-bonello.jpg" alt="Apollonide bonello" width="690" height="443" border="0" />
+
+Bertrand Bonello choisit de clore son film sur une image d'actualité qui donne un sens tout particulier aux deux heures qui précédaient. <em>L'Apollonide, souvenirs de la maison close</em> quitte le début du XXe siècle pour le XXIe. Les maisons closes ont totalement disparu du paysage, mais la prostitution, souvent qualifiée de premier métier au monde, n'a en aucun cas disparu, elle est sortie dans la rue et a changé de forme. Les filles attendent désormais leurs clients en plein jour, au bord des villes : l'ambiance est incomparable, bien plus glauque que celle que l'on vient de voir. Le parti-pris est évident, même si Bertrand Bonello a l'excellente idée de ne pas faire un film didactique : à chacun son opinion. Néanmoins, la démonstration est implacable. Certes, les prostituées de la maison close n'ont pas la vie facile tous les jours. Si elles ne dépendent pas d'un mari, elles ne sont pas libres pour autant et l'Apollonide est une prison pour elle. "Madame", la gérante, rachète leur dette, motivation principale pour se prostituer, et elle les tient par ce moyen technique. Elles doivent en théorie racheter leurs dettes avec les clients, mais le système ne le permet pas, concrètement. Les frais pour rester belles et désirables sont trop élevés pour leur permettre de racheter leurs dettes et ces femmes restent de fait en majorité dans la maison close pendant des années. La liberté espérée par la plus jeune qui vient d'arriver est une illusion, même si cette fille parvient à en sortir rapidement. Pour la plupart des prostituées, la sortie se fera les pieds devant : la maladie est une menace de tous les instants à une époque où elle tuait volontiers. La vie n'est pas toujours rose dans l'Apollonide, mais elle est infiniment meilleure que celle des prostitués d'aujourd'hui, <em>L'Apollonide, souvenirs de la maison close</em> le monde très bien. L'univers fermé et confortable de la maison close paraît bien plus agréable pour tout le monde.
+
+<em>L'Apollonide, souvenirs de la maison close</em> reconstitue une époque passée avec une précision maintenue de bout en bout. Le cinéaste s'est manifestement bien renseigné avant de travailler sur son film et la reconstitution est remarquable. Le spectateur est plongé plus d'un siècle en arrière et la crédibilité de cet univers que l'on n'a jamais connu n'est jamais remise en cause. Bertrand Bonello compose à partir de ce décor quasiment unique, le film ne sortant de l'Apolonnide qu'à deux brèves reprises, des plans à la beauté picturale rare. Les quelques images du film proposées ici en témoignent bien, <em>L'Apollonide, souvenirs de la maison close</em> est vraiment un très beau film qui rappelle les tableaux de la même époque. La photographie ajoute ainsi une touche picturale et certains plans sont magnifiques. Reproduction visuelle parfaite, Bertrand Bonello ose plus sur le plan musical avec plusieurs morceaux récents qui tranchent avec l'image. L'anachronisme passe tout à fait et souligne bien la liberté du film sur le plan technique. <em>L'Apollonide, souvenirs de la maison close</em> ose un peu tout : l'action n'est pas toujours linéaire, le split-screen est utilisé à plusieurs reprises… Cette liberté tranche avec l'emprisonnement subi ou voulu des filles. Les actrices qui incarnent ces dernières sont pour beaucoup dans le succès du film. Elles sont toutes très justes, avec une mention spéciale à "Madame", leur maîtresse qui se trouve aussi être mère de famille.
+
+<img class="aligncenter" style="border-style: initial; border-color: initial; border-width: 0px;" src="https://voiretmanger.fr/wp-content/uploads/2011/10/bonello-apollonide-souvenirs-maison-close.jpg" alt="Bonello apollonide souvenirs maison close" width="690" height="449" border="0" />
+
+<em>L'Apollonide, souvenirs de la maison close</em> plonge le spectateur dans l'univers d'une maison close, et c'est une plongée des plus agréables, même si les corps féminins nus ne sont pas votre tasse de thé (sinon, vous serez servis). Cet univers qui rappelle un peu les tableaux de la même époque est vraiment séduisant et souvent magnifique, le ballet de corps féminins et masculins réjouissant. Bertrand Bonello ne fait pas un film politique doté d'un message, mais sa conclusion remet en perspective tout ce qui précède. Même si l'Apollonide est une maison close de luxe qui n'est pas forcément représentative de toutes les maisons de l'époque, elle montre bien toutefois que leur fermeture n'était pas nécessairement la meilleure solution. Un beau film, sensuel et intelligent, à ne pas rater.
+
+<em>Article 400 du blog !</em>
+
+<div class="amazon" markdown="1">
+### Vous voulez [m'aider](https://voiretmanger.fr/soutien/) ?
+
+- [Acheter le film en DVD sur Amazon](http://www.amazon.fr/gp/product/B0065JBFNQ/ref=as_li_ss_tl?ie=UTF8&tag=leblogdenic07-21&linkCode=as2&camp=1642&creative=19458&creativeASIN=B0065JBFNQ)
+- [Acheter ou louer le film sur l'iTunes Store](http://itunes.apple.com/fr/movie/lapollonide-souvenirs-la-maison/id491611379)
+</div>
