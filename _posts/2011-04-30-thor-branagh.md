@@ -1,0 +1,46 @@
+---
+ID: 4776
+post_title: '<em>Thor</em>, Kenneth Branagh'
+post_name: thor-branagh
+author: Nicolas
+post_date: 2011-04-30 00:21:17
+layout: post
+link: https://voiretmanger.fr/thor-branagh/
+published: true
+tags:
+  - Blockbuster
+  - Comics
+  - Fantastique
+  - Kitsch
+  - Mythe
+  - Superhéros
+  - Vite oublié
+categories:
+  - À voir
+---
+Dans l'univers des comics, les <a href="http://fr.wikipedia.org/wiki/Les_Vengeurs">Avengers</a> ont sans nul doute une place à part. Créés par les célèbres éditions Marvel, les Vengeurs rassemblent plusieurs super héros, dans une sorte de récit de super héros ultime. Depuis plusieurs années déjà, le cinéma s'est emparé des comics pour fournir de multiples adaptations, parmi lesquelles plusieurs Avengers se sont cachés : Hulk ou Iron Man notamment. Peu à peu, Hollywood reconstruit le groupe avec cette fois un autre élément clé : Thor. <em>Thor</em>, le film de Kenneth Branagh, constitue ainsi une pierre à l'édifice et intéressera les fans de la série, en attendant la sortie tant attendue d'[<em>Avengers</em>](https://voiretmanger.fr/avengers-whedon/), le film, en 2012, et en attendant d'ici là la sortie de [<em>Captain America : First Avenger</em>](https://voiretmanger.fr/captain-america-first-avenger-johnston/) cet été. Les autres risquent d'être déçus par cette histoire assez alambiquée et très kitsch, ainsi que par son héros aussi monobloc que son marteau.
+
+<a href="https://fr.wikipedia.org/wiki/Thor_(film)"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2011/04/thor.jpg" border="0" alt="Thor" width="690" height="931" /></a>
+
+Royaume d'Asgard, à une date indéterminée. Thor est le fils d'Odin, père de toute chose. On comprend qu'un tel héritage lui soit monté à la tête et Thor est ainsi un jeune homme fier, arrogant, violent et un peu stupide. Pour prouver sa valeur à son père, il décide de partir avec son frère Loki et une poignée de fidèles contre les ennemis de toujours de son peuple. Ce geste stupide et suicidaire ranime une guerre ancestrale. Odin, furieux, bannit son fils du royaume et l'envoi… sur terre. Il tombe alors nez à nez avec Jane, une scientifique venue enquêter dans le désert du Nouveau-Mexique sur d'étranges phénomènes météorologiques. Thor sur terre n'est plus qu'un simple mortel, certes avec des pectoraux plus gros que la taille de la tête de Jane, mais sans ses pouvoirs magiques, et notamment sans son célèbre marteau. Alors que le Shield, une organisation mystérieuse, mais toute puissante, veut récupérer le marteau, notre jeune super héros tente tant bien que mal de retrouver grâce aux yeux de son père. Il va néanmoins découvrir que Loki, son jeune frère, complote contre lui et veut prendre sa place sur le trône d'Asgard…
+
+<em>Thor</em> est un film assez typique où le super héros se découvre, même s'il y a ici une subtilité. Au début du film, Thor est fils d'un dieu et à ce titre, il jouit d'un pouvoir immense dont il a pleinement conscience. Mais en arrivant sur Terre, il est rabaissé au simple rang d'humain et il va devoir redécouvrir ses pouvoirs : on retrouve bien là le processus d'apprentissage classique. Thor fait partie de cette catégorie de super héros qui bénéficie de pouvoirs surnaturels innés, au contraire d'autres, comme Iron Man, qui doivent construire leurs pouvoirs. Le seul accessoire de Thor est son marteau qui s'amuse ici à jouer à l'Excalibur, mais ce n'est pas un accessoire standard puisque seul Thor peut l'utiliser. Une fois le marteau récupéré cependant, Thor semble totalement indestructible : il vole, il crée des tempêtes, lance son marteau dans tous les sens, etc. Comme Superman, Thor vient d'une autre planète et il est sur terre en tant qu'étranger. Kenneth Branagh a réussi à assez bien exploiter cet aspect du personnage, principal ressort comique d'un film par ailleurs assez sérieux. Si <em>Thor</em> permet de découvrir un super héros, le film est aussi prévu pour s'insérer dans le réseau de films qui, mis bout à bout, forment l'histoire des Avengers. À ce titre, il est préférable d'avoir vu <em><a href="https://voiretmanger.fr/2010/04/29/iron-man-2-favreau/">Iron Man 2</a></em> pour tout comprendre même si les deux films sont suffisamment différents pour être vus séparément. Les deux films sont néanmoins très clairement reliés par des personnages récurrents et par une référence explicite : la fin d'<em>Iron Man 2</em> se situe dans <em>Thor</em>, tandis qu'il faudra rester jusqu'à la fin du générique pour avoir une idée de la suite. Cette construction assez rare au cinéma est assez fascinante, même si elle relève plus de l'anecdotique pour une raison simple : chaque film doit être vu indépendamment.
+
+<img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2011/04/thor-hemsworth.jpg" border="0" alt="Thor hemsworth" width="690" height="467" />
+
+Ce choix peut se comprendre sur le plan économique, mais il n'aide pas <em>Thor</em>. Le film semble bien faible par rapport aux deux <em>Iron Man</em>, ou à d'autres adaptations de comics. La raison est en fait assez simple : Thor est un super héros sans intérêt. Du début à la fin, il reste globalement le même : un gars un peu trop fier, très musclé et plutôt sympa, dans l'ensemble. Il lui manque le côté sombre qui est normalement présent en tout super héros. Thor ne doute jamais sérieusement, même si l'impossible récupération du marteau semble le faire vaciller quelques secondes. Reste que, dans l'ensemble, Kenneth Branagh fait de son héros un bloc incroyablement statique qui empêche vraiment de s'intéresser à lui. Peut-être est-ce un trait de caractère du personnage lui-même, mais cette faiblesse s'apparente plus à une faiblesse du film lui-même. Dommage, d'autant que l'histoire elle-même n'est pas des plus passionnantes. Les enjeux sont très réduits dans <em>Thor</em> et ils sont de toute manière trop peu développés pour passionner sérieusement. Ajoutons à cela que toute la partie extra-terrestre est vieillotte et kitsch : la ville est toute dorée et brille de mille feux, les armures brillent au soleil (pas autant que dans <em><a href="https://voiretmanger.fr/2010/04/28/choc-titans-leterrier/">Le Choc des Titans</a></em> néanmoins)… C'est en tout cas un cadre qui ne donne pas vraiment envie de s'intéresser plus avant à l'histoire…
+
+Le problème de <em>Thor</em> tient aussi dans sa panoplie d'acteurs. Si Thor semble aussi statique, c'est aussi parce que son acteur, Chris Hemsworth, n'est pas très bon. Son père, interprété par un Anthony Hopkins qui semble vraiment avoir pris une retraite anticipée, n'est pas vraiment mieux, on ne ressent jamais de douleur, ou même de peine. C'est un peu mieux côté humains, mais Nathalie Portman fait ce qu'elle peut pour vaguement rendre son personnage intéressant, elle ne suffit pas à sauver le film. Malgré un budget très confortable, les effets spéciaux de <em>Thor</em> sont inégaux : parfois impressionnants, ils sont aussi d'autres fois assez ridicules, pour ne pas dire kitsch. On regrette bien sûr le choix de la 3D : ajoutée en post-production, elle n'apporte rien et nuit à la lisibilité de l'ensemble, même s'il faut reconnaître une amélioration par rapport à des films sortis il y a un an comme <em><a href="https://voiretmanger.fr/2010/07/06/dernier-maitre-air-shyamalan/">Le dernier maître de l'air</a></em>. Complétons le tableau avec une musique pompière bien peu inspirée et l'on comprendra que <em>Thor</em> ne passionne pas non plus sur le plan cinématographique…
+
+<img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2011/04/thor-hopkins.jpg" border="0" alt="Thor hopkins" width="690" height="467" />
+
+Sous des aspects de blockbuster hollywoodien, <em>Thor</em> s'apparente en fait plus à une introduction pour geeks fans des comics originaux qu'à un film grand public. On sent bien un potentiel derrière, mais en attendant cette histoire est alambiquée, traitée un peu trop à la légère (avec, en particulier, une accélération sur la fin qui empêche de comprendre grand-chose) et elle manque globalement d'intérêt. Thor est un super héros bien peu intéressant, le royaume d'Asgard rappelle vraiment trop les contes pour enfants pour être réaliste, bref le scénario pêche et la réalisation ne le sauve pas. <em>Thor</em> n'est pas un mauvais film pour autant : le savoir-faire d'Hollywood reste entier et on passe un bon moment… mais ce sera tout. Pour l'histoire intéressante, on attendra plutôt <em><a href="https://voiretmanger.fr/2011/08/20/captain-america-first-avenger-johnston/" title="Captain America : First Avenger, Joe Johnston">Captain America</a></em> cet été. Du moins, espérons-le…
+
+<div class="amazon">
+<h3>Vous voulez m'aider ?</h3>
+<ul>
+    <li><a href="http://www.amazon.fr/gp/product/B004XAU7VA/ref=as_li_ss_tl?ie=UTF8&tag=leblogdenic07-21&linkCode=as2&camp=1642&creative=19458&creativeASIN=B004XAU7VA">Acheter le film en Blu-Ray et DVD sur Amazon</a></li>
+    <li><a href="http://www.amazon.fr/gp/product/B004XAU7TM/ref=as_li_ss_tl?ie=UTF8&tag=leblogdenic07-21&linkCode=as2&camp=1642&creative=19458&creativeASIN=B004XAU7TM">Acheter le film en DVD sur Amazon</a></li>
+    <li><a href="http://itunes.apple.com/fr/movie/thor/id448556543">Acheter le film sur l'iTunes Store</a></li>
+</ul>
+</div>
