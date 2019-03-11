@@ -1,0 +1,39 @@
+---
+ID: 4421
+post_title: '<em>Qui a envie d’être aimé ?</em>, Anne Giafferi'
+post_name: qui-a-envie-etre-aime-giafferi
+author: Nicolas
+post_date: 2010-12-24 00:30:05
+post_excerpt: "Qui a envie d'être aimé ? ne donne pas envie d'être aimé, justement. Anne Giafferi ne parvient malheureusement pas à éviter tous les clichés d'un certain cinéma français. Impossible dès lors de s'intéresser sérieusement à cette histoire rendue improbable. Dommage, l'idée était bonne…"
+layout: post
+link: >
+  https://voiretmanger.fr/qui-a-envie-etre-aime-giafferi/
+published: true
+tags:
+  - Amour
+  - Drame
+  - Famille
+  - Religion
+  - Vite oublié
+categories:
+  - À voir
+---
+<p><em>Qui a envie d'être aimé ?</em> raconte l'histoire de la rencontre improbable entre un avocat quarantenaire et… Dieu. Idée intéressante, mais qui manque malheureusement de finesse : le film d'Anne Giafferi semble un peu concentrer tous les défauts d'un cinéma français. Personnages caricaturaux, situations improbables, scénario téléphoné… impossible décidément de croire en cette conversion un peu prosélytique.</p>
+
+<a href="http://www.allocine.fr/film/fichefilm_gen_cfilm=188254.html"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2010/12/qui-a-envie-etre-aime.jpg" border="0" alt="qui-a-envie-etre-aime.jpg" width="690" height="987" /></a>
+
+<p>Antoine, avocat parisien talentueux, 40 ans, marié, un garçon et une fille… la vie parfaite en somme. Vaste appartement au cœur de Paris, le garçon va au collège à Henri IV où son père l'amène tous les matins en voiture. Son père possède aussi une maison familiale, en Bretagne évidemment. Tout semble aller pour le mieux pour ce prototype parfait du bobo parisien, sauf qu'il a un père qui ne l'aime pas vraiment ou en tout cas ne lui fait pas suffisamment preuve d'amour à son goût. Et un frère violent, insouciant, irresponsable, mais adoré par le père. Manifestation de la crise de la quarantaine sans doute, Antoine ne se sent pas très bien et c'est sur ces états d'âme qu'il fait la fameuse rencontre inattendue avec Dieu. Alors qu'il se promène sur la côte, il voit par l'entrebâillement de la porte d'une chapelle la statue de Jésus sur la croix. Et comme les coups de foudre des romans à l'ancienne, Antoine succombe devant cette statue et connaît une sorte de révélation. Le voilà qui se met aussi à suivre des cours de catéchisme pour adulte, deux fois par semaine, il achète même une Bible qu'il se met à lire en cachette à son travail. Rien ne va plus, sa femme commence à croire qu'il a rencontré une autre femme et c'est bientôt toute sa vie qui est bouleversée. Antoine a envie d'être aimé et manifestement l'amour de sa femme ne lui suffit plus. Mais sa femme va-t-elle accepter ce nouvel amour soudain de la part de son mari ?</p>
+<p>Rien ne fonctionne vraiment dans <em>Qui a envie d'être aimé ?</em> Les personnages manquent de finesse psychologique, ils semblent tous réduits à leur type : le couple bobo, le père qui ne sait pas exprimer son amour, le frère chiant… Certes, le père aimerait changer, mais cela ne suffit pas, il restera de bout en bout le même. On comprend également mal pourquoi tous ces personnages devaient absolument être des caricatures. Ces bobos sont beaucoup trop bobo pour être un tant soit peu crédible : le grand appartement parisien dans les quartiers centraux, passe encore, après tout Antoine travaille au Palais de Justice sur l'île de la Cité, mais fallait-il vraiment que le fils soit au collège à Henri IV ? Le plus gros problème de <em>Qui a envie d'être aimé ?</em> reste du côté de la religion. La conversion subite d'Antoine peine à convaincre tant elle rappelle les conversions de la <em>Bible</em> : cette révélation subite est trop belle pour être vraie, si bien que l'on n'y croit pas vraiment. Comment cet homme qui se proclame athée, voire agnostique, peut-il brusquement découvrir les messages bibliques, se convertir et décider d'aller à la messe tous les dimanches ? Ce changement brusque est d'autant plus gênant que le film semble ouvertement favorable à la religion catholique. On est ainsi frappé d'entendre "<em>Sex and drugs and rock'n roll</em>" juste avant l'entrée d'Antoine dans son groupe de catéchisme, faisant ainsi une opposition très nette entre les deux univers, comme si l'on revenait à l'époque où l'Église considérait le rock comme une musique diabolique. Dans le même ordre d'idée, Anne Giafferi fait dire à plusieurs reprises à son personnage principal qu'Orelsan est une musique de sauvages… Sans être pour autant ouvertement pro-catholique, le film a un rapport plutôt premier degré avec la religion, un rapport bien moins intéressant que celui que proposait <em><a href="https://voiretmanger.fr/2010/08/07/poison-violent-quillevere/">Un poison violent</a></em>, par exemple. À côté, <em>Qui a envie d'être aimé ?</em> ressemble plus à un cours de catéchisme pour les nuls…</p>
+
+<div style="text-align: center;"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2010/12/qui-a-envie-etre-aime-giafferi.jpg" border="0" alt="qui-a-envie-etre-aime-giafferi.jpg" width="690" height="459" /></div>
+<p><em>Qui a envie d'être aimé ?</em> est un film français issu de la télévision par le biais de ses créateurs, et cela se voit. S'il serait injuste de qualifier le film d'Anne Giafferi de téléfilm, on retrouve quand même une esthétique proche de la télévision, même si un effort a été manifestement consacré aux cadres et éclairages. La réalisation n'est pourtant pas très palpitante, ce qui n'aide pas à renforcer l'intérêt du film, également plombé par son acteur principal. Éric Caravaca donne ainsi le sentiment de ne jamais croire à son rôle, d'y être étranger et de réciter de manière scolaire un texte appris par cœur. Son rôle a dès lors un côté théâtre amateur qui rappelle un peu le cinéma de la Nouvelle Vague, sans pour autant être certain que l'effet est voulu et assumé. En tout cas, à l'image de cet acteur qui ne semble pas croire à Antoine, on ne croit guère plus au film.</p>
+<p>Vous l'aurez compris, je n'ai pas aimé <em>Qui a envie d'être aimé ?</em>. Ce n'est pas faute d'avoir essayé, mais rien n'y fait : ce film est trop gros, trop caricatural, trop incroyable, trop… français peut-être ? Dommage, car l'idée était intéressante et aurait pu donner un bon film, mais il aurait fallu pour cela plus de finesse psychologique, des acteurs plus « <em>actors studio</em> », entre autres. Le film a peut-être envie d'être aimé, mais ce sera donc sans moi.</p>
+<p></p>
+<p><strong>Mise à jour au 13/02/2011</strong> : le succès de cet article ayant, de loin, dépassé mes attentes, la polémique ayant fait rage dans les commentaires, je tenais à préciser que cet article a été rédigé immédiatement après avoir vu le film, alors que j'étais encore agacé parce que j'avais vu. Je ne nie pas avoir pratiqué un peu de troll, une technique <a href="http://fr.wikipedia.org/wiki/Troll_(Internet)">courante sur Internet</a>. Même si mon avis n'a en rien changé sur le film que je trouve toujours aussi grossier dans sa démonstration, je reconnais avoir été un peu dur sur la religion catholique. À défaut de faire amende honorable, je renverrai vers <a href="http://www.enmanquedeglise.com/article-qui-a-envie-d-etre-aime-66954521.html">cette interview</a> d'Anne Gafieri et de son mari, auteur du roman à l'origine du film. Une interview intéressante, car plus nuancée que le film lui-même.</p>
+
+<div class="amazon">
+<h3>Vous voulez m'aider ?</h3>
+<ul>
+	<li><a href="http://www.amazon.fr/gp/product/B0051SNVL6/ref=as_li_ss_tl?ie=UTF8&tag=leblogdenic07-21&linkCode=as2&camp=1642&creative=19458&creativeASIN=B0051SNVL6">Acheter le film en DVD sur Amazon</a></li>
+</ul>
+</div>
