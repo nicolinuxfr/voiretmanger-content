@@ -1,0 +1,29 @@
+---
+ID: 982
+post_title: '<em>Burn After Reading</em>'
+post_name: burn-after-reading
+author: Nicolas
+post_date: 2008-12-11 00:18:17
+layout: post
+link: >
+  https://voiretmanger.fr/burn-after-reading/
+published: true
+tags: [ ]
+categories:
+  - Archives du blog
+---
+<p>Un film des frères Coen, cela ne se rate pas, quel qu'il soit. C'est fort de ce principe que je suis allé voir leur dernière production, <em>Burn After Reading</em> présenté comme une petite comédie sympathique, et même un petit Coen.</p>
+<p style="text-align: center;"><a href="http://www.allocine.fr/film/fichefilm_gen_cfilm=122744.html"><img class="size-full wp-image-983 aligncenter" title="18991610" src="https://voiretmanger.fr/wp-content/uploads/2008/12/18991610.jpg" alt="" width="500" height="666" /></a></p>
+<p>Après <em><a href="https://voiretmanger.fr/index.php/2008/12/06/le-plaisir-de-chanter/">Le plaisir de chanter</a></em> ce week-end, je fais décidément dans la comédie d'espionnage ! Mais la comparaison s'arrête vite puisque l'humour "coenesque" change, pour ainsi dire, tout. L'histoire n'est pas simple à résumer. Soit un agent de la CIA (Malkovich, très bien) viré comme un malpropre pour alcoolisme et qui décide de se venger en écrivant des mémoires à charge. Une partie de ses écrits tombe, malencontreusement, entre les mains d'un duo improbable d'employés dans une centre de gymnastique : lui (Bard Pitt, génial) est resté un gamin à mâchouiller en permanence un chewing-gum et avec sa coupe... particulière ; elle (Frances McDormand) qui n'a qu'un but dans la vie : se faire refaire tout le corps en chirurgie esthétique. De ce fait (la découverte d'un disque de données confidentielles) découle un film complètement acadabrantesque où l'on croise notamment un excellent Clooney et une pas moins bonne Tilda Swinton dans une sorte de rôle "à la Bree" ((Bree van de Kamp puis Hodge de Desperates Housewives pour ceux qui ne suivent pas.)).</p>
+<p>Le film est comme une sorte de jouet. Rassemblez une poignée d'idiots, naïfs ou malchanceux par un même élément, secouez bien, et voyez ce qui en ressort. Réponse amusée des frères Coen ; un bain de sang. Amusée car c'est un film très drôle, même si d'un humour particulier, à la fois cynique et basé sur le <em>nonsense</em> à l'anglaise. Les situations absurdes se multiplient et tous les acteurs s'en donnent à cœur joie dans leur rôles à contre-emploi. Notons la performance de Brad Pitt, vraiment excellent dans ce rôle et qui nous fait autant rire qu'il a du s'amuser à jouer. Clooney est aussi excellent en sorte d'ombre de lui-même, un homme en apparence séducteur et tombeur de femmes mais en fait un vrai lâche. Tous les personnages sont comme emportés dans une machine infernale et absurde qui les engloutit tous sur fond de quiproquos et de malentendus.</p>
+<p>Je me suis beaucoup amusé pendant ce film qui, effectivement, n'arrive pas à la cheville du précédent, le génialissime <em>No Country For Old Men</em>. Cela fait donc de ce film un "petit Coen", je suppose. Mais comme le disent très bien les <em>Inrockuptibles</em>, un minuscule Coen ou Allen vaut largement un immense Machin ! Si je regarde l'actualité de la semaine, je ne vois même pas pourquoi on discute : à côté du probablement emmerdant <em>Emmerdeur</em> ou du sans doute moralisant <em>Le jour où la terre s'arrêtera</em>, ce <em>Burn After Reading</em> me paraît même génial !</p>
+<p>Qui plus est, je crois que l'on aurait tort de réduire le film à une sympathique plaisanterie un peu potache. L'idée d'une machine infernale et absurde qui emporte tout sur son passage et une machine qu'aucune autorité ne comprend est une belle métaphore du monde contemporain je pense. En effet, à l'opposé des personnages principaux, tous hystériques, on a le calme des institutions, qu'il s'agisse de la CIA ou de l'ambassade russe. Et les deux sont en gros aussi paumés par ce qui arrive, mais surtout la CIA. Les scènes avec le chef de la CIA sont rares (au nombre de deux) mais ce sont les points culminants du film en terme d'humour. En gros, la CIA suit sans rien y comprendre l'aventure de nos héros et se sent complètement dépassée. Son seul rôle est d'éliminer les cadavres gênants pour, enfin, pouvoir classer l'enquête. Et le seul soucis du chef est que tout le monde meurt (au point de s'inquiéter au sujet d'un des personnages, seulement dans le coma). C'est à la fois très drôle, et assez flippant.</p>
+<p>Bien sûr, le film n'est pas un brûlot politique, pas plus qu'il n'est aussi brillant que le précédent des frères Coen. Mais et alors ? À condition d'apprécier l'humour absurde si typiquement anglais, <em>Burn After Reading </em>est un très bon film, qui sera sans doute rapidement oublié, mais ça ne fait pas de mal de temps en temps...</p>
+<p></p>
+
+<h2 id="982_a-lire-egalement_1">À lire également...</h2>
+<ul>
+	<li>La <a href="http://www.lesinrocks.com/cine/cinema-article/critique/burn-after-reading/">critique des Inrockuptibles</a> est dithyrambique et pour une fois, je suis entièrement d'accord avec eux.</li>
+	<li><a href="http://www.telerama.fr/cinema/films/burn-after-reading,367106,critique.php">Celle de Télérama</a> est globalement positive, même si plus mesurée...</li>
+	<li>Par contre, <a href="http://www.critikat.com/Burn-After-Reading,2678.html">Critikat a détesté</a>. Ils n'ont pas apprécié la stupidité des personnages, au point de critiquer les frères Coen sur ce qu'ils considèrent être une attaque contre les petites gens en disant que, en gros, ils se trompent de cible et devraient attaquer le système. Outre une étonnante odeur de vieille théorie (à mon sens) dépassée, je crois qu'ils se trompent complètement en voulant à ce point politiser le film. Ne peut-on pas s'amuser, aussi ?</li>
+</ul>
