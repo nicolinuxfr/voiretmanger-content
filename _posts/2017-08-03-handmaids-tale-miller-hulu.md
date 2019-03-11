@@ -1,0 +1,64 @@
+---
+ID: 18621
+post_title: '<em>The Handmaid’s Tale : La Servante écarlate</em>, Bruce Miller (Hulu)'
+post_name: handmaids-tale-miller-hulu
+author: Nicolas
+post_date: 2017-08-03 21:33:17
+layout: post
+link: >
+  https://voiretmanger.fr/handmaids-tale-miller-hulu/
+published: true
+tags:
+  - Adaptation littéraire
+  - Drame
+  - Dystopie
+  - Écologie
+  - Futur
+  - Religion
+  - Science-Fiction
+  - Série
+  - Société
+categories:
+  - À voir
+---
+Sorti au milieu des années 1980, <em>La servante écarlate</em> reste encore aujourd’hui l’une des dystopies les plus fortes du XX<sup>e</sup> siècle. En imaginant un futur proche où une bande de fanatiques religieux ont réussi à s’emparer du pouvoir aux États-Unis et imposer une société rétrograde où les femmes ne servent qu’à enfanter, Margaret Atwood a offert une vision du futur extrêmement sombre et surtout cruellement réaliste. Son adaptation au petit écran tombe parfaitement à pic et la série créée par Bruce Miller est parfois éprouvante à regarder, tant elle semble juste. La première saison de <em>The Handmaid’s Tale : La Servante écarlate</em> reste assez proche du roman original et elle s’impose, en dix épisodes seulement, comme l’une des séries les plus fortes de ces dernières années. À ne rater sous aucun prétexte.
+
+<img src="https://voiretmanger.fr/wp-content/uploads/2017/08/handmaids-tale-servante-ecarlate-hulu.jpg" alt="" width="2420" height="1613" class="aligncenter size-full wp-image-18628" />
+
+Comme le roman, <em>The Handmaid’s Tale : La Servante écarlate</em> ne s’embarrasse pas avec les présentations et préfère plonger les spectateurs directement dans l’univers de la « République de Gilead », le nouveau nom des États-Unis. Il faudra attendre plusieurs épisodes pour découvrir petit à petit, par des flash-backs instillés ici ou là, ce qui s’est réellement passé. Cela fonctionnait très bien à l’écrit, c’est également parfait à l’écran, surtout si on ne connaît pas l’histoire originale et qu’on la découvre grâce à la série. Bruce Miller avait à sa disposition un univers très intense et il n’a pas besoin d’en faire trop pour le mettre en avant, l’histoire se suffit largement à elle-même. Il lui offre malgré tout un magnifique écrin, une photographie très douce qui joue avec des tons presque pastels. C’est une belle image, avec un côté rétro marqué qui prend tout son sens quand on pense que cette république religieuse a fait reculer le pays de quelques décennies, voire quelques siècles. La révolution lancée par le groupe qui se prénomme « Les Fils de Jacob » entend restaurer une époque révolue et ils se basent pour cela sur une lecture au premier degré de l&#x27;<em>Ancien Testament</em>. Leurs lois reposent toutes sur des citations bibliques, leurs actions sont justifiées systématiquement par des extraits de la <em>Bible</em> et une interprétation toujours très littérale. Découvrir cette société archaïque et ses différents membres est une grande partie de l’intérêt de la première saison comme de l’œuvre de Margaret Atwood. On découvre petit à petit les servantes, les Martha, les tantes et les épouses d’un côté, les commandants et les forces de l’Œil de l’autre. Tout est extrêmement réglementé et les lois interdisent en gros aux femmes de faire à peu près tout, sauf la cuisine et surtout des enfants. <em>The Handmaid’s Tale : La Servante écarlate</em> a fort justement modernisé le roman en liant la perte de fertilité de la population mondiale aux dérèglements climatiques. C’est une excellente idée, car cela amorce nécessairement un questionnement supplémentaire : cet État totalitaire a effectivement réussi à inverser la tendance et à ne plus polluer du tout. Ses actions n’en sont pas moins horribles, mais relier cette dystopie à une réalité actuelle est bien trouvé et c’est l’une des raisons qui expliquent le succès de la série. Elle est censée se dérouler dans un futur proche et son univers est un petit peu trop proche du nôtre pour ne pas sentir une gêne assez nette en la regardant. L’univers présenté par Bruce Miller semble beaucoup trop énorme pour exister vraiment, et pourtant, il a suffi de secouer le drapeau du risque terroriste pour tout faire passer. Est-on vraiment si éloigné de cette fiction ?
+
+<img src="https://voiretmanger.fr/wp-content/uploads/2017/08/handmaids-tale-elizabeth-moss-ann-dowd.jpg" alt="" width="3300" height="2200" class="aligncenter size-full wp-image-18630" />
+
+La série suit, elle aussi, les pas de June, devenue Defred en même temps qu’elle devenait servante écarlate. On sent bien que c’est probablement l’histoire d’une fille comme tant d’autre, qui n’a pas su voir le danger à temps et qui s’est laissé prendre dans une révolution qui lui a tout enlevé. Dans l’une des scènes les plus fortes de la première saison, on découvre comment elle a perdu son compte bancaire et son travail d’un claquement de doigt. Brutalement, une loi était passée et elle dépendait totalement de son mari, ce qui était déjà mieux que celles qui vivaient seules ou avec une autre femme. <em>The Handmaid’s Tale : La Servante écarlate</em> ne développe pas trop les raisons qui ont mené à cette situation, et c’est aussi bien ainsi, il suffit de savoir que des intégristes religieux ont pris le pouvoir pour transformer toutes les femmes fertiles du foyer en utérus sur pattes. C’est le principe des servantes et Bruce Miller montre très bien comment ces femmes sont traitées comme des esclaves violées tous les mois pour profiter de leur période de fertilité, et asservie à cet unique but de procréation. Le personnage de Defred est intéressant, parce qu’elle prend petit à petit conscience de son pouvoir en tant que femme fertile justement. Elle essaie de survivre pour retrouver sa fille, kidnappée peu après le coup d’état, et elle se rapproche du mouvement de résistance qui se forme dans le pays. L’adaptation a gonflé un petit peu cette partie, même si le scénario reste très fidèle au roman dans les grandes lignes et la première saison contient d’ailleurs l’intégralité du travail original. En attendant de voir ce que les scénaristes feront maintenant qu’ils sont livrés à eux-même[^1], on peut constater en dix épisodes que le personnage est très bien écrit et remarquablement interprété par Elisabeth Moss qui semble née pour ce rôle. Son effroi est parfaitement rendu, sa détermination grandissante aussi, tout comme son amour naissant pour le chauffeur de la maison. Autour d’elle, on retiendra surtout le rôle de l’épouse (incarnée remarquablement par Yvonne Strahovski), l’un des rôles les plus modifiés par rapport au roman, pour une bonne raison. Dans <em>The Handmaid’s Tale : La Servante écarlate</em>, c’est elle qui est le cerveau derrière la révolution intégriste, ce qui rend son personnage tragique. Elle s’est privée de ses propres droits et a créé au fond son propre enfer, de quoi ajouter une belle complexité psychologique au personnage.
+
+<img src="https://voiretmanger.fr/wp-content/uploads/2017/08/handmaids-tale-yvonne-strahovski.jpg" alt="" width="3300" height="2200" class="aligncenter size-full wp-image-18632" />
+
+Hulu a sans conteste réussi son pari. Adapter un roman culte n’est jamais tâche aisée, mais le résultat est à la hauteur des espérances et le travail de Bruce Miller force le respect. Il a créé en une saison assez brève une série qui restera dans les mémoires. <em>The Handmaid’s Tale : La Servante écarlate</em> est aussi belle qu’elle est terrifiante et la regarder d’une traite n’est pas chose facile. Cette société dystopique est un petit peu trop proche de la nôtre pour que l’on puisse vraiment se divertir et c’est probablement le meilleur compliment que l’on pouvait apporter. Brillant, glaçant.
+
+***
+
+## *The Handmaid’s Tale : La Servante écarlate*, saison 2 {#2}
+
+<img src="https://voiretmanger.fr/wp-content/uploads/2017/08/handmaids-tale-saison-2.jpg" alt="" width="3300" height="2200" class="big size-full wp-image-20453" />
+
+(25 juillet 2018)
+
+La première saison de la première série Hulu impressionnait par sa capacité à adapter et moderniser un roman culte, et par son ambiance terrifiante portée par un style froid et sublime. En dix épisodes, *The Handmaid’s Tale : La Servante écarlate* s’imposait sans difficulté comme l’une des [meilleures séries de l’année 2017](https://voiretmanger.fr/cinema-best-of-2017/) et on attendait avec impatience la suite. Impatience et une pointe d’inquiétude aussi : la première saison épuisant l’œuvre originale de Margaret Atwood, la suite doit innover. Le fait que l’auteure soit présente sur le projet pouvait rassurer, mais hélas, le résultat confirme ces craintes. La saison 2 commence assez bien, mais elle s’embourbe très vite dans une caricature de tout ce qui a fait le succès de la précédente. Bruce Miller ne parvient pas à trouver une bonne idée pour relancer l’intrigue, on s’ennuie ferme et la série devient même insupportable.
+
+<img src="https://voiretmanger.fr/wp-content/uploads/2017/08/handmaids-tale-2.jpg" alt="" width="3300" height="2200" class="aligncenter size-full wp-image-20454" /> 
+
+*The Handmaid’s Tale : La Servante écarlate* reprend immédiatement à la fin de la première saison, alors que les servantes écarlates ont résisté et n’ont pas tué l’une de leurs collègues. On les retrouve emmenées de force dans des camionnettes, dans un stade où des dizaines d’échafauds les attendent. Non pas pour les tuer, ces femmes fertiles sont trop précieuses dans cette dystopie où l’humanité se meurt, mais pour leur faire peur, avec séance de torture à laquelle Defred doit assister. C’est un petit peu gros, mais le premier épisode enchaîne assez vite sur l’évasion de l’héroïne, qui parvient à fuir, aider par la résistance. Par la suite, la série de Bruce Miller enchaîne deux épisodes de fuite, avant de faire capoter le plan et de forcer la servante à revenir dans la villa où la première saison se déroulait. C’est à partir de là qu’elle commence à patiner, pour carrément faire du surplace après un ou deux épisodes supplémentaires. Hulu a manifestement cherché à offrir une suite encore plus ambitieuse, mais cette saison de 13 épisodes approchant des 60 minutes est bien trop longue. On a le sentiment qu’à chaque fois, il faut remplir avec des intrigues secondaires sans intérêt et surtout des ralentis. Ils sont partout, ils sont censés être esthétiques, ils symbolisent surtout tout ce qui ne va pas dans cette suite. Les plans sont pratiquement tous filmés dans l’obscurité, ils sont inutilement léchés et même si la photographie reste très belle, elle masque ici le vide de l’intrigue. Il ne se passe rien et quand il se passe quelque chose, les ficelles sont tellement énormes qu’on les voit venir bien à l’avance. Peut-être que la saison s’améliore à la toute fin, mais c’est trop tard : chaque épisode est trop long et trop lent, on se lasse bien avant le treizième et on perd toute envie de voir une probable troisième saison.
+
+<img src="https://voiretmanger.fr/wp-content/uploads/2017/08/handmaids-tale-hulu-2.jpg" alt="" width="3300" height="2200" class="aligncenter size-full wp-image-20455" />
+
+Quel gâchis : *The Handmaid’s Tale : La Servante écarlate* est passé de l’une des meilleures saisons de ces dernières années à une caricature pénible à regarder. Il y avait pourtant un tel potentiel, on espérait un développement du côté du Canada et pourquoi pas une découverte plus approfondie du système politique, ou même un retour sur la naissance du mouvement et le coup d’état. Toutes ces pistes auraient pu donner une série intéressante, mais les scénaristes ont choisi la voie de la facilité. On reste avec les décors et les personnages de la première saison, dans l’ensemble rien ne change et quand cela change, c’est pour le pire. Toute la partie sur les camps de travaux, un calque grossier des camps de concentration, n’amène rien d’intéressant et sert à nouveau de remplissage, d’autant que cet arc narratif disparaît brutalement sans nouvelle. La série de Bruce Miller s’essouffle ainsi naturellement et elle ne semble jamais trouver un nouveau souffle, au point de dégoûter complètement en une demi-saison. *The Handmaid’s Tale : La Servante écarlate* aurait pu donner une grande série, on se contentera finalement d’une grande saison. Ce n’est déjà pas si mal, mais quel gâchis, décidément. 
+
+
+<div class="amazon" markdown="1">
+### Vous voulez [m'aider](https://voiretmanger.fr/soutien/) ?
+
+- [Regarder la série sur OCS](https://www.ocs.fr/serie/the_handmaids_tale_la_servante_ecarlate)
+- [Acheter ou louer la série sur l'iTunes Store](https://itunes.apple.com/fr/tv-season/the-handmaids-tale-la-servante-écarlate-saison-1/id1254610605)
+</div>
+
+[^1]: Avec le concours de Margaret Atwood toutefois, la romancière étant impliquée sur le projet en tant que productrice.
