@@ -1,0 +1,43 @@
+---
+ID: 2748
+post_title: Une exécution ordinaire, Marc Dugain
+post_name: execution-ordinaire-dugain
+author: Nicolas
+post_date: 2010-02-07 00:47:56
+post_excerpt: "Staline est rare au cinéma. Pourtant, c'est un personnage historique passionnant, comme le montre ce film d'André Dugain malheureusement raté. Décidément, j'ai du mal avec le cinéma français."
+layout: post
+link: >
+  https://voiretmanger.fr/execution-ordinaire-dugain/
+published: true
+tags:
+  - Histoire
+  - Staline
+  - URSS
+categories:
+  - À voir
+---
+<p>Après deux blockbusters américains, il fallait marquer une pause et quoi de mieux qu'un film français pour ça ? <em>Une exécution ordinaire</em> est l'adaptation d'un roman de Marc Dugain réalisée par lui-même. Un roman au sujet suffisamment passionnant pour me faire entrer dans la salle, mais malheureusement pas assez pour me faire aimer le film. Dommage…</p>
+
+<div style="text-align: center;"><a href="http://www.allocine.fr/film/fichefilm_gen_cfilm=129328.html"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2010/02/une-execution-ordinaire.jpg" border="0" alt="une-execution-ordinaire.jpg" width="600" height="800" /></a></div>
+<p><em>Une exécution ordinaire</em> se déroule dans l'URSS de Staline, à la fin du règne du dictateur. Ce dernier souffre terriblement et se sent mourant. Pourtant, en bon tyran paranoïaque, il fait arrêter tous ses médecins sur un vague soupçon de complot juif. Pour ne pas mourir tout à fait, il fait alors appel à Anna, une jeune médecin douée de dons spéciaux puisqu'elle est capable de soigner par le simple contact des mains ((Ce qui ne manque pas de sel, quand on pense qu'elle est interprétée par Marina Hands. Oui, bon, je suppose que quelqu'un devait le faire.)). Un pouvoir bien peu politiquement correct dans un régime qui prône le rationalisme et rejette la religion ou le surnaturel. Ce que ses gentils collègues ne manquent de lui rappeler, tentant au passage de lui extorquer quelques avantages en nature. Elle finit par être dénoncée, et l'information remonte comme il se doit au Kremlin et n'atterrit pas dans les oreilles d'un sourd. Staline se méfie des médecins traditionnels et fait appeler cette Anna pour qu'elle le soigne.</p>
+<p>Commence alors une relation complexe entre le monstre et la jeune femme. Anna est efficace, et Staline ne cesse de faire appel à elle. Bien vite, elle lui est absolument indispensable. On s'en doute, l'idée que le petit père du peuple se fasse soigner par magnétisme n'entrait pas harmonieusement dans la propagande officielle du régime et c'est à un silence absolu et dévastateur qu'est soumise la jeune femme. Un silence qui impose vite qu'elle se sépare de son mari qu'elle tente en vain de protéger en demandant le divorce. La terreur est la base de toute l'URSS et Staline trouve dans sa famille un bon moyen de maintenir la pression sur celle qui est aussi la seule à même de le soulager. Le film développe ainsi leurs relations jusqu'à la mort de Staline.</p>
+
+<div style="text-align: center;"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2010/02/execution-ordinaire-dussolier-hands.jpg" border="0" alt="execution-ordinaire-dussolier-hands.jpg" width="600" height="399" /></div>
+<p>L'histoire est passionnante, même si apparemment elle n'est pas vraie (réaliste, pourrait-on dire). La relation entre ces deux êtres qui ont désespérément besoin l'un de l'autre, mais que tout sépare et oppose est intéressante. Le courage d'Anna qui continue à soigner l'homme qui torture son mari et enferme sa famille est assez impressionnant à voir et on ne sait pas vraiment, au fond, ce qui la motive. Sans doute l'espoir vain d'amadouer Staline en faveur de sa famille. Peut-être aussi la conscience professionnelle, même si ses choix étaient pour le moins limités. Je pense que l'on peut aussi y voir une admiration secrète pour l'homme le plus puissant d'URSS. Un homme que l'on découvre aussi... humain, souffrant, conscient de l'atrocité de ses actes et en même temps apparemment incapable de les regretter ((Le film se conclut d'ailleurs sur une citation édifiante de Staline : "La mort d'un homme est une tragédie. La mort d'un million d'hommes est une statistique.")).</p>
+<p>Interpréter quelqu'un comme Staline n'est jamais facile quand il s'agit d'être sérieux. Dans <em>Une exécution ordinaire</em>, c'est un André Dussollier méconnaissable qui s'en charge et il faut bien dire que c'est visuellement bluffant. D'une part, on ne reconnaît vraiment pas l'acteur sérieusement grimé pour le film. Cela concerne son visage, mais aussi sa démarche… on sent le travail d'un biopic derrière. Les problèmes commencent néanmoins quand il parle : ça n'est, certes, pas de la faute de Dussollier, mais sa voix m'est tellement familière que je vois alors l'acteur, et je pers Staline. Le fait qu'il parle français, alors que même son courrier est en russe, perturbe gravement au réalisme de la situation. Sur ce point, ceux qui ont l'horrible habitude de voire les films en VF ne seront pas dépaysés. Ceux qui préfèrent les VO peineront sans doute à trouver réalistes des Russes qui parlent tous un français parfait.</p>
+
+<div style="text-align: center;"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2010/02/une-execution-ordinaire-baer-hands.jpg" border="0" alt="une-execution-ordinaire-baer-hands.jpg" width="600" height="399" /></div>
+<p>Mais les problèmes du film dépassent le simple choix de tourner en français, un choix qui se justifie de toute façon par le fait que 100 % des acteurs sont Français. Le scénario pose vraiment problème par son côté théâtral et son manque régulier de réalisme. Les personnages déclament un texte, ils ne semblent pas y croire une seconde et du coup, nous non plus. Et puis franchement, je doute que Staline s'exprimait à coup de citations qui, certes, font souvent sourire tant elles sont cyniques et décomplexées, mais qui cassent aussi souvent la réalité du dialogue. Dans le même ordre idée, l'intégration de Poutine au beau milieu du film est vraiment grossière et aurait mérité une bonne suppression. Si l'on est souvent mieux servi par soi-même, je crois que Marc Dugain aurait mieux fait de céder sa place à un autre pour adapter son roman. Il a manifestement une trop grande confiance en son écrit pour insérer la distance nécessaire au film.</p>
+<p><em>Une exécution ordinaire</em> souffre aussi de problèmes de réalisation, à mon avis. Le film est lent, très lent et l'heure quarante-cinq qu'il dure m'a paru beaucoup plus longue. Le réalisateur a en outre fait le choix d'une réalisation très simple, marquée notamment par des couleurs très fades qui correspondent bien à l'idée qu'on se fait de la grisaille soviétique, mais qui rendent aussi le film assez peu agréable à voir. Heureusement, les acteurs sauvent en partie les choses, Marina Hands est très bien, Édouard Bear pas mauvais et très sobre, ou encore Denis Podalydès, très bon dans un des rares rôles "comiques" du film avec un obséquieux gardien d'immeuble.</p>
+
+<div style="text-align: center;"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2010/02/une-execution-ordinaire-dussollier.jpg" border="0" alt="une-execution-ordinaire-dussollier.jpg" width="600" height="399" /></div>
+<p>Malgré une solide histoire et des acteurs convaincants, <em>Une exécution ordinaire</em> ne m'a pas plu. Je n'ai jamais cru à cette histoire, je n'ai jamais vu Staline, mais Dussollier faisant une très belle performance d'acteur. Sans doute est-ce un goût personnel, mais je crois que le cinéma français peine à réaliser des films historiques vraiment réalistes. En tout cas, celui-ci ne m'a pas vraiment passionné…</p>
+<p>Pas de critiques sur les blogs habituels, alors à la place signalons une critique positive chez <a href="http://www.telerama.fr/cinema/films/une-execution-ordinaire,401243,critique.php"><em>Télérama</em></a>. Cela ne m'étonne pas…</p>
+
+<div class="amazon">
+<h3>Vous voulez m'aider ? ((<a href="https://voiretmanger.fr/soutien/">À propos de la publicité…</a>))</h3>
+<ul>
+	<li><a href="http://www.amazon.fr/gp/product/B003BQROGS/ref=as_li_ss_tl?ie=UTF8&tag=leblogdenic07-21&linkCode=as2&camp=1642&creative=19458&creativeASIN=B003BQROGS">Acheter le film en DVD sur Amazon</a></li>
+	<li><a href="https://itunes.apple.com/fr/movie/une-execution-ordinaire/id375704442">Acheter ou louer le film sur l'iTunes Store</a></li>
+</ul>
+</div>
