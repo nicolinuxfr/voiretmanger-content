@@ -1,0 +1,41 @@
+---
+ID: 2296
+post_title: '<em>Tetro</em>, Francis Ford Coppola'
+post_name: tetro-coppola
+author: Nicolas
+post_date: 2009-12-28 09:34:38
+post_excerpt: "Après tant d'années et tant de chefs-d'œuvre, le retour de Francis Ford Coppola était loin d'être évident. Mais sans atteindre la force des classiques, Tetro s'impose incontestablement pour une réussite."
+layout: post
+link: https://voiretmanger.fr/tetro-coppola/
+published: true
+tags:
+  - Amour
+  - Drame
+  - Famille
+categories:
+  - À voir
+---
+<p>Francis Ford Coppola, véritable dieu du cinéma hollywoodien à l'origine de films tels que le <em>Parrain</em> ou l'excellentissime <em>Apocalypse Now</em>, est donc vraiment de retour. Il y a deux ans, après dix ans de silence, il proposait bien <em>L'homme sans âge</em>, mais ça n'était pas une franche réussite et un film que l'on peut rapidement oublier selon moi. Par contre, avec <em>Tetro</em>, le niveau est bien différent. Sans atteindre la force des classiques — en a-t-il seulement la prétention ? —, ce film s'impose incontestablement pour une réussite.</p>
+
+<div style="text-align: center;"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2009/12/tetro-coppola.jpg" border="0" alt="tetro-coppola.jpg" width="600" height="800" /></div>
+<p>L'affiche du film ne laisse place à aucun doute : <em>Tetro</em> est un drame familial. Chaque famille recèle son lot de secrets, et la famille Tetrocini ne fait pas exception à la règle. Le père, chef d'orchestre renommé et richissime, laisse peu de place à son fils, Angelo. Ce dernier aimerait faire plaisir à son père envahissant, mais il semble au contraire tout faire pour lui déplaire. Il faut dire qu'il n'a pas de chance, puisqu'il est responsable de la mort de sa mère et donc de la femme de son père, l'amour de sa vie on s'en doute. Résultat, le père se venge quand le jeune Angelo ramène une copine à la maison, il lui pique et l'épouse. Devant cet affront, Angelo finit par tout plaquer pour écrire loin de sa famille, avec laquelle il coupe tous les liens.</p>
+<p>De ce second mariage naît Benjamin, dit Bennie. Depuis la disparition de son frère, il n'a de cesse de retrouver celui qui est clairement son guide dans la vie, son modèle. Et les coïncidences, si tant est que cela existe, l'amènent à bon port près de son frère, en Amérique du Sud. Autant dire que le retour du petit frère n'excite que modérément Angelo, qui se fait désormais appeler Tetro et qui cherche surtout à oublier sa famille. On comprend peu à peu les motifs qui font qu'il le rejette aussi brutalement, mais je préfère ne pas trop en dire et laisser un peu de suspense à ceux qui n'ont pas encore vu le film. Disons donc simplement que, comme on pouvait s'y attendre, les fameux secrets de famille vont voler en éclats.</p>
+
+<div style="text-align: center;"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2009/12/tetro-Alden-Ehrenreich.jpg" border="0" alt="tetro-Alden-Ehrenreich.jpg" width="600" height="400" /></div>
+<p>Comme tous les films en noir et blanc qui sortent aujourd'hui sans doute, <em>Tetro</em> frappe d'abord par la forme. La dernière œuvre de Coppola père est tout simplement sublime. Le noir et blanc est traité à la manière d'une photographie, l'image est très contrastée et met très bien en valeur certains plans, sublimes. Filmer en noir et blanc ne suffit évidemment pas, mais <em>Tetro</em> est vraiment servi par une image très belle qui fait plaisir à voir, nonobstant le scénario.</p>
+<p>Francis Ford Coppola profite du contraste entre le noir et blanc et la couleur. Rien de bien original, certes, sauf qu'ici l'usage attendu est inversé. Les quelques flashbacks qui ponctuent le film sont en couleur, alors que le présent est en noir et blanc (même si certains plans du passé sont en noir et blanc aussi...). L'inversion est intéressante justement parce que l'on attendrait l'inverse. Au-delà de la couleur, le réalisateur multiplie les moyens offerts par le cinéma pour bien distinguer clairement les deux éléments. Alors que le film est en écran large, les séquences couleur sont raccourcies pour se rapprocher du carré. Ajoutons à cela des plans en général plus serrés, où l'horizon est totalement effacé et une musique souvent envahissante et on obtient des scènes étouffantes, là où le noir et blanc respire.</p>
+
+<div style="text-align: center;"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2009/12/tetro-coppola-francis-ford.jpg" border="0" alt="tetro-coppola-francis-ford.jpg" width="600" height="400" /></div>
+<p>Coppola fut un grand réalisateur hollywoodien, symbole d'une époque sans doute révolue. Mais son retour, depuis deux ans, s'est fait sans Hollywood, loin d'Hollywood et je dirais même en opposition à Hollywood. Le choix de tourner un film en Amérique du Sud est à cet égard significatif. Mais le plus frappant reste les très faibles moyens du film. Tourné en numérique, il a manifestement fait appel à très peu de techniciens intermédiaires si l'on en croit le générique de fin qui bat tous les records en terme de durée je pense. Manifestement, Coppola a fait le choix de filmer léger, avec également peu de vraies stars, même si <a href="http://fr.wikipedia.org/wiki/Vincent_Gallo">Vincent Gallo</a> n'est pas un jeune premier. Dans cette catégorie, l'acteur qui joue Bennie, Alden Ehrenreich, est vraiment très bon, tout à fait à sa place pour un rôle quand même difficile. Il rappelle fortement un Leonardo di Caprio quand Vincent Gallo campe un Pacino assez convaincant, ce qui est quand même assez étrange</p>
+<p>Cette légèreté technique, si l'on ose dire, n'est pas pauvreté de la mise en scène. J'ai déjà évoqué le noir et blanc, mais l'on est aussi frappé de voir avec quelle aisance le réalisateur parvient à jouer sur les reflets ou les ombres pour animer ses dialogues, par exemple. Le cadre de <em>Tetro</em> est très serré au départ — un appartement, et même une seule pièce —, mais s'élargit au fur et à mesure qu'avance le film jusqu'aux plans larges des montagnes de Patagonie dans sa dernière partie. Autant d'éléments qui rappellent que l'on n'a pas, ici, affaire à un réalisateur débutant, mais à un maître en la matière.</p>
+
+<div style="text-align: center;"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2009/12/tetro-brandauer.jpg" border="0" alt="tetro-brandauer.jpg" width="600" height="400" /></div>
+<p>Après tant d'années et tant de chefs-d'œuvre, le retour de Francis Ford Coppola était loin d'être évident. Il l'était d'autant moins que <em>L'homme sans âge</em>, n'était pas vraiment un chef-d'œuvre, justement. Mais cette fois, on sent le retour d'un maître, et un retour qui fait plaisir à voir, étant très éloigné du piège de la redite purement commerciale. Chapeau...</p>
+<p>Les avis sont globalement positifs, voire carrément dithyrambique comme <a href="http://www.toujoursraison.com/2009/12/tetro.html">chez Rob Gordon</a>. Avis également très positif pour <a href="http://www.leblogducinema.com/2009/12/25/critique-tetro/">le blog du cinéma</a>, un peu moins pour <a href="http://www.surlarouteducinema.com/archive/2009/12/26/tetro-de-francis-ford-coppola.html">Pascale</a> qui regrette l'absence d'émotions... Côté critique traditionnelle, attention événement, les <em><a href="http://www.cahiersducinema.com/">Cahiers</a></em> ont adoré et en font même la couverture du numéro en cours ! <em>Télérama</em> aime beaucoup et pour une fois <a href="http://www.telerama.fr/cinema/films/tetro,384893,critique.php">explique pourquoi</a> ; idem chez <em><a href="http://www.critikat.com/Tetro.html">Critikat</a></em>.</p>
+
+<div class="amazon">
+<h3>Vous voulez m'aider ? ((<a href="https://voiretmanger.fr/a-propos/publicite/">À propos de la publicité…</a>))</h3>
+<ul>
+	<li><a href="http://www.amazon.fr/gp/product/B003DQWQ8W/ref=as_li_ss_tl?ie=UTF8&tag=leblogdenic07-21&linkCode=as2&camp=1642&creative=19458&creativeASIN=B003DQWQ8W">Acheter le film en DVD sur Amazon</a></li>
+</ul>
+</div>
