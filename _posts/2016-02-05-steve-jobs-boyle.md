@@ -1,0 +1,60 @@
+---
+ID: 15334
+post_title: '<em>Steve Jobs</em>, Danny Boyle'
+post_name: steve-jobs-boyle
+author: Nicolas
+post_date: 2016-02-05 00:03:18
+layout: post
+link: >
+  https://voiretmanger.fr/steve-jobs-boyle/
+published: true
+tags:
+  - Adaptation littéraire
+  - Apple
+  - Biographie
+  - Biopic
+  - Famille
+  - Informatique
+  - Société
+  - Sorties du moment
+  - Steve Jobs
+categories:
+  - À voir
+---
+> Le Steve Jobs qu’Aaron avait créé, qui ne correspond à l’homme que sur certains points en réalité, m’intriguait beaucoup. C’est un personnage shakespearien. Il est fascinant, brutal et attirant à la fois. 
+> <cite>— Danny Boyle</cite>
+
+Depuis sa mort, c'est le deuxième biopic qui s'intéresse à la vie de Steve Jobs, cofondateur d'Apple. Après un [*Jobs*](https://voiretmanger.fr/jobs-stern/) très conventionnel et bien peu marquant signé Joshua Michael Stern, c'est un projet beaucoup plus ambitieux qui est proposé ici. Le scénario adapté de la biographie officielle de Walter Isaacson est l'œuvre d'Aaron Sorkin, bien connu pour avoir écrit celui, excellent, de [*The Social Network*](https://voiretmanger.fr/social-network-fincher/). Danny Boyle derrière la caméra et Michael Fassbender devant : l'ensemble promettait un grand moment de cinéma, mais on a fait l'erreur de croire que le long-métrage parlait de Steve Jobs. Alors qu'en fait, *Steve Jobs* n'a rien du biopic escompté, déjà parce que le personnage que l'on a à l'écran n'a pas grand-chose à voir avec le personnage historique, mais aussi parce que ce n'est pas le sujet du film. Ce qui intéresse Aaron Sorkin, ce n'est pas tant le créateur d'Apple, le génie de l'informatique que le père, et plus précisément le mauvais père. Un angle original et bien plus intéressant, mais que Danny Boyle n'assume pas complètement. *Steve Jobs* est sauvé par les performances d'acteur et une certaine virtuosité, mais il reste à distance du chef-d'œuvre à ne pas choisir son sujet.
+
+<a href="http://www.allocine.fr/film/fichefilm_gen_cfilm=207616.html" rel="attachment wp-att-15336"><img src="https://voiretmanger.fr/wp-content/uploads/2016/02/steve-jobs-boyle.jpg" alt="steve-jobs-boyle" width="3425" height="4665" class="aligncenter size-full wp-image-15336" /></a>
+
+Bien avant le tournage, alors qu'on ne connaissait même pas le nom du réalisateur, Aaron Sorkin qui travaillait déjà sur le scénario avait prévenu : son film ne sera pas un biopic. Il évoquait déjà une idée audacieuse : se concentrer sur quelques moments forts pour Apple, trois ou quatre « *keynote* », ces conférences où Steve Jobs excellait pour présenter les nouveaux produits. Cette idée très forte a été maintenue jusqu'au bout et le film de Danny Boyle est bien constitué de trois segments uniques, dans les coulisses de trois évènements majeurs pour le sujet principal. On commence avec la présentation du Macintosh en 1984, puis on passe à celle du premier ordinateur de NeXT en 1988 et enfin le lancement de l'iMac en 1998. Ces choix sont plutôt malins, car ils correspondent à trois moments très importants dans la carrière du créateur d'Apple. *Steve Jobs* commence ainsi à l'époque où, porté par le succès, le mythe Jobs était devenu tel qu'il était considéré comme une sorte de dieu — il y a d'ailleurs une ligne de dialogue très amusante à ce sujet. Le Macintosh était censé révolutionner l'informatique et son instigateur se sent tout puissant, il est investi d'une mission et rien ne doit se dresser sur sa route. La séquence qui suit est au contraire celle de la désillusion : poussé à la porte par John Sculley, le PDG qu'il avait lui-même nommé, Steve Jobs a fondé une autre entreprise informatique et le NeXT Computer est son premier produit. C'est une période d'humilité forcée, mais aussi de revanche avant le grand retour à Apple, célébré par le dernier segment. Danny Boyle termine ainsi avec la présentation de l'iMac, l'ordinateur qui symbolise le retour de l'entreprise sur le devant de la scène, même si c'est l'iPod qui, quelques années plus tard, permet vraiment à Apple de retrouver sa santé financière.
+
+<img src="https://voiretmanger.fr/wp-content/uploads/2016/02/steve-jobs-michael-fassbender-kate-winslet-michael-stuhlbarg.jpg" alt="steve-jobs-michael-fassbender-kate-winslet-michael-stuhlbarg" width="2100" height="1400" class="aligncenter size-full wp-image-15338" />
+
+L'idée est excellente et les choix effectués par le scénariste sont très bons. La présentation du Macintosh et de l'iMac ont effectivement marqué leurs époques respectives, tout comme les deux ordinateurs ont marqué les esprits quand ils sont sortis. On pourrait se poser la question quant à la première conférence de NeXT, mais on peut aussi apprécier que *Steve Jobs* n'oublie pas totalement cette période, comme l'avait fait le précédent biopic. Tout irait pour le mieux si… Aaron Sorkin respectait un tant soi peu l'histoire telle qu'elle a eu lieu. N'exagérons pas, les grandes lignes sont bien là, les personnages ont vraiment existé et on reste bien dans le domaine de l'histoire vraie. Mais le nombre d'erreurs est incroyablement élevé, et on ne parle pas que de simplifications historiques toujours nécessaires, mais de variations qui changent tout par rapport à la réalité. On pourrait remplir plusieurs articles pour lister toutes les erreurs de *Steve Jobs*, mais ce serait un exercice un petit peu vain, tant elles sont nombreuses. Il faut dire que le dispositif imaginé par le scénario implique de tordre considérablement la réalité. Danny Boyle doit se contenter de trois séquences successives et même s'il se permet de sortir des coulisses de chaque scène où elles se déroulent, on reste assez proche d'un huis clos, avec à chaque fois le même schéma qui se répète. Le PDG répète sa présentation, vérifie avec les ingénieurs que tout fonctionne et à trois reprises, il discute avec les mêmes personnes. Steve Wozniak, qui n'arrête pas de lui demander de parler de l'Apple II[^1], Andy Hertzfeld qui a travaillé sur le Macintosh, John Sculley qui a dirigé Apple jusqu'en 1993 et enfin sa fille, Lisa. C'est sans doute la limite de l'exercice, son côté artificiel : l'idée qu'à moins de trente minutes d'une présentation essentielle pour lui, et probablement très stressante, Steve Jobs traite à chaque fois avec les mêmes personnes est absurde. Et ne parlons pas de la chronologie totalement fantaisiste : Johanna Hoffman a pris sa retraite en 1995, Andy Hertzfeld a quitté Apple en 1984, Steve Wozniak en 1987. Dans l'univers parallèle imaginé par le film de Danny Boyle, ils sont tous là jusqu'au bout.
+
+<img src="https://voiretmanger.fr/wp-content/uploads/2016/02/steve-jobs-michael-fassbender-seth-rogen.jpg" alt="steve-jobs-michael-fassbender-seth-rogen" width="2100" height="1400" class="aligncenter size-full wp-image-15340" />
+
+C'est acquis, *Steve Jobs* ne raconte pas l'histoire de Steve Jobs, en tout cas pas l'histoire réelle. Ce qui est assez étrange quand on pense qu'Aaron Sorkin a adapté la biographie de Walter Isaacson, une biographie autorisée par le principal intéressé de son vivant. Que reste-t-il alors au film ? Eh bien à défaut d'informatique, il parle de famille et en l'occurrence de Lisa, la fille que Steve Jobs n'a pas voulu reconnaître initialement. Un sujet intéressant, d'autant que la vie privée de cette figure publique est peut-être moins connue. Et puis c'est un aspect un petit peu sombre de la vie du personnage, un angle toujours plus accrocheur pour un biopic : on peut comprendre l'attrait pour Danny Boyle. La réalité historique a, ici aussi, été sacrifiée au profit d'un drame bien plus accentué, mais ce n'est pas nécessairement un problème et il est vrai que Steve Jobs a d'abord refusé de reconnaître sa fille et qu'il lui a fallu des années pour l'accepter pleinement et l'aider. Toute cette histoire familiale est incontestablement ce qui a intéressé Aaron Sorkin, beaucoup plus que l'histoire informatique qu'il ne maîtrise pas du tout[^2]. *Steve Jobs* n'est jamais aussi bon que lorsqu'il met en scène la vie familiale de son sujet et le cinéaste parvient même à toucher par moments. Il faut dire qu'il peut compter sur des acteurs exceptionnels, tout particulièrement Michael Fassbender qui ne ressemble absolument pas à l'homme qu'il interprète, mais qui est magnifique, rien de moins. Sa prestation est spectaculaire et les dialogues ciselés d'Aaron Sorkin font mouche, mais le long-métrage aurait mieux fait d'assumer ce choix de parler de Lisa plutôt que d'Apple. En l'état, on est dans un entre-deux, avec trop ou pas assez d'informatique, et trop ou pas assez de famille et *Steve Jobs* n'excelle ni d'un côté, ni de l'autre. 
+
+<img src="https://voiretmanger.fr/wp-content/uploads/2016/02/steve-jobs-lisa.jpg" alt="steve-jobs-lisa" width="2100" height="1400" class="aligncenter size-full wp-image-15343" />
+
+*Steve Jobs* n'est pas un mauvais film pour autant, et on passe un très bon moment à regarder ces acteurs talentueux et à écouter des dialogues souvent virtuoses. Danny Boyle a fait un bon travail, notamment sur le montage et on ne s'ennuie pas, alors même que le long-métrage est composé de trois séquences indépendantes[^3] et qui sont pratiquement des huis clos. Néanmoins, le film souffre au fond du même problème que celui de Joshua Michael Stern. À trop hésiter entre histoire de l'entreprise et vie privée, il ne fait rien de parfaitement bien et risque de frustrer autant les fans que les néophytes. Les premiers seront agacés par les erreurs historiques et par une vision de l'informatique extrêmement caricaturale. Quant aux seconds, ils seront sûrement perdus par les dizaines d'allusions lancées sans être explicitées[^4]. *Steve Jobs* fourmille de détails souvent inutiles et parfois faux, alors qu'il aurait pu se concentrer sur un père et sa fille. Danny Boyle aurait alors signé une œuvre très différente, mais peut-être meilleure…
+
+<div class="amazon" markdown="1">
+### Vous voulez [m'aider](https://voiretmanger.fr/soutien/) ?
+
+- [Acheter le film en Blu-ray sur Amazon](http://amzn.to/2maQWZP)
+- [Acheter le film en DVD sur Amazon](http://amzn.to/2lSSeYy)
+- [Acheter ou louer le film sur l'iTunes Store](https://itunes.apple.com/fr/movie/steve-jobs-2015/id1037065166)
+- [Regarder le film sur Netflix](https://www.netflix.com/title/80049358)
+</div>
+
+[^1]: Le premier ordinateur vraiment commercialisé par Apple, le premier ordinateur personnel. Et aussi le premier succès commercial du constructeur qui en a bien profité, puisqu'il a été produit jusqu'en 1993. Mais peut-on vraiment imaginer que Steve Wozniak demande encore à Steve Jobs d'en parler en 1998 ? 
+
+[^2]: Là encore, lister toutes les erreurs serait bien vain. Disons que la vision proposée par le film, entre l'informatique ouverte et libre de Steve Wozniak, et celle complètement fermée et propriétaire de Steve Jobs est extrêmement caricaturale. Les deux Steve n'étaient pas aussi butés et stupides en réalité.
+
+[^3]: Trois séquences, tournées chronologiquement et avec des moyens différents qui sont censés correspondre à chaque époque. La présentation du Macintosh est granuleuse et pas toujours de très bonne qualité (argentique 16 mm), la présentation NeXT est meilleure (argentique 35 mm), mais celle de l'iMac est la plus nette (numérique). On voit bien la différence à chaque étape et même si ce n'est pas l'idée la plus subtile qui soit, Danny Boyle ne l'utilise pas de façon trop ostentatoire. Et il faut reconnaître qu'elle participe à donner une idée de l'époque et du temps qui passe.
+
+[^4]: Quitte à tomber dans l'allusion anachronique un peu lourde, à l'image du clin d'œil appuyé à l'iPod dans la dernière scène. En revanche, l'article de *Macworld* publié à l'époque de NeXT et avant l'acquisition d'Apple est [bel et bien réel](http://holykaw.alltop.com/1994-spoof-apple-press-release-about-steves-r). Certes, il date de 1994 et non de 1988 comme le prétend le film, mais sa prédiction reste étonnamment juste.
