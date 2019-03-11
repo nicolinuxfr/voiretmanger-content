@@ -1,0 +1,45 @@
+---
+ID: 8493
+post_title: '<em>La vie des autres</em>, Florian Henckel von Donnersmarck'
+post_name: la-vie-des-autres-donnersmarck
+author: Nicolas
+post_date: 2013-02-06 10:47:16
+post_excerpt: "La vie des autres plonge ses spectateurs en Allemagne de l'Est, à une époque où la Stasi a encore tous les pouvoirs. Florian Henckel von Donnersmarck dresse le portrait passionnant d'un homme qui s'éloigne du régime et découvre l'amour au fil de ses surveillances. Un très beau film…"
+layout: post
+link: >
+  https://voiretmanger.fr/la-vie-des-autres-donnersmarck/
+published: true
+tags:
+  - Drame
+  - Histoire
+  - Police
+  - Politique
+  - Société
+categories:
+  - À voir
+---
+<p>Pour son premier film, Florian Henckel von Donnersmarck plonge les spectateurs dans l'enfer de la République Démocratique d'Allemagne, au cœur des années 1980. <em>La vie des autres</em> impressionne par son ambiance glaciale et sa reconstitution soignée, mais aussi par le parcours étonnant de son personnage principal. Un long-métrage dur, mais aussi très beau, à ne pas rater. </p>
+
+<div style="text-align:center;"><a href="http://www.allocine.fr/film/fichefilm_gen_cfilm=111643.html"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2013/02/la-vie-des-autres-donnersmarck.jpg" alt="La vie des autres donnersmarck" title="la-vie-des-autres-donnersmarck.jpg" width="100%" /></a></div>
+
+<p>Aucun générique, pas même le nom d'un organisme de financement ou d'un producteur pour nous laisser le temps de nous habituer : <em>La vie des autres</em> commence de façon brutale, par une séquence en prison. On suit la silhouette rigide de Wiesler, gradé de la <a href="http://fr.wikipedia.org/wiki/Stasi">Stasi</a>, le Ministère de la Sécurité d'État de la RDA. Son métier ? Traquer inlassablement les traitres à la cause socialiste, tous ceux qui dévient du régime officiel, tous ceux qui remettent en cause le communisme et qui essaient de partir à l'Ouest. Dans ces années 1980, les relations sont moins tendues entre les deux Allemagne, mais le régime de Erich Honecker ne relâche pas la pression sur ses habitants et la traque est, plus que jamais, en action. Wieser est l'un des plus efficaces dès qu'il s'agit d'interroger des suspects. Avec son regard froid et toujours fixe, il impressionne par sa froideur et son absence totale d'émotions. Imperturbable, il sait patienter et mener les suspects jusqu'à l'épuisement, puis jusqu'aux aveux qui finissent toujours par arriver. Un jour, son supérieur attire son attention sur Georg Dreyman, dramaturge qui semble n'aimer que le communisme et la RDA. Cette dévotion est suspecte aux yeux de la Stasi qui le trouve un peu trop parfait. Sans plus attendre, son appartement est mis intégralement sur écoute et c'est Wieser qui commence à écouter l'écrivain pour traquer la moindre faille. Une expérience qui, contre toute attente, le change profondément.</p>
+
+<p><em>La vie des autres</em> est un film historique de très grande qualité : dès les premiers plans, les années 1980 en Allemagne de l'Est apparaissent et elles sont parfaitement crédibles. Au-delà des accessoires et des voitures d'époque, c'est l'ambiance terne et quasiment monochrome qui ressort. Florian Henckel von Donnersmarck a parfaitement réussi à rendre cet univers standardisé où tout le monde a les mêmes voitures — les fameuses Lada et quelques Trabants —, les mêmes appartements cubiques sans âme, les mêmes vêtements gris. Rien ne doit dépasser et tout ce qui sort de ce cadre est immédiatement suspecté. La Stasi a alors tous les pouvoirs, et il lui suffit d'un soupçon pour suivre, écouter, voire arrêter quelqu'un. Inutile de dire que cette homogénéité n'est que de façade : comme on le sait bien maintenant, il y avait une classe dirigeante très différente et <em>La vie des autres</em> ne manque pas de la représenter avec le personnage du ministre Bruno Hempf. Au fond, la mise sur écoute de l'écrivain est de son fait : ce qu'il veut, ce n'est pas tant arrêter un ennemi de l'état, qu'arrêter un rival. À travers Dreyman, il vise sa femme, Christa-Maria qu'il arrive à obtenir à force de chantage. Quand finalement elle trouve la force de résister, c'est encore lui qui fera pression sur la Stasi pour trouver un moyen de l'arrêter. </p>
+
+<div style="text-align:center;"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2013/02/la-vie-des-autres-ulrich-muhe.jpg" alt="La vie des autres ulrich muhe" title="la-vie-des-autres-ulrich-muhe.jpg" width="100%" /></div>
+
+<p>Pourtant, si la Stasi conserve tout son pouvoir, <em>La vie des autres</em> dresse le portrait d'un régime sur le déclin. Quatre ans avant la chute du Mur de Berlin et donc la fin de la RDA, le communisme se délite dans cette région et il n'est devenu qu'un prétexte pour mieux contrôler la population. Les dirigeants n'essaient même plus de masquer leur cynisme et mènent un chantage ouvert, sans n’être jamais inquiétés. Quand Wieser découvre que le ministre est mêlé à sa cible, il le mentionne bien évidemment dans son rapport et se fait taper sur les doigts par son supérieur : Bruno Hempf est un ministre, c'est différent, il est forcément innocent et ne doit même pas être mentionné dans le rapport. Le personnage principal de Florian Henckel von Donnersmarck est présenté dans un premier temps comme un idéaliste : il croit au communisme et à la RDA, il fait son métier parce qu'il est convaincu d'avoir raison de le faire. Peu à peu, il prend conscience des dérives du régime et s'en éloigne dès lors rapidement : <em>La vie des autres</em> est d'abord le récit d'une conversion. En écoutant au quotidien le couple, il découvre un univers qu'il n'avait jamais remarqué, il comprend des choses qu'il n'avait jamais envisagées et il finit par s'éloigner de ses idéaux. Notant très scrupuleusement ce qui se dit dans un premier temps, Wieser finit par inventer tout ce qu'il écrit et masque ainsi la vérité à ses supérieurs. Une manière de contribuer à sa façon à la chute du régime, mais les dernières images de <em>La vie des autres</em> sont, à cet égard, terribles. La réunification des deux Allemagne n'a fait aucun cadeau à cet ancien membre de la Stasi resté largement anonyme…</p>
+
+<p>Florian Henckel von Donnersmarck a réalisé quelques courts-métrages, mais <em>La vie des autres</em> est son premier véritable film. Pour une première fois, ce cinéaste allemand impressionne par sa maîtrise technique et formelle : le long-métrage est parfaitement tenu et il impose une ambiance poisseuse jusqu'à la toute fin et son épilogue post-communiste. Le réalisateur a aussi écrit le scénario et on ne peut encore une fois qu'être impressionné par cette histoire imaginée pour les besoins du film, toujours parfaitement crédible et qui a su éviter les travers d'une reconstitution hollywoodienne. <em>La vie des autres</em> est un film assez âpre et qui sait prendre son temps, mais ses 2h17 passent très bien et on ne s'ennuie jamais vraiment. Le suspense reste ainsi globalement élevé et on se demande toujours comment l'écrivain et sa femme vont pouvoir s'en tirer. La réussite du film tient aussi aux prestations de ses acteurs : Sebastian Koch est très juste dans le rôle de Dreyman, sa femme interprétée par Martina Gedeck est également dans le bon ton, mais c'est surtout le rôle de Wieser qui est mémorable. Interprété par Ulrich Mühe, il est remarquable de froideur glaciale et d'insensibilité dans un premier temps, et encore meilleur quand il s'agit de changer au fur et à mesure que le film avance. Un très beau rôle, incontestablement, et le succès de <em>La vie des autres</em> lui doit beaucoup.</p>
+
+<div style="text-align:center;"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2013/02/la-vie-des-autres-sebastian-koch-martina-gedeck.jpg" alt="La vie des autres sebastian koch martina gedeck" title="la-vie-des-autres-sebastian-koch-martina-gedeck.jpg" width="100%" /></div>
+
+<p>À travers une reconstitution historique précise et réussie, <em>La vie des autres</em> ressuscite le temps d'un film la RDA communiste et surtout la pression permanente de sa Stasi. Florian Henckel von Donnersmarck dresse également le portrait d'un régime encore puissant, mais sur le déclin, mais aussi, et surtout la belle histoire d'une conversion : la découverte de l'amour et de la vie, tout simplement, par un agent de la Stasi. Un très beau film !</p>
+
+<div class="amazon">
+<h3>Vous voulez m'aider ?</h3>
+<ul>
+	<li><a href="http://www.amazon.fr/gp/product/B001CRVY14/ref=as_li_ss_tl?ie=UTF8&tag=leblogdenic07-21&linkCode=as2&camp=1642&creative=19458&creativeASIN=B001CRVY14">Acheter le film en Blu-Ray sur Amazon</a></li>
+	<li><a href="http://www.amazon.fr/gp/product/B000TXY2KW/ref=as_li_ss_tl?ie=UTF8&tag=leblogdenic07-21&linkCode=as2&camp=1642&creative=19458&creativeASIN=B000TXY2KW">Acheter le film en DVD sur Amazon</a></li>
+</ul>
+</div>
