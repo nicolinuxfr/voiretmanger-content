@@ -1,0 +1,40 @@
+---
+ID: 12694
+post_title: '<em>Whiplash</em>, Damien Chazelle'
+post_name: whiplash-chazelle
+author: Nicolas
+post_date: 2014-12-28 15:56:44
+layout: post
+link: >
+  https://voiretmanger.fr/whiplash-chazelle/
+published: true
+tags:
+  - Drame
+  - Enseignement
+  - Jazz
+  - Musique
+  - Sorties du moment
+categories:
+  - À voir
+---
+Pour son premier long-métrage, Damien Chazelle a choisi un sujet original en filmant un apprentissage, dans la douleur, de l'art difficile de la batterie jazz. Résumé ainsi, *Whiplash* ne donne pas forcément envie, mais on aurait tort de s'arrêter à des préjugés sur l'instrument ou son usage : avec deux personnages parfaitement bien écrits et remarquablement bien interprétés, le film est d'une intensité rare au cinéma. La confrontation du maître et de l'élève donne lieu à quelques scènes épuisantes, et c'est une excellente chose : le jeune cinéaste a réussi à capter toute l'énergie dégagée par son batteur et c'est une vraie réussite. Porté par une excellente [bande originale](http://www.amazon.fr/gp/product/B00MZ3WMMY/ref=as_li_ss_tl?ie=UTF8&tag=leblogdenic07-21&linkCode=as2&camp=1642&creative=19458&creativeASIN=B00MZ3WMMY) composée de quelques classiques du jazz, *Whiplash* est sans conteste une des meilleures surprises de cette fin d'année, à voir absolument !
+
+<a href="http://www.allocine.fr/film/fichefilm_gen_cfilm=225953.html"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2014/12/whiplash-chazelle.jpg" alt="Whiplash chazelle" title="whiplash-chazelle.jpg" width="1600" height="2161" /></a>
+
+Comme beaucoup d'autres jeunes de son âge, Andrew, 19 ans, a un rêve. Mais contrairement à la majorité de ses pairs, son rêve est un petit peu particulier, puisqu'il ne pense qu'à une chose : devenir un excellent batteur jazz, capable de rivaliser avec les plus grandes légendes du genre. Depuis qu'il est tout petit, il ne rêve que de cela et même si sa famille n'a jamais fait de musique, il est non seulement obstiné, mais en plus assez doué. Quand *Whiplash* commence, on le voit répéter dans l'école où il prend des cours pour se professionnaliser et on sent dès cette première scène que c'est bien plus qu'un futur métier, c'est d'abord et avant tout une passion. Une passion qui le pousse à tout faire pour atteindre son but, quitte à se mettre en danger. Damien Chazelle introduit vite le deuxième élément déterminant de son film, à savoir Terence Fletcher, le professeur le plus impitoyable et le plus craint de l'école, mais aussi le meilleur d'entre tous, celui qui découvre le plus de talents et qui a le plus de chance de les porter très loin. Andrew s'est inscrit dans cette école, la meilleure du pays selon lui, presque uniquement pour être remarqué par ce professeur, et c'est naturellement ce qui arrive au début du film. Le mentor remarque le don naturel du jeune homme et l'invite à joindre son groupe de jazz, le plus exigeant de l'école et vainqueur d'une multitude de concours. Tout semble aller pour le mieux, mais *Whiplash* interroge cet engagement aveugle d'Andrew pour la musique. Le personnage est convaincu de son talent, mais il est vite rabaissé par Fletcher, dont l'exigence légendaire n'a d'égal que sa tendance à briser les élèves en les poussant si loin que certains en viennent à se suicider. Persuadé d'être à sa place, le personnage de Damien Chazelle sert les dents et endure tout, littéralement jusqu'au sang. À plusieurs reprises, une scène se termine avec une batterie maculée de sang, une image très forte qui en dit long sur l'engagement d'Andrew. Face à cette violence qui est d'autant plus forte qu'il se l'inflige à lui-même, on peut lever les yeux au ciel, mais on peut aussi saluer son engagement. Damien Chazelle ne tranche pas, même si la fin va dans un sens que l'on se gardera bien de dévoiler ici. 
+
+<img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2014/12/whiplash-damien-chazelle.jpg" alt="Whiplash damien chazelle" title="whiplash-damien-chazelle.jpg" width="2100" height="1400" />
+
+Ce traitement, que l'on pourrait qualifier de neutre, est aussi celui qui est réservé au personnage de Terence Fletcher, le professeur tortionnaire. Incontestablement, c'est l'un des personnages les plus intenses que l'on ait vu cette année au cinéma, car son enseignement n'est pas du tout tendre et respectueux. Plutôt que d'encourager ses élèves, il les traite de tous les noms et souvent d'insultes qui tournent autour de leur prétendue homosexualité, quand il ne s'en prend pas violemment à leurs parents. Même s'il n'en vient jamais au physique, il engueule ses élèves jusqu'à les faire craquer et ces musiciens professionnels qui ont souvent une vingtaine d'années pleurent comme des madeleines… quand ils ne se suicident pas. Face à un tel portrait, on pourrait croire que *Whiplash* condamne vivement ce personnage, mais les choses sont plus complexes. En effet, cette méthode est pratiquement barbare, mais elle donne aussi des résultats et les élèves l'acceptent finalement, presque comme une nécessité. D'ailleurs, le professeur s'en justifie lui-même dans une scène où il explique qu'il faut pousser les gens au-delà de leurs limites pour atteindre le génie des grands musiciens de jazz. Au total, le personnage imaginé par Damien Chazelle n'est pas unicolore et il fallait un acteur suffisamment doué pour en incarner les différentes facettes. On peut dire que le cinéaste est bien tombé en choisissant J.K. Simmons : l'acteur trop souvent cantonné aux seconds rôles est génial dans ce rôle de professeur sévère, pour ne pas dire violent. Il est toujours crédible et ne tombe jamais dans la caricature, mais il s'exprime avec une violence incroyable et il est vraiment parfait pour le rôle. Face à lui, il fallait un jeune acteur suffisamment présent à l'écran pour ne pas être écrasé dans le duo qu'ils forment, et là encore, Damien Chazelle a trouvé la bonne personne. Miles Teller a déjà bénéficié d'un coup de projecteur grâce à [*Divergente*](https://voiretmanger.fr/divergente-burger/ "Divergente, Neil Burger"), mais on retiendra plutôt sa participation dans ce film. Il est à l'image de *Whiplash* : sa présence intense crève l'écran et on a hâte de voir ce que la suite de sa carrière nous réserve.
+
+<img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2014/12/whiplash-j.k.-simmons.jpg" alt="Whiplash j k simmons" title="whiplash-j.k.-simmons.jpg" width="2100" height="1400" />
+
+Le sujet de *Whiplash* pourrait effrayer, mais ce serait une erreur. Après avoir vu ce film, vous allez probablement considérer le jazz en général, et la batterie jazz en particulier, sous un autre jour. Damien Chazelle propose une histoire extrêmement intense, mais aussi passionnante : on ne sort jamais vraiment de la confrontation entre le maître et l'élève, et c'est un vrai plaisir de la suivre. On pourrait reprocher une mise en scène un peu lourde, mais il est incontestable qu'elle est aussi très efficace et plutôt bien vue. Ajoutons à cela quelques morceaux de jazz vraiment excellents — à (re)découvrir sur la [bande originale](http://www.amazon.fr/gp/product/B00MZ3WMMY/ref=as_li_ss_tl?ie=UTF8&tag=leblogdenic07-21&linkCode=as2&camp=1642&creative=19458&creativeASIN=B00MZ3WMMY) qui accompagne le film — et on obtient un excellent long-métrage. Comme son jeune acteur, Damien Chazelle est un réalisateur que l'on ne perdra de vue, tant ce premier film est bien maîtrisé et convaincant. *Whiplash* est un coup de cœur à ne pas rater !
+
+<div class="amazon" markdown="1">
+### Vous voulez [m'aider](https://voiretmanger.fr/soutien/) ?
+
+- [Acheter le film en Blu-ray sur Amazon](http://www.amazon.fr/gp/product/B00SIYDL5Q/ref=as_li_ss_tl?ie=UTF8&tag=leblogdenic07-21&linkCode=as2&camp=1642&creative=19458&creativeASIN=B00SIYDL5Q)
+- [Acheter le film en DVD sur Amazon](http://www.amazon.fr/gp/product/B00SIYDJV2/ref=as_li_ss_tl?ie=UTF8&tag=leblogdenic07-21&linkCode=as2&camp=1642&creative=19458&creativeASIN=B00SIYDJV2)
+- [Acheter ou louer le film sur l'iTunes Store](https://itunes.apple.com/fr/movie/whiplash/id964052958?uo=4&at=11lvtR)
+</div>
