@@ -1,0 +1,48 @@
+---
+ID: 4290
+post_title: '<em>Monty Python : Sacré Graal !</em>, Terry Gilliam et Terry Jones'
+post_name: monty-pythons-sacre-graal
+author: Nicolas
+post_date: 2010-11-28 23:57:57
+post_excerpt: 'Parodie mythique du mythe du Graal et de la légende arthurienne, Monty Python : Sacré Graal ! est toujours aussi drôle. À voir et à revoir sans hésiter…'
+layout: post
+link: >
+  https://voiretmanger.fr/monty-pythons-sacre-graal/
+published: true
+tags:
+  - Absurde
+  - Cinéma classique
+  - Comédie
+  - Graal
+  - Histoire
+  - Monty Python
+  - Mythe
+  - Parodie
+categories:
+  - À voir
+---
+Classique de l'humour britannique, <em>Monty Python : Sacré Graal</em> est le premier véritable film des Monty Python. Profitant d'une pause dans la réalisation de la série qui les a fait connaître, l'hilarant <em>Flying Circus</em>, les six compères réalisent un film autour du plus célèbre mythe britannique, Arthur, la Table Ronde et leur quête du Graal. En 1h30, les Monty Python condensent tout leur savoir-faire, tant sur le plan technique que pour l'humour, grinçant, noir et totalement absurde. Dans le genre de la parodie historico-mythique, on n'a guère fait mieux depuis…
+
+<a href="http://www.allocine.fr/film/fichefilm_gen_cfilm=248.html"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2010/11/monty-python-sacre-graal.jpg" border="0" alt="monty-python-sacre-graal.jpg" width="690" height="902" /></a>
+
+Le point de départ de <em>Monty Python : Sacré Graal !</em> est, on le comprend bien, la quête du Graal. Ce mythe de la coupe ayant contenu le sang de Jésus et censé apporter à quiconque la possède diverses consécrations telle que la vie immortelle. La légende veut que le Roi Arthur, quelque part entre le Ve et le VIe siècles, a constitué un groupe de chevaliers autour de lui, la Table ronde, pour trouver le Graal ainsi que pour des raisons politiques qui n'ont ici aucun intérêt. Cette fameuse légende fournit le matériau de base aux Monty Python pour constituer le film, mais à vrai dire on se fiche un peu de cette légende qui n'est pas, pour ainsi dire, respectée au pied de la lettre. Si l'on retrouve les personnages emblématiques, à commencer par Dieu <em>himself</em>, cette quête du Graal est surtout l'occasion de mettre en avant de preux chevaliers et leurs combats. Enfin, preux, il faut voir… et chevaliers, il faut le dire vite puisqu'ils n'ont jamais de chevaux, se contentant de valets et de noix de coco. Dans leur quête, ils auront à affronter de terribles adversaires : un chevalier à trois têtes, les chevaliers qui disent "Ni", un terrible enchanteur, un lapin carnivore et… le pire ennemi qui soit, de vils Français bien à l'abri derrière leurs murailles.
+
+Le monde des Monty Python est régi par des règles propres. Inutile d'essayer de les déchiffrer, de les analyser, elles échappent à toute rationalité. Poussant à son degré maximum l'absurde, les Anglais s'amusent de tout, mais toujours avec un très grand sérieux, ce flegme que l'on apprécie tant chez nos voisins. <em>Monty Python : Sacré Graal !</em> apparaît alors comme une longue série de blagues toutes plus absurdes les unes que les autres, tantôt basées sur le langage, tantôt sur les gestes. Caractéristique centrale de ces comiques, le changement extrêmement rapide de ton ou de niveau d'humour : on peut passer d'une blague raffinée à une blague scatologique en moins d'une fraction de seconde, et ce sans pour autant remettre en question le sérieux des acteurs. C'est parfois totalement ridicule, c'est parfois si évolué que l'humour nous échappe totalement (le film date de 1975, ce qui n'aide pas), mais c'est le plus souvent drôle. S'il arrive qu'une blague fasse un flop, on doit bien dire que l'on rit très souvent dans ce film qui est parfois plus proche de la succession de sketchs que du véritable film. Le seul liant finalement, c'est le Graal qui ne nous intéresse pas plus que cela, mais qui offre une structure vague à l'ensemble. Structure qui ne bride pas l'imagination des Monty Python, c'est le moins que l'on puisse dire : ils arrivent ainsi à placer des scènes totalement tirées par les cheveux, comme ce château plein de nymphomanes prêtes à tout pour coucher avec un chevalier, ou cet improbable chevalier à trois têtes qui se chamaille avec lui-même pour savoir si l'on mangera des biscuits avec le thé. On voit bien là le principe de base de l'humour des Monty Python : mêler l'incroyable et le plus concret, niant au passage l'improbabilité de l'incroyable. Plus rien n'est dès lors inattendu, et le film se déchaine à la fin quand on découvre un petit lapin blanc meurtrier extrêmement rapide, puis un monstre sorti d'où on ne sait où et qui disparaît aussi vite… quand le dessinateur meurt d'une crise cardiaque. <em>Monty Python : Sacré Graal !</em> n'hésite ainsi jamais à casser la magie du cinéma, en faisant intervenir la police dans le film comme si l'on était spectateur non pas du film, mais du film en train de se faire.
+
+<img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2010/11/gilliam-jones-holy-grail.jpg" border="0" alt="gilliam-jones-holy-grail.jpg" width="690" height="380" />
+
+Si les Monty Python ont toujours cherché à aller le plus loin dans l'absurde, leur travail n'est jamais gratuit. Au contraire même, que ce soit dans chaque épisode du <em>Flying Circus</em> ou dans leurs films, ils ne manquent jamais de porter un regard critique sur leur société, un regard qui se révèle très souvent mordant. Avec <em>Monty Python : Sacré Graal !</em>, ils s'attaquent à rien de moins que l'un des mythes fondateurs de la Grande-Bretagne. L'histoire d'Arthur et les chevaliers de la Table Ronde, c'est en partie l'histoire de l'unification du pays derrière un roi, ce n'est quand même pas rien. Cette histoire mythique est ici ridiculisée : ces chevaliers sans chevaux sont tous couards ou complètement stupides et violents, ils ne donnent en tout cas pas une image très positive du mythe. Ils ont l'air de gamins pressés de tester un nouveau jouet, plutôt que d'hommes politiques unis derrière leur roi. Mais si le mythe en prend pour son grade, c'est la religion et l'Église qui est ici le plus fortement attaquée. Dieu pour commencer est présent de manière caricaturale et suffit à lui seul à ridiculiser tout le message religieux et la Bible en passant. On voit à un moment des membres de l'Église avancer en chantant un psaume, avant de se frapper violemment la tête sur une plaque de bois : en une image, l'opinion des Monty Pythons sur la religion est ainsi résumée. C'est une constante dans leur travail, et si c'est ici plus discret que dans <em>La Vie de Brian</em> qui est la version Monty Python de la vie de Jésus, ou dans <em>Le Sens de la Vie</em>, c'est une thématique déjà présente et qui peut surprendre pour une comédie. <em>Monty Python : Sacré Graal !</em> est certes une comédie, mais une comédie qui sait manier l'humour noir. Un épisode du film se moque également des théories politiques à une époque où la Guerre froide est toujours une réalité : un paysan défend ainsi des valeurs marxistes contre le roi, représentant ici du pouvoir bourgeois.
+
+<em>Monty Python : Sacré Graal !</em> est un film complètement fauché : il a été tourné avec seulement £229,000… Les Monty Python ont choisi non seulement de faire avec ce budget serré, mais mieux, de l'utiliser comme argument comique : l'absence de chevaux est au départ une nécessité, faute de budget. Les six acteurs de la troupe prennent en charge la majeure partie des rôles, se grimant et changeant de voix en fonction des besoins. Toutes les scènes extérieures ont été tournées en Écosse, avec pratiquement un seul château, et beaucoup d'inventivité pour changer les angles ou ajouter des éléments en carton. L'ensemble a un aspect fait main vraiment plaisant et qui participe complètement à la tonalité foutraque du film : voilà un excellent exemple de film réalisé avec trois fois rien, mais beaucoup de bonne volonté. Comme à son habitude, Terry Gilliam a réalisé des animations qui ont un peu vieilli, mais qui restent souvent très drôles et qui relient le film à la série des <em>Flying Circus</em>.
+
+<img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2010/11/holy-grail-monty-pythons.jpg" border="0" alt="holy-grail-monty-Python.jpg" width="690" height="372" />
+
+Classique de la comédie britannique fondée sur l'absurde, <em>Monty Python : Sacré Graal !</em> est une vraie réussite qui n'a pas perdu de sa force. Si certains effets visuels ont un peu vieilli, l'humour des Britanniques est toujours aussi efficace et reste, encore aujourd'hui, une référence. À condition d'accepter de ne pas tout comprendre, d'accepter que la police puisse débarquer en pleine charge de chevaliers du Ve siècle, d'accepter une discussion pour savoir si une hirondelle peut ramener une noix de coco du Sud… cette quête est un vrai bonheur, à consommer sans modération !
+
+<div class="amazon" markdown="1">
+### Vous voulez [m'aider](https://voiretmanger.fr/soutien/) ?
+
+- [Acheter le film en Blu-ray sur Amazon](http://www.amazon.fr/gp/product/B006U8Y9CG/ref=as_li_ss_tl?ie=UTF8&tag=leblogdenic07-21&linkCode=as2&camp=1642&creative=19458&creativeASIN=B006U8Y9CG)
+- [Acheter le film en DVD sur Amazon](http://www.amazon.fr/gp/product/B00008A8RX/ref=as_li_ss_tl?ie=UTF8&tag=leblogdenic07-21&linkCode=as2&camp=1642&creative=19458&creativeASIN=B00008A8RX)
+- [Acheter ou louer le film sur l'iTunes Store](https://itunes.apple.com/fr/movie/monty-python-sacre-graal/id928273293)
+</div>
