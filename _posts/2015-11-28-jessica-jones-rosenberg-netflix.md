@@ -1,0 +1,66 @@
+---
+ID: 14820
+post_title: '<em>Jessica Jones</em>, Melissa Rosenberg (Netflix)'
+post_name: jessica-jones-rosenberg-netflix
+author: Nicolas
+post_date: 2015-11-28 19:52:45
+layout: post
+link: >
+  https://voiretmanger.fr/jessica-jones-rosenberg-netflix/
+published: true
+tags:
+  - Adaptation bande-dessinée
+  - Alcool
+  - Comics
+  - Dépression
+  - Féminisme
+  - Série
+  - Société
+  - Superhéros
+categories:
+  - À voir
+---
+L'accord signé entre Netflix et Marvel se poursuit à un bon rythme. Quelques mois seulement après la sortie de [*Daredevil*](https://voiretmanger.fr/daredevil-goddard-netflix/), voici la deuxième série prévue dans un cycle qui se prolongera en 2016 avec *Luke Cage*. En attendant, *Jessica Jones* introduit un nouveau superhéros, mais dans la catégorie atypique. Cette détective privée qui souffre d'alcoolisme et qui n'a jamais appris à cohabiter aimablement avec les autres humains constitue un héros surprenant, plus proche de l'anti-héros en fait que du superhéros traditionnel dans les *comics*. Le ton est ici résolument noir et on ne s'attendait pas à une ambiance aussi crasse, ce qui est un bon point. Malheureusement, la première saison menée par Melissa Rosenberg souffre de beaucoup de défauts d'écriture et on finit par s'en lasser un petit peu. Dommage, car il y avait de bonnes bases.
+
+<img src="https://voiretmanger.fr/wp-content/uploads/2015/11/jessica-jones-krysten-ritter-rachael-taylor.jpg" alt="jessica-jones-krysten-ritter-rachael-taylor" width="2100" height="1400" class="aligncenter size-full wp-image-14822" />
+
+Jessica Jones n'est pas une femme très sympathique, elle est même assez antipathique pour tout dire. Après plusieurs petits boulots sans intérêt et lâchés très rapidement, elle est devenue détective privée. Sa spécialité ? Débusquer les couples adultères et les prendre en photo sur le fait. Un métier assez sordide où elle excelle pourtant avec l'aide de Jeri, une avocate au succès un petit peu trouble. Il faut dire que Jessica n'est pas comme les autres, elle a un super-pouvoir : une force surhumaine qui lui permet de soulever des masses très importantes, de sauter très haut (mais pas au point de voler) et de s'en sortir dans tous les affrontements. Le pilote ouvre d'ailleurs sur une séquence qui se termine par l'un de ses clients mécontent, passé à travers la porte de son bureau. Dès le départ, *Jessica Jones* frappe par la noirceur de son traitement : ce n'est pas seulement une question de photographie ou d'ambiance, c'est aussi que le personnage principal n'est pas du tout lisse, comme peuvent l'être parfois les superhéros. On ne sait pas encore tout de son histoire, mais on sent bien qu'elle est torturée et que cette jeune femme n'est pas la gentille justicière que l'on pouvait attendre. À cet égard, la série est une vraie réussite et elle maintient jusqu'au bout cette noirceur, mais aussi une saleté permanente de son héroïne et de son environnement. *Daredevil* était déjà sur cette voie, mais cette nouvelle série Marvel va beaucoup plus loin en la matière, et c'est convaincant. Ajoutez à cela une ambiance de film noir légèrement rétro, et on obtient un contexte original et bien maîtrisé. Dans le rôle titre, Kristen Ritter est très bien et l'actrice parvient à jouer la détective un peu barrée et franchement déplaisante, tout en gardant une part d'humanité à travers son stress post-traumatique, un sujet qui traverse toute la série.
+
+<img src="https://voiretmanger.fr/wp-content/uploads/2015/11/jessica-jones-netflix.jpg" alt="jessica-jones-netflix" width="2100" height="1400" class="aligncenter size-full wp-image-14823" />
+
+La série de Melissa Rosenberg assume jusqu'au bout son traitement décalé et c'est une excellente chose. Malheureusement, elle est aussi handicapée par un scénario défaillant, au moins dans la première saison. Peut-être que *Jessica Jones* pourra rectifier le tir par la suite, mais en attendant, le plus gros problème tient probablement dans la place du grand méchant qui s'oppose, comme il se doit dans un *comics* à l'héroïne. Kilgrave[^1] est l'un des nombreux méchants dans l'univers Marvel et lui aussi a un pouvoir, hérité ici d'une expérience scientifique qui a mal tourné. Il peut contrôler les autres et les forcer à faire ce qu'il veut, une idée qui n'a rien d'original, mais qui est mise en œuvre de manière plutôt intelligente ici. Sans trop en dévoiler, disons simplement qu'il a été contraint d'exploiter ce pouvoir très tôt et qu'il a grandi avec cette habileté au point de ne pas savoir comment agir autrement. Au fil des années, il a perdu toute aptitude à échanger normalement avec les autres humains, il se fait systématiquement servir en abusant de son pouvoir. La bonne idée de la série, probablement héritée de l'œuvre originale, est que Jessica a déjà été l'une de ses victimes par le passé et qu'elle souffre toujours du traumatisme de l'expérience dès le premier épisode. Ce méchant, incarné par David Tennant, a par ailleurs de quoi faire trembler, tant il est tout-puissant : un policier sous son contrôle devient une arme qu'il retourne contre l'héroïne ou quiconque se dresse en travers de son chemin. On frémit vraiment… en tout cas la première fois. Car c'est bien là le gros problème de la dernière création de Netflix : la répétition. On découvre très tôt le méchant, on sait tout de lui très rapidement et on retrouve par la suite le même schéma au moins trois ou quatre fois. Ce personnage qui devait être une force devient banal, tandis que ses adversaires semblent particulièrement mauvais à rater à chaque fois leur coup. Il faut bien le reconnaître : passionnante au début, *Jessica Jones* finit par lasser et on finit la première saison sans trop croire…
+
+<img src="https://voiretmanger.fr/wp-content/uploads/2015/11/jessica-jones-david-tennant.jpg" alt="jessica-jones-david-tennant" width="2100" height="1400" class="aligncenter size-full wp-image-14824" />
+
+*Jessica Jones* aurait été probablement beaucoup plus intense et convaincante si Kilgrave était apparu bien plus tardivement. On le découvre trop vite et on le connaît trop bien : en retirant tout mystère, la série se prive d'un levier puissant pour maintenir le suspense. Et puis on sent que les scénaristes ont manqué d'idées pour tenir sur treize épisodes de près d'une heure. Plutôt que de s'en tenir à un gros affrontement entre les deux camps, la série multiplie les rencontres et les échecs. C'est trop systématique et on finit par s'en lasser… ce qui est bien dommage, car *Jessica Jones* parvient très bien à rendre son ambiance noire. Espérons que Netflix redresse la barre pour la suite !
+
+
+***
+
+## *Jessica Jones*, saison 2 {#2}
+
+<img src="https://voiretmanger.fr/wp-content/uploads/2015/11/jessica-jones-saison-2.jpg" alt="" width="4302" height="2870" class="big size-full wp-image-20025" />
+
+(17 mars 2018)
+
+Dans la [saga des *Defenders*](https://voiretmanger.fr/saga/defenders/) portée au petit écran par Netflix, Jessica Jones était déjà le personnage le plus intéressant, mais la première saison souffrait de trop de défauts pour convaincre tout à fait. Ses bonnes idées étaient gâchées par un méchant dévoilé trop tôt, trop puissant, trop prévisible et devenait vite répétitif. On se demandait alors si la série pouvait redresser le cap et l’épreuve de la deuxième saison lui en offre finalement l’opportunité. Bonne nouvelle, Melissa Rosenberg a trouvé la solution : la suite de *Jessica Jones*… est dénuée de méchant à combattre. En sortant ainsi de la traditionnelle et trop prévisible opposition entre le superhéros et une menace, le scénario a la liberté d’explorer de nouvelles pistes et surtout de prendre le temps de construire des personnages avec une véritable psychologie. Pari gagnant, ces treize épisodes sont parmi les meilleurs issus de l’association entre Netflix et Marvel !
+
+<img src="https://voiretmanger.fr/wp-content/uploads/2015/11/jessica-jones-2-krysten-ritter.jpg" alt="" width="3000" height="2001" class="aligncenter size-full wp-image-20028" />
+
+À la fin de la première saison, Jessica Jones parvenait enfin à tuer Killgrave, son ennemi juré. Cette histoire étant évacuée, on pouvait passer à autre chose et fort heureusement, la créatrice de la série évite totalement d’évoquer la Main, ennemi qui surplombe la saga et qui est franchement ennuyeux, comme l’avait prouvé [*The Defenders*](https://voiretmanger.fr/defenders-petrie-ramirez-netflix/). On s’attendait en conséquence à un nouvel ennemi à combattre, mais Melissa Rosenberg préfère prendre son temps dans les premiers épisodes. *Jessica Jones* ne cherche pas l’action à tout prix, les scénaristes entretiennent plutôt l’ambiance très sombre qui est l’une des marques de fabrique du personnage et l’un des points réussis déjà dans la saison 1. La surprise, c’est que cette idée de prendre le temps et de creuser un sillon original au lieu de tomber dans l’opposition facile avec le mal est maintenue, épisode après épisode, jusqu’au treizième de la fournée. Il n’y a pour ainsi dire jamais d’ennemi à combattre, même le docteur qui est responsable de ce qui est arrivé à Jessica ne peut pas être considéré comme tel. C’est comme si les scénaristes avaient considéré qu’introduire un ennemi était une distraction et on ne peut que leur donner raison quand on juge le résultat : en évitant ce cliché, ils ont eu l’opportunité de créer une série de personnages crédibles et passionnants.
+
+<img src="https://voiretmanger.fr/wp-content/uploads/2015/11/jessica-jones-carrie-anne-moss-saison-2.jpg" alt="" width="3000" height="2000" class="aligncenter size-full wp-image-20027" />
+
+On le disait, Jessica Jones est intéressant par son statut d’anti-héroïne. Cette détective privée alcoolique n’a quasiment aucun attribut du héros traditionnel, elle n’aime pas vraiment les gens, a du mal avec les interactions sociales et elle contrôle difficilement sa force surhumaine. Bref, elle a plus de défauts que de qualités et la deuxième saison creuse ce même sillon, avec encore beaucoup de noirceur au programme. Ce qui est surtout frappant toutefois, c’est la justesse de l’écriture : d’un bout à l’autre, Melissa Rosenberg parvient à rester sur un ton très juste, évitant constamment les clichés faciles et créant au contraire un univers riche et crédible. Certes, il y a des êtres spéciaux dans cet univers, mais à part ce léger détail, *Jessica Jones* pourrait se dérouler dans notre univers. C’est le principe de (presque) tous les *comics*, certes, mais la série pousse le bouchon loin, beaucoup plus loin qu’on ne l’imaginait et c’est une excellente chose. Certains spectateurs regretteront sûrement la lenteur de cette saison, mais c’est aussi son point fort et elle s’impose progressivement comme l’une des plus riches de la saga. Riche, non pas en rebondissements, mais en personnages féminins extrêmement bien écrits et passionnants. Féminins, car les personnages masculins sont tous, soit extrêmement secondaires, soit plus ou moins ratés. C’était aussi le cas dans la première saison, c’est plus visible ici, avec aucun personnage masculin à sauver. Luke Cage a disparu, Malcom a un parcours difficile où il sert surtout les femmes qui l’entourent et même le docteur Malus n’a qu’un rôle assez discret. Au fond, *Jessica Jones* est une série de femmes, et on a de quoi faire, surtout du côté des personnages secondaires. La jalousie de Trish envers sa demi-sœur est particulièrement bien exploitée, le personnage de Jerri a enfin toute la place qu’elle mérite, et naturellement, la mère de Jessica est au centre de l’intrigue. Brillamment incarnée par Janet McTeer, elle est d’une incroyable complexité et suit une voie particulièrement difficile, entre meurtres en série et amour maternel. S’il ne fallait qu’un argument pour voir la saison, c’est bien elle qui le fournit !
+
+<img src="https://voiretmanger.fr/wp-content/uploads/2015/11/jessica-jones-rachael-taylor.jpg" alt="" width="3300" height="2200" class="aligncenter size-full wp-image-20026" />
+
+C’est peu dire qu’on n’y croyait pas, mais Melissa Rosenberg a réussi à nous donner tort. *Jessica Jones* a peut-être mal commencé, cette deuxième saison redresse toutefois la barre, à tel point que l’on n’hésiterait pas à la qualifier d’excellente. Plutôt que de choisir la facilité, le scénario suit la voie plus difficile de la construction psychologique des personnages. Une voie qui paye, comme le prouve ces treize épisodes toujours justes, ces personnages féminins complexes et crédibles et cette histoire de famille incroyablement compliquée et belle en même temps. Espérons que les séries Marvel portées par Netflix fassent davantage de choix difficiles comme *Jessica Jones* l’a fait, elles gagnent indéniablement en intérêt. Et espérons aussi que ce personnage atypique aura droit à une troisième saison, on a maintenant hâte de voir ce que cela donnerait. 
+
+<div class="amazon" markdown="1">
+### Vous voulez [m'aider](https://voiretmanger.fr/soutien/) ?
+
+- [Regarder la série sur Netflix](http://www.netflix.com/title/80002311)
+</div>
+
+[^1]: Aussi connu sous le nom de l'Homme pourpre dans les *comics*, mais la série n'a pas choisi de garder ce nom. Pourtant, on voit encore quelques traces de la couleur, sur ses vêtements ou bien dans ses veines.
