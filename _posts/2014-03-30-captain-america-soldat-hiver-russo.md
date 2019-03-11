@@ -1,0 +1,45 @@
+---
+ID: 11449
+post_title: '<em>Captain America : Le Soldat de l&rsquo;hiver</em>, Anthony et Joe Russo'
+post_name: captain-america-soldat-hiver-russo
+author: Nicolas
+post_date: 2014-03-30 15:56:03
+layout: post
+link: >
+  https://voiretmanger.fr/captain-america-soldat-hiver-russo/
+published: true
+tags:
+  - Action
+  - Adaptation bande-dessinée
+  - Avengers
+  - Blockbuster
+  - Comics
+  - Sorties du moment
+  - Superhéros
+categories:
+  - À voir
+---
+Dans la grande famille des *Avengers*, Captain America est le premier superhéros, mais le dernier à avoir bénéficié d’une adaptation au cinéma [dans la saga](https://voiretmanger.fr/saga/univers-cinematographique-marvel/). Sorti en 2011, [*Captain America : First Avenger*](https://voiretmanger.fr/captain-america-first-avenger-johnston/ "Captain America : First Avenger, Joe Johnston") préparait le terrain pour [*Avengers*](https://voiretmanger.fr/avengers-whedon/ "Avengers, Joss Whedon"), le premier film qui réunissait tous les superhéros Marvel. Depuis, les studios préparent activement la suite qui sortira en 2015 avec [*Iron Man 3*](https://voiretmanger.fr/iron-man-3-black/ "Iron Man 3, Shane Black"), [*Thor : Le Monde des Ténèbres*](https://voiretmanger.fr/thor-le-monde-des-tenebres-taylor/ "Thor : Le Monde des Ténèbres, Alan Taylor") et maintenant un nouveau volet centré sur Captain America. Le premier long-métrage était décevant et Joe Johnston n’a pas été reconduit pour cette suite. Les producteurs ont fait appel à Anthony et Joe Russo, plutôt connus jusque-là pour leurs comédies. Un changement qui ne doit rien au hasard et de fait, *Captain America : Le Soldat de l’hiver* est plus léger que son prédécesseur, tout en se construisant sur une histoire plus noire. Le divertissement est au rendez-vous dans ce blockbuster explosif comme Marvel sait si bien les faire et l’histoire ajoute une pièce à l’édifice *Avengers* avec une idée intéressante et bien menée. Un bon film de superhéros, à ne pas rater si vous aimez le genre.
+
+<div style="text-align:center;"><a href="http://www.allocine.fr/film/fichefilm_gen_cfilm=193113.html"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2014/03/captain-america-soldat-hiver-russo.jpg" alt="Captain america soldat hiver russo" title="captain-america-soldat-hiver-russo.jpg" width="1000" height="1333" /></a></div>
+
+Petit rappel des faits. Dans *Captain America : First Avenger*, on revenait sur la naissance de Captain America, alias Steve Rogers, un soldat assez mauvais qui a été transformé par une opération chimique en un super soldat quasiment indestructible. C’était pendant la Seconde Guerre mondiale et le film montrait comment, chétif, il n’avait aucune chance pour combattre le nazisme, sa seule obsession du moment, jusqu’au jour où un mystérieux docteur lui administre un sérum qui décuple ses forces. À partir de là, il devient un soldat extrêmement puissant capable de résister face aux hordes nazies et surtout à l’Hydra, organisation bien plus terrible que le régime nazi et c’est au cours de son combat contre elle qu’il tombe finalement dans les eaux arctiques. Dans *Avengers*, on retrouvait le personnage à notre époque contemporaine, décongelé par le SHIELD pour rejoindre les autres superhéros et combattre les vilains d’alors. Jusque-là, ce personnage se distingue de tous les autres imaginés par Marvel par son intégrité. Alors qu’Iron Man par exemple agit d’abord par intérêt personnel, ce superhéros ne veut qu’une chose : défendre les États-Unis — et donc le monde — contre le mal, d’où qu’il vienne. C’est ce qui faisait que le premier long-métrage de sa saga était aussi peu intéressant : ce Captain America manquait de profondeur et d’humanité. La leçon a été retenue manifestement et la version proposée par les frères Russo est bien différente. Imaginant une conspiration interne au SHIELD, *Captain America : Le Soldat de l’hiver* fait du superhéros l’ennemi à abattre. L’idée n’est pas nouvelle et Christopher Nolan, pour rester dans les comics, l’a très bien exploitée dans sa [trilogie *Batman*](https://voiretmanger.fr/saga/batman-christopher-nolan/), mais il faut reconnaître qu’elle fonctionne très bien. Le ton est nécessairement plus noir, mais ce qui est intéressant, c’est que le superhéros autrefois si monolithique doute, et devient ainsi plus riche. À partir du moment où l’organisation pour laquelle on se bat depuis toujours devient son ennemi, que faire ? La complexité sied bien au personnage — ainsi qu'à son interprète, même si Chris Evans reste un acteur assez transparent — et ce nouveau volet dans ses aventures est sans conteste plus intéressant, pour cette raison.
+
+<div style="text-align:center;"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2014/03/captain-america-soldat-hiver-chris-evans-scarlett-johansson.jpg" alt="Captain america soldat hiver chris evans scarlett johansson" title="captain-america-soldat-hiver-chris-evans-scarlett-johansson.jpg" width="1800" height="1200" /></div>
+
+On disait en préambule que *Captain America : Le Soldat de l’hiver* était plus léger, et c’est bien aussi le cas. Comment concilier cette légèreté avec la noirceur que l’on évoquait précédemment ? Comme sur la [saga *Iron Man*](https://voiretmanger.fr/saga/iron-man/), Anthony et Joe Russo ont compris que ces superhéros largement irréalistes avaient besoin d’une dose de second degré qui crée une distance salutaire et évite de tomber dans le ridicule, ou le kitsch. Même si ce long-métrage ne fait pas aussi bien que d’autres adaptations Marvel, il fait de gros progrès par rapport à son prédécesseur et s’en tire plutôt bien. On pourrait évoquer l’attaque menée contre Nick Fury, le patron du SHIELD, et le rôle de sa voiture, mais le second degré provient surtout du personnage de Natasha Romanoff, plus connue sous le surnom de Veuve noire. On a découvert ce personnage dans [*Iron Man 2*](https://voiretmanger.fr/iron-man-2-favreau/ "Iron Man 2, Jon Favreau"), mais elle a surtout joué un rôle dans la saga dans *Avengers* et elle prend ici encore plus de place. À tel point d’ailleurs que si le long-métrage ne met en avant que Captain America, il partage l’affiche avec la Veuve Noire qui est presque aussi présente à l’écran et dans le scénario. Avec son idée de caser le superhéros, elle ajoute la touche décontractée et plaisante qui manquait au premier film et elle est pour beaucoup dans la réussite de ce volet — saluons au passage la très bonne performance de Scarlett Johansson. Une réussite que l’on doit aussi à la réalisation naturellement, avec de l’action digne des meilleurs blockbusters du moment. Même si *Captain America : Le Soldat de l’hiver* souffre aussi des travers de l’époque — une 3D largement inutile qui assombrit l’image et une action souvent trop rapide, d’autant plus qu’elle est moins nette à cause des lunettes 3D —, le film est spectaculaire et prenant. On ne s’ennuie jamais, l’intrigue est suffisamment dense pour échapper à toute impression de remplissage, mais sans aller dans l’excès inverse. Quand on sort de la salle, au bout de deux bonnes heures[^1], on n’a qu’une envie : voir la suite. Reste maintenant à espérer que Marvel saura garder ce bon niveau pour *Avengers: Age of Ultron*…
+
+<div style="text-align:center;"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2014/03/captain-america-soldat-hiver-robert-redford.jpg" alt="Captain america soldat hiver robert redford" title="captain-america-soldat-hiver-robert-redford.jpg" width="1800" height="1200" /></div>
+
+Comme dans la première phase de la saga, *Captain America : Le Soldat de l’hiver* recentre le débat autour du groupe de superhéros qui est au cœur des enjeux ici. Alors qu’*Iron Man 3* semblait partir sur de nouvelles bases, on revient ici directement avec le SHIELD et l’intrigue avance avec une place particulière pour les seconds rôles habituels, Nick Fury et Natasha en tête. Anthony et Joe Russo semblent avoir pris beaucoup de plaisir à adapter les comics et cela se voit. Sans être un grand film, *Captain America : Le Soldat de l’hiver* fournit un grand spectacle de qualité et le film a le mérite d’entretenir la saga *Avengers* avec de nouveaux éléments qui viennent la renouveler. Un bon blockbuster, parfait pour les amateurs de superhéros !
+
+<div class="amazon" markdown="1">
+### Vous voulez [m'aider](https://voiretmanger.fr/soutien/) ?
+
+- [Acheter le film en Blu-ray sur Amazon](http://www.amazon.fr/gp/product/B00J8Q93PK/ref=as_li_ss_tl?ie=UTF8&tag=leblogdenic07-21&linkCode=as2&camp=1642&creative=19458&creativeASIN=B00J8Q93PK)
+- [Acheter le film en DVD sur Amazon](http://www.amazon.fr/gp/product/B00J8Q92BA/ref=as_li_ss_tl?ie=UTF8&tag=leblogdenic07-21&linkCode=as2&camp=1642&creative=19458&creativeASIN=B00J8Q92BA)
+- [Acheter ou louer le film sur l'iTunes Store](https://itunes.apple.com/fr/movie/captain-america-le-soldat/id843248057)
+</div>
+
+
+[^1]: Il faut rester jusqu’à la toute fin du générique, naturellement, même si la première scène au milieu est la seule vraiment importante, si vous êtes pressé.
