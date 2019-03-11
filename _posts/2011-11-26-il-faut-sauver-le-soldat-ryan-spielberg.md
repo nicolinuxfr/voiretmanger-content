@@ -1,0 +1,44 @@
+---
+ID: 5349
+post_title: '<em>Il faut sauver le soldat Ryan</em>, Steven Spielberg'
+post_name: il-faut-sauver-le-soldat-ryan-spielberg
+author: Nicolas
+post_date: 2011-11-26 17:20:52
+layout: post
+link: >
+  https://voiretmanger.fr/il-faut-sauver-le-soldat-ryan-spielberg/
+published: true
+tags:
+  - Blockbuster
+  - Drame
+  - Guerre
+  - Histoire
+categories:
+  - À voir
+---
+La scène de débarquement en Normandie qui ouvre <em>Il faut sauver le soldat Ryan</em> reste dans les annales de l'histoire du cinéma par son réalisme et sa force. Steven Spielberg montre la terreur de la guerre comme jamais personne ne l'avait vu auparavant et cette scène est, à bien des égards, plus impressionnante que bon nombre de documentaires tournés à l'époque. Une belle performance qui ouvre un film long et assez lent à la recherche du soldat Ryan. Sorti la même année que <em><a href="https://voiretmanger.fr/2010/07/21/ligne-rouge-malick/">La Ligne Rouge</a></em> de Terrence Malick, le film de Spielberg souffre un peu à la comparaison, mais sa scène inaugurale est si forte qu'elle justifie à elle seule de (re)voir <em>Il faut sauver le soldat Ryan</em>.
+
+<a href="http://www.allocine.fr/film/fichefilm_gen_cfilm=18598.html"><img class="aligncenter" style="border-style: initial; border-color: initial; border-width: 0px;" src="https://voiretmanger.fr/wp-content/uploads/2011/11/spielberg-sauver-soldat-ryan.jpg" alt="Spielberg sauver soldat ryan" width="690" height="945" border="0" /></a>
+
+« <em>D Day</em> » : le débarquement allié commence sur les plages de Normandie au matin du 6 juin 1944. Le film plonge brutalement son spectateur dans l'horreur de cette boucherie en ouvrant dans une barge de débarquement. Une vingtaine de soldats, Américains pour la plupart, tentent péniblement de ne pas vomir sur cette mer agitée. Quand les portes avant s'abaissent, c'est l'enfer qui s'abat instantanément sur eux et les deux premiers rangs sont tués dans les deux premières secondes. Les 15/20 premières minutes sont des minutes éprouvantes pendant lesquelles des hommes meurent par centaine pour permettre à une petite poignée de soldats d'atteindre les bunkers ennemis qui les canardent. <em>Il faut sauver le soldat Ryan</em> commence par suivre le capitaine John H. Miller qui parvient, non sans difficultés, à traverser les lignes ennemies. Trois jours après le débarquement, une mission lui est assignée directement par l'État-Major américain : il doit retrouver James F. Ryan, un soldat parachuté en Normandie à une position inconnue. Ses trois frères viennent tous de mourir et l'armée américaine a décidé de faire un geste. Miller et quelques hommes abandonnent les plages et s'enfoncent en Normandie pour une quête qu'ils jugent souvent inutile. Mettre la vie de tous ces hommes pour en sauver une seule, est-ce que cela en vaut la peine ? La fatigue et les morts accumulés soulèvent bien des questions…
+
+On l'a déjà évoqué, la scène d'ouverture d'<em>Il faut sauver le soldat Ryan</em> est tout simplement exceptionnelle. On n'avait jamais vu une telle bataille représentée avec autant de réalisme, jusqu'à l'écœurement. À sa sortie, le film a été interdit aux moins de 12 ans et on comprend rapidement pourquoi : les Allemands n'avaient laissé aucune chance aux troupes alliées et la boucherie est totale. Steven Spielberg ne met pas des gants et n'hésite pas à montrer des corps charcutés, non seulement sanglants, mais aussi très nettement éventrés. On voit un soldat tirer ce qui n'est plus qu'un morceau de viande, un autre tient d'une main son bras découpé par une explosion… <em>Il faut sauver le soldat Ryan</em> n'est pas un film gore, mais cette première scène est pour le moins impressionnante. Par la suite, le film déçoit nécessairement : il était difficile de faire aussi bien que ce début. Le film de Steven Spielberg suit un récit centré sur quelques soldats en quête d'un autre soldat, une intrigue resserrée qui tranche avec la séquence initiale. Ce choix permet au film de conserver son réalisme et il offre tout de même quelques scènes d'action réussies, avec au moins trois étapes successives qui relancent à chaque fois la quête. Un schéma assez traditionnel et qui déçoit un peu par son manque d'originalité : alors qu'<em>Il faut sauver le soldat Ryan</em> pouvait impressionner par son ouverture, le film revient vite sur les rails d'Hollywood…
+
+<img class="aligncenter" style="border-style: initial; border-color: initial; border-width: 0px;" src="https://voiretmanger.fr/wp-content/uploads/2011/11/tom-hanks-private-ryan.jpg" alt="Tom hanks private ryan" width="690" height="444" border="0" />
+
+Étant donnés le cinéaste et la scène d'ouverture, on s'attendait à un blockbuster d'action assez classique. <em>Il faut sauver le soldat Ryan</em> choisit toutefois une voie assez différente : nonobstant les trois séquences d'action après le débarquement, le film de Steven Spielberg s'avère plutôt calme et même assez lent. Sur près de trois heures, le temps cumulé d'action est finalement assez réduit et <em>Il faut sauver le soldat Ryan</em> laisse de la place aux dialogues et à ses personnages qui ne sont pas que la chair à canon. La recherche du soldat Ryan s'apparente également à une sorte de quête initiatique un peu désespérée : à une époque où l'informatique et les GPS restaient à inventer, les soldats envoyés après James ne savent pas où aller et ils errent dans le bocage normand. On n'ira pas jusqu'à parler de road-trip post-apocalyptique façon <em><a href="https://voiretmanger.fr/2009/12/05/la-route-hillcoat/">La Route</a></em>, mais leur recherche ponctuée de morts n'est pas très joyeuse et bien loin des habitudes de Hollywood. Sans compter que les personnages d'<em>Il faut sauver le soldat Ryan</em> se posent des questions sur le sens de leur mission et plus largement sur la guerre. Inutile d'espérer des questionnements du niveau de ceux de Terrence Malick, la guerre en elle-même n'est jamais vraiment remise en cause, mais force est de reconnaitre que le film de Steven Spielberg impose un rythme et une ambiance assez atypiques dans ce genre de cinéma. Ainsi, même si l'essentiel du film suit un scénario en apparence très convenu, ce rythme et cette ambiance détonnent et renforcent l'originalité et l'intérêt du film de Spielberg.
+
+L'ère du tout numérique n'était pas encore passée par là et en 1998, Steven Spielberg a reconstitué entièrement les plages de Normandie pour filmer son débarquement. Tournée en Irlande, la scène a nécessité un nombre impressionnant de figurants et des moyens que l'on peine à concevoir aujourd'hui. Le résultat est là, toutefois, on l'a dit : <em>Il faut sauver le soldat Ryan</em> est un film extrêmement réaliste, même s'il n'est évidemment <a href="http://fr.wikipedia.org/wiki/Il_faut_sauver_le_soldat_ryan#R.C3.A9alisme_et_erreurs_des_sc.C3.A8nes_du_film">pas sans erreurs</a>. Au-delà de la reconstitution, Spielberg manie sa caméra avec dextérité et parvient à rendre l'impression de carnage incontrôlable tout en gardant en permanence la lisibilité de la scène. Un équilibre difficile qu'atteint apparemment sans peine Steven Spielberg. La suite est moins impressionnante, mais tout aussi bien maîtrisée avec une photographie réussie qui rappelle assez les images d'époque.
+
+<img class="aligncenter" style="border-style: initial; border-color: initial; border-width: 0px;" src="https://voiretmanger.fr/wp-content/uploads/2011/11/soldat-ryan-matt-damon.jpg" alt="Soldat ryan matt damon" width="690" height="375" border="0" />
+
+Récompensé à de multiples reprises à sa sortie, <em>Il faut sauver le soldat Ryan</em> marque indéniablement une nouvelle étape dans les films de guerre. Son réalisme fera date et sa reconstitution du débarquement sert encore aujourd'hui d'illustration. Steven Spielberg propose ensuite une intrigue assez convenue, mais le rythme assez lent de son film qui tend presque à l'introspection est plus atypique. Un blockbuster pas si bête, à (re)voir ne serait-ce que se rappeler le sacrifice impensable consenti par ces hommes…
+
+<div class="amazon">
+<h3>Vous voulez m'aider ?</h3>
+<ul>
+	<li><a href="http://www.amazon.fr/gp/product/B003EN2SKA/ref=as_li_ss_tl?ie=UTF8&tag=leblogdenic07-21&linkCode=as2&camp=1642&creative=19458&creativeASIN=B003EN2SKA">Acheter le film en Blu-Ray sur Amazon</a></li>
+	<li><a href="http://www.amazon.fr/gp/product/B000CCZ2FY/ref=as_li_ss_tl?ie=UTF8&tag=leblogdenic07-21&linkCode=as2&camp=1642&creative=19458&creativeASIN=B000CCZ2FY">Acheter le film en DVD sur Amazon</a></li>
+	<li><a href="http://itunes.apple.com/fr/movie/il-faut-sauver-le-soldat-ryan/id370381364">Acheter le film sur l'iTunes Store</a></li>
+</ul>
+</div>
