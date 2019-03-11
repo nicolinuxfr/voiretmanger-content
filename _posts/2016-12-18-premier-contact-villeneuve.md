@@ -1,0 +1,41 @@
+---
+ID: 17115
+post_title: '<em>Premier Contact</em>, Denis Villeneuve'
+post_name: premier-contact-villeneuve
+author: Nicolas
+post_date: 2016-12-18 16:35:11
+layout: post
+link: >
+  https://voiretmanger.fr/premier-contact-villeneuve/
+published: true
+tags:
+  - Adaptation littéraire
+  - Extra-terrestre
+  - Famille
+  - Mémoire
+  - Science-Fiction
+  - Sorties du moment
+categories:
+  - À voir
+---
+Depuis 2013, Denis Villeneuve s'est installé à Hollywood où il réalise des long-métrages au rythme un petit peu dingue d'un par an. Le cinéaste canadien ne se contente pas d'enchaîner les productions faciles qui plus est, il change de genre à chaque fois ou presque. C'est encore le cas cette année avec *Premier Contact*, son premier pas dans le genre de la science-fiction avant son prochain, la suite de [*Blade Runner*](https://voiretmanger.fr/blade-runner-scott/) qui est d'ores et déjà prévue pour 2017. En attendant, ce film paraît sur le papier d'une banalité affligeante : des vaisseaux extra-terrestres se posent pour la première fois sur notre planète et les hommes dans le monde entier essaient de savoir ce qu'ils veulent et s'ils ont des intentions pacifiques. Denis Villeneuve suit l'équipe américaine dans n'importe quel blockbuster d'action, mais on peut compter sur le réalisateur pour ne pas tomber dans la grosse production facile. Bien au contraire, *Premier Contact* est un film lent et énigmatique, une œuvre singulière et magnifique à découvrir sans rien lire au préalable pour garder la surprise intacte.
+
+<a href="https://fr.wikipedia.org/wiki/Premier_Contact_(film)"><img src="https://voiretmanger.fr/wp-content/uploads/2016/12/premier-contact-villeneuve.jpg" alt="" width="2500" height="3390" class="aligncenter size-full wp-image-17116" /></a>
+
+Dès le séquence d'ouverture portée par la musique si belle et si triste de Max Richter, on sait que *Premier Contact* ne sera pas un film de science-fiction comme les autres. En quelques minutes, la voix d'Amy Adams qui incarne ici le docteur Louise Banks nous raconte l'histoire tragique de sa petite fille, morte trop jeune du cancer. Cette séquence est fondamentale dans le long-métrage et on ne le sait pas encore, mais on sait en tout cas que Denis Villeneuve parvient d'emblée à nous prendre par l'émotion. Cette séquence est aussi très mystérieuse, le père est toujours flou et la narration insiste sur la difficulté du souvenir et sur le fonctionnement de la mémoire. L'intrigue principale se met ensuite en place quand cette spécialiste de la langue doit interrompre un cours à l'université face à la nouvelle : douze vaisseaux spatiaux se sont positionnés dans le monde, dont un aux États-Unis. Très vite, elle est contactée par l'armée pour essayer d'entrer en contact avec les occupants, des « heptapodes » qui ne parlent pas notre langue, ni aucun langage terrestre connu. À ce stade, on ne s'attend pas vraiment à un scénario de film catastrophe, mais *Premier Contact* entretient le doute. Aux quatre coins de la planète, des militaires et des scientifiques essaient de comprendre pourquoi ces extra-terrestres sont venus et il y a des partisans de la réponse violente par précaution. L'humanité va-t-elle déclencher une guerre contre ces arrivants qui semblent pourtant pacifiques ? Sans surprise, ce n'est pas vraiment le sujet qui intéresse Denis Villeneuve, néanmoins le cinéaste qui se fait de plus en plus spécialiste de l'énigmatique se garde bien de répondre trop rapidement. Et même si on finit par comprendre en gros ce qui se passe, le scénario adapté d'une nouvelle de Ted Chiang conserve une part de mystères jusqu'au bout. Au fond, on ne sait pas vraiment ce que ces êtres étranges viennent faire sur Terre. On apprend qu'ils peuvent voir le futur et qu'ils auront besoin de l'humanité, mais est-ce qu'il faut en déduire qu'ils sont le futur de l'humanité ? Ou bien une autre espèce qui nous sollicite depuis un autre bout de l'univers ?
+
+<img src="https://voiretmanger.fr/wp-content/uploads/2016/12/premier-contact-denis-villeneuve.jpg" alt="" width="3300" height="2200" class="aligncenter size-full wp-image-17119" />
+
+Le film ne répond pas et c'est très bien ainsi, car ce n'est pas vraiment son sujet. Oui, il y a bien une intrigue militaire et même internationale avec cette menace d'une guerre déclenchée par la Chine ou la Russie qui résonne étrangement avec notre actualité. Néanmoins, *Premier Contact* est un film très intime qui se concentre sur une poignée de personnages seulement et même principalement sur sa seule héroïne. La scientifique interprétée par Amy Adams est au cœur des enjeux et elle est de tous les plans. C'est elle qui parvient pour la première fois à communiquer avec les visiteurs, donc son rôle est compréhensible pour cette raison, mais ce n'est pas la seule justification et sans doute pas la plus importante non plus. Ce qui intéresse Denis Villeneuve, c'est surtout le parcours personnel de cette femme que l'on suppose brisée par la mort d'un enfant, un fait tragique constamment rappelé par une série de flashbacks. La vérité est plus complexe que cela et surtout beaucoup plus intéressante. Sans trop en dire, *Premier Contact* joue sur nos attentes pour mieux nous tromper et l'histoire déployée par le long-métrage sur près de deux heures est nettement plus originale que ce que l'on pouvait penser. Autour du docteur Banks, les autres personnages sont très secondaires, presque absents, comme s'ils ne comptaient pas vraiment. Même Forest Whitaker dans le rôle du général en charge de la base militaire improvisée pour prendre contact avec les extra-terrestres est presque insignifiant, alors que l'acteur a une présence indéniable et une tête particulièrement mémorable. Jeremy Renner est lui aussi très présent physiquement, mais les caméras ne perdent jamais sa collègue féminine de vue. La mise en scène est à la fois très simple, sans esbroufe inutile, et très précise, avec quelques plans magnifiques, notamment à l'intérieur de la capsule venue de l'espace. Denis Villeneuve joue énormément sur la symétrie et il multiplie les travellings verticaux, créant une attente de la part du spectateur. Que va-t-on découvrir à la fin du mouvement ? Que ce soit la vue depuis la maison de Louise ou bien la vitre à travers laquelle les extra-terrestres communiquent, ce mouvement de caméra génère à chaque fois une forme de tension. On est loin des grosses productions américaines naturellement, mais *Premier Contact* est une œuvre plutôt dynamique et qui ne lâche pas son spectateur sur toute sa durée.
+
+<img src="https://voiretmanger.fr/wp-content/uploads/2016/12/premier-contact-amy-adams-jeremy-renner.jpg" alt="" width="3300" height="2200" class="aligncenter size-full wp-image-17118" />
+
+Quelques mois après l'excellent [*Midnight Spécial*](https://voiretmanger.fr/midnight-special-nichols/), la science-fiction alternative était à l'honneur cette année et c'est une réussite. Ce film de Denis Villeneuve est très différent de celui de Jeff Nichols, on retrouve malgré tout ce même soin apporté à l'ambiance et une lecture discrète et subtile du genre. C'est sans doute aussi en partie par manque de moyens que l'on ne voit pas plus d'extra-terrestres et leurs actions dans *Premier Contact*, mais c'est un point fort. Toute la première partie, quand on ne voit pas même les vaisseaux, est ainsi nettement plus forte et l'apparition à l'écran des créatures venues d'ailleurs ne gâche rien. C'est fait avec goût et le réalisateur n'abuse jamais d'effets spéciaux pour en montrer davantage, quitte à en faire trop. Le résultat est finalement assez simple, ce qui est une bonne chose. Un excellent film, à voir si possible en salles pour mieux en profiter.
+
+<div class="amazon" markdown="1">
+### Vous voulez [m'aider](https://voiretmanger.fr/soutien/) ?
+
+- [Acheter le film en Blu-ray sur Amazon](http://amzn.to/2g0b5Dt)
+- [Acheter le film en DVD sur Amazon](http://amzn.to/2fRI4WP)
+- [Acheter ou louer le film sur l'iTunes Store](https://itunes.apple.com/fr/movie/premier-contact/id1174618339)
+</div>
