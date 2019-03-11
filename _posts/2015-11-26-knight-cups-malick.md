@@ -1,0 +1,41 @@
+---
+ID: 14803
+post_title: '<em>Knight of Cups</em>, Terrence Malick'
+post_name: knight-cups-malick
+author: Nicolas
+post_date: 2015-11-26 22:01:15
+layout: post
+link: >
+  https://voiretmanger.fr/knight-cups-malick/
+published: true
+tags:
+  - Amour
+  - Drame
+  - Famille
+  - Metafilm
+  - Religion
+  - Sorties du moment
+categories:
+  - À voir
+---
+Terrence Malick vient-il de réaliser trois fois de suite le même film ? C'est un petit peu la question que l'on se pose après avoir vu *Knight of Cups*. Le cinéaste américain, autrefois si rare, enchaîne désormais les projets et en attendant *Weightless*, d'ores et déjà prévu pour l'année prochaine, son septième long-métrage a un goût de déjà-vu très prononcé. Des thèmes aux images, on retrouve ce que l'on avait découvert en 2011 avec [*The Tree of Life*](https://voiretmanger.fr/tree-of-life-malick/), jusqu'à certains plans qui sont des copies parfaites du film qui avait alors remporté la Palme d'or. Terrence Malick est-il devenu gâteux ? Ce serait une analyse un petit peu rapide et ce serait oublier que la trilogie formée avec [*À la merveille*](https://voiretmanger.fr/a-la-merveille-malick/) sorti en 2013 n'est pas qu'une répétition vaine. Certes, *Knight of Cups* est très proche de ses deux prédécesseurs, sans doute trop proche, mais cette nouvelle brique change encore un petit peu l'angle du réalisateur et suggère une évolution. Est-ce suffisant pour justifier une séance un peu longue et répétitive, il faut bien le reconnaître ? Pas si sûr…
+
+<a href="http://www.allocine.fr/film/fichefilm_gen_cfilm=199057.html" rel="attachment wp-att-14805"><img src="https://voiretmanger.fr/wp-content/uploads/2015/11/knight-of-cups-malick.jpg" alt="knight-of-cups-malick" width="2500" height="3334" class="aligncenter size-full wp-image-14805" /></a>
+
+Difficile de feindre la moindre surprise : quand *Knight of Cups* commence, on est en terrain connu. Caméras constamment en mouvement, montage vif qui n'hésite pas à passer d'un plan à l'autre très rapidement, mélange des périodes et des histoires, narrateurs multiples omniprésents… le style Terrence Malick peut se reconnaître entre mille depuis la sortie de *The Tree of Life*. C'était déjà le cas avec son précédent film, c'est encore plus sensible ici : on n'évite pas le sentiment de répétition et on se demande même souvent pourquoi le cinéaste se répète autant, au point souvent de tomber dans l'auto-caricature. Dans les premières minutes, on enchaîne quelques plans de la nature avec éventuellement un homme statique face aux éléments avec un plan dans l'espace avec des aurores boréales, le tout sur un fond de musique classique et porté par la voix profonde d'un narrateur, manifestement le sermon d'un prêtre sur la vie et l'engagement. Cela vous rappelle quelque chose ? C'est normal, on retrouve, condensé en quelques minutes, les deux précédents long-métrages du réalisateur. Et à ce stade, on ne peut que ressentir une pointe d'exaspération : à quoi bon se répéter ainsi à l'infini, à quoi bon venir et voir ce réalisateur si brillant par le passé tomber dans une caricature aussi grossière ? Pourtant, même si ce sentiment ne quitte pas vraiment le spectateur pendant les deux heures que dure le spectacle, force est de constater que l'on finit par se prendre au jeu. En la matière, comme toujours, il y aura ceux qui adorent et ceux qui détestent, mais si vous n'êtes pas totalement insensible au cinéma de Terrence Malick, vous finirez probablement par vous laisser porter. Certes, on a déjà vu ces personnages filmés à hauteur de visage ou souvent de dessous. Certes, on a déjà entendu parler d'une famille avec un frère mort et du drame que cela a engendré. Certes, on connaît déjà cette quête du personnage principal pour trouver l'amour et donner un sens à une vie bien vide. On ne peut pas le nier, *Knight of Cups* ne brille pas par son originalité, pas en sortant après deux autres réalisations quasiment identiques, tant sur la forme que le fond.
+
+<img src="https://voiretmanger.fr/wp-content/uploads/2015/11/knight-of-cups-christian-bale-cate-blanchett.jpg" alt="knight-of-cups-christian-bale-cate-blanchett" width="2100" height="1400" class="aligncenter size-full wp-image-14806" />
+
+La frustration que l'on peut ressentir face à ce constat est bien réelle et il n'est pas très surprenant que certains spectateurs quittent la salle avant la fin. Néanmoins, la dernière réalisation de Terrence Malick mérite encore de faire un effort et de s'accrocher. Déjà, parce que le cinéaste reste un excellent technicien et la photographie est à nouveau parfaite, avec quelques plans vraiment sublimes. Et puis aussi parce que ce *Knight of Cups* marque une évolution dans la trilogie formée depuis *The Tree of Life*. Après un premier volet centré essentiellement sur la nature, *À la merveille* avait replacé l'humain plus au centre des enjeux, en faisant notamment plus de place à ses créations et un petit peu moins à la nature sauvage. Avec ce film, on peut voir se dessiner une tendance : la nature est encore là, mais désormais réduite à une portion congrue, au profit de l'humain. L'action se déroule presque exclusivement à Los Angeles, avec quelques plans dans le désert californien et une brève séquence à Las Vegas. Autant dire que l'on voit beaucoup d'immeubles, de maisons et de lieux totalement conquis par l'homme et même quand il y a la nature, elle est souvent encadrée et contrainte. Ce n'est pas un hasard dès lors si on a moins de plans qui célèbrent la beauté : des SDF qui trainent dans les rues de Los Angeles aux bars à strip-tease en passant par des mutilés, le film multiplie au contraire les images négatives et c'est sans conteste l'un des plus noirs du réalisateur. Difficile de savoir s'il faut y voir un message conscient, mais Terrence Malick est connu pour son travail de réflexion et la tendance semble assez évidente. En revanche, pourquoi être parti sur une histoire si proche des précédentes ? Le personnage principal, incarné par un Christian Bale assez convaincant, est touché par la mort de son frère et la seule différence avec le personnage incarné par Sean Penn en 2011 est qu'il a un autre frère colérique. C'est léger et sa quête d'amour qui se traduit par la multiplication des femmes n'est pas sans rappeler le personnage interprété cette fois par Ben Affleck dans le précédent film. On apprécie le fait que *Knight of Cups* reste sur des enjeux modestes — *The Tree of Life* et son ambition démesurée seraient difficiles à supporter une deuxième fois —, mais n'y avait-il pas autre chose à envisager ? 
+
+<img src="https://voiretmanger.fr/wp-content/uploads/2015/11/knight-of-cups-christian-bale-natalie-portman.jpg" alt="knight-of-cups-christian-bale-natalie-portman" width="2100" height="1400" class="aligncenter size-full wp-image-14807" />
+
+Terrence Malick se répète, avec encore une fois un film dans la veine des deux précédents. Pourquoi cette nouvelle variation ? Trahit-elle un besoin d'exprimer quelque chose qui ne sort pas tout à fait, comme si sa frénésie brutale, après une carrière très vide, répondait à cette difficulté à toucher son sujet ? Le réalisateur est, fidèle à son habitude, très discret et on ne saura rien de plus. On ne peut juger *Knight of Cups* qu'avec ce qu'il présente et il faut reconnaître que l'on peut se sentir un petit peu exaspéré face à cette réalisation si proche de ce que l'on connaissait déjà. Même si le mystère qui entoure tous les films de Terrence Malick reste passionnant et même si on peut aisément se laisser porter par la photographie sublime de toutes ses réalisations, il faut bien reconnaître aussi que l'on n'est plus du tout surpris. Et que l'on aimerait vraiment passer à autre chose. Le successeur de *Knight of Cups* ne sera-t-il encore qu'une variation ? On devrait rapidement avoir la réponse…
+
+<div class="amazon" markdown="1">
+### Vous voulez [m'aider](https://voiretmanger.fr/soutien/) ?
+
+- [Acheter le film en Blu-ray sur Amazon](http://amzn.to/2qK1IYg)
+- [Acheter le film en DVD sur Amazon](http://amzn.to/2p2qRRz)
+- [Acheter ou louer le film sur l'iTunes Store](https://itunes.apple.com/fr/movie/knight-of-cups/id1090565804)
+</div>
