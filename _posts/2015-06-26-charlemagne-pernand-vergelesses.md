@@ -1,0 +1,45 @@
+---
+ID: 13914
+post_title: Le Charlemagne à Pernand-Vergelesses
+post_name: charlemagne-pernand-vergelesses
+author: Nicolas
+post_date: 2015-06-26 23:36:11
+post_excerpt: 'Au milieu des vignes de Bourgogne, le Charlemagne ne choisit pas la simplicité. Sa cuisine va piocher du côté du Japon, pour un résultat bluffant : une très belle adresse, qui mérite un détour !'
+layout: post
+link: >
+  https://voiretmanger.fr/charlemagne-pernand-vergelesses/
+published: true
+tags:
+  - "Côte d'Or"
+  - Cuisine contemporaine
+  - Cuisine française
+  - Cuisine japonaise
+  - Une étoile Guide Michelin
+categories:
+  - À manger
+---
+Perdu au milieu des vignes, mais à une dizaine de minutes seulement de Beaunes, [**Le Charlemagne**](http://www.lecharlemagne.fr) cache bien son jeu. Derrière les murs de la grande maison qui l'abrite, ce restaurant célébré par une étoile au Guide Michelin propose une cuisine contemporaine inventive fortement inspirée par le Japon. Un voyage gustatif extrêmement réussi, à ne pas rater si vous passez dans le coin !
+
+<img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2015/06/charlemagne-salle.jpg" alt="Charlemagne salle" title="charlemagne-salle.jpg" width="2100" height="1400" />
+
+Il n'en a pas l'air de l'extérieur, mais le restaurant accueille en fait une salle assez grande, ainsi qu'une plus petite terrasse l'été. **Le Charlemagne** est au bord d'une route assez passante le jour — on est sur la fameuse route des Grands crus de Bourgogne —, mais qui se calme le soir et, surtout l'été, on fera mieux de déguster dehors, à l'air libre. Ce soir là, nous avions choisi de manger en salle, mais la température n'est jamais tombée et il y faisait un peu trop chaud. Dommage, en revanche on apprécie le confort des fauteuils et l'ensemble est feutré, confortable et discret à la fois. Les touches asiatiques omniprésentes signalent déjà ce que l'on aura dans l'assiette et elles ajoutent une touche d'exotisme inattendue dans cette région de traditions séculaires. On s'y sent bien, l'ensemble est décoré avec beaucoup de goût, bref l'accueil est plaisant.
+
+<img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2015/06/charlemagne-saint-jacques.jpg" alt="Charlemagne saint jacques" title="charlemagne-saint-jacques.jpg" width="2100" height="1400" />
+
+Une fois bien en place, on peut découvrir [la carte du restaurant](https://voiretmanger.fr/wp-content/uploads/2015/06/charlemagne-menus.pdf) qui fait preuve d'une originalité incontestable, à défaut d'être parfaitement compréhensible. Plusieurs menus sont proposés, autour d'une trentaine d'euros seulement le midi, entre une soixantaine et une centaine d'euros le soir. Dans tous les cas, le chef privilégie souvent la mer et il y a toujours au moins un poisson, ou un fruit de mer, et plus souvent encore, il y a les deux. Le menu le plus cher est une surprise pour la table entière : en neuf assiettes, le chef vous fait découvrir sa cuisine et ses mélanges inspirés par le Japon. On a ensuite plusieurs choix, avec essentiellement un nombre de plats qui descend avec le prix. Nous avons opté pour la formule « *Il était une fois* » qui raconte une histoire en six assiettes : une entrée, deux poissons, une viande, fromage et dessert. Comptez 85 € par personne pour ce menu, sans option pour accompagner les plats d'un verre de vin malheureusement, mais il suffit de demander à la sommelière et elle vous trouvera dans sa cave des verres de vins locaux. Après tout, ce n'est pas ça qui manque et nous avons même bu deux vins de Pernand-Vergelesses pour accompagner la soirée. Un blanc et puis un rouge un petit peu jeunes et certainement chers payés — c'est le jeu, dans les restaurants —, mais fort agréables malgré tout.
+
+<img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2015/06/charlemagne-bar.jpg" alt="Charlemagne bar" title="charlemagne-bar.jpg" width="2100" height="1400" />
+
+Le repas commence avec [des amuses-bouches](https://voiretmanger.fr/wp-content/uploads/2015/06/charlemagne-amuse-bouche.jpg) qui frappent d'entrée de jeu par leur maîtrise technique. Sur une fine couche de feuilletage, des demi-sphères renferment un liquide qui explose en bouche. On a ainsi des sortes de tartelettes, mais avec du liquide à l'intérieur, que ce soit une soupe miso, ou de l'asperge. C'est très étonnant et très réussi, avec un jeu de texture qui offre aux saveurs toute latitude pour s'exprimer. Le repas à proprement parler commence avec une entrée à base de noix de Saint-Jacques. Un met fin, que le chef a bien soigné en ne les cuisant qu'à peine, d'un coup de chalumeau seulement. Elles sont fondantes comme il se doit et très bien accompagnées de couteaux, de quelques œufs de truite et relevées de fleurs au goût anisé. On continue ensuite avec une assiette, ou plutôt un bol, qui contient un beau morceau de bar de ligne, sur du *daikon* fondant (un navet japonais) et avec quelques herbes vertes autour. Un bouillon de sésame noir vient relever le tout, mais la particularité de ce plat, ce sont les écailles du poisson encore sur la chair. Cette partie que l'on retire toujours est ici conservée croustillante, et elle ajoute toute la texture qui compense avec le bouillon ou les chairs du poisson et du navet, toutes deux fondantes.
+
+<img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2015/06/charlemagne-langoustine.jpg" alt="Charlemagne langoustine" title="charlemagne-langoustine.jpg" width="2100" height="1400" />
+
+La langoustine qui suit est moins convaincante à notre goût, mais il faut dire que ce crustacé n'est jamais meilleur que nature et seulement agrémenté d'une pointe de beurre salé. Ici, le chef l'a préparée en raviole, avec une pate assez épaisse et de la ricotta, ainsi que quelques légumes autour, notamment des asperges sauvages et une betterave. C'est très bon, mais on perd un petit peu le goût du fruit de mer, même s'il faut saluer l'effort pour le restituer avec cette émulsion onctueuse et concentrée. Et c'est la même chose pour le bœuf *wagyu* qui continue ce menu. Cette fameuse viande japonaise est censée être très grasse et très savoureuse, mais son goût reste subtil. Un peu trop, sans doute, pour ne pas être recouvert par la crème glacée à la moutarde ajoutée sur le dessus. On perd légèrement de vue le goût du produit, mais ne soyons pas trop difficiles : c'est une excellente assiette, avec énormément de jeux sur les couleurs, les textures — au soyeux du bœuf répondent les légumes croquants — et même les températures, entre la viande chaude et la glace au-dessus. L'ensemble est vraiment excellent et si l'on oublie l'origine de la viande, on a une assiette très convaincante. 
+
+<img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2015/06/charlemagne-bœuf-wagyu.jpg" alt="Charlemagne bœuf wagyu" title="charlemagne-bœuf-wagyu.jpg" width="2100" height="1400" />
+
+Le repas se termine doucement avec un [fromage travaillé à l'assiette](https://voiretmanger.fr/wp-content/uploads/2015/06/charlemagne-fromage.jpg). Ce soir-là, du chèvre frais assez simple mangé seul, mais amélioré par plusieurs éléments. Il y avait de fines tranches de pain d'épices grillées pour ajouter du croquant, du miso pour le goût et surtout un caramel savoureux qui relève le tout. Le chèvre lui-même avait été mélangé avec des graines de sésame pour ajouter un petit peu de relief et apporter l'Asie, comme dans tous les plats servis par le restaurant. On conclut avec dessert chocolaté : un cube de chocolat blanc au poivre sur le dessus, un autre de chocolat noir amer sur le dessous. Chaque cube est constitué d'une fine couche de chocolat, puis d'une mousse et même d'une crème au cœur, le tout sur un biscuit légèrement craquant. Techniquement, c'est bluffant et les saveurs sont bien au rendez-vous : un délice. Et pour finir le repas, [quelques mignardises](https://voiretmanger.fr/wp-content/uploads/2015/06/charlemagne-mignardises.jpg) qui reprennent le principe des amuses-bouche : une fine couche de pate surmontée d'un dome qui renferme un liquide, cette fois des fruits. Trois bouchées qui explosent en bouche et offrent un terme à un repas vraiment excellent.
+
+<img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2015/06/charlemagne-dessert-chocolat.jpg" alt="Charlemagne dessert chocolat" title="charlemagne-dessert-chocolat.jpg" width="2100" height="1400" />
+
+**Le Charlemagne** ne choisit pas la simplicité et essaie au contraire de surprendre au cœur de la Bourgogne. Pari réussi avec cette cuisine riche en saveurs, où chaque assiette expérimente, va chercher des inspirations du côté du Japon, tente des associations de saveurs, ou de textures. On sent que le chef s'amuse et il est suffisamment généreux pour nous faire partager ses expérimentations. Selon vos goûts, tout ne vous conviendra pas, mais difficile de faire la fine bouche : c'est du haut niveau. Certes, c'est aussi cher payé — comptez au minimum 100 € par personne le soir, en comptant l'indispensable vin —, mais le résultat est là. Une très belle adresse, à découvrir.
