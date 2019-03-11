@@ -1,0 +1,36 @@
+---
+ID: 1476
+post_title: '<em>Dans la brume électrique</em>, Bertrand Tavernier'
+post_name: dans-la-brume-electrique-tavernier
+author: Nicolas
+post_date: 2009-04-15 22:14:18
+post_excerpt: "Quand un Français veut copier le cinéma américain, cela donne en général de belles catastrophes. Mais Bertrand Tavernier n'est pas n'importe quel français : c'est un cinéphile érudit et passionné de cinéma américain qui réalise, ici, une sorte de rêve d'enfance. Le résultat est à la hauteur de l'attente : Dans la brume électrique est un excellent film, qui commence comme un thriller, semble esquisser une intrigue sociale, mais se termine comme un film étrange où le passé et les morts occupent la première place. Un film passionnant, en somme."
+layout: post
+link: >
+  https://voiretmanger.fr/dans-la-brume-electrique-tavernier/
+published: true
+tags:
+  - Fantastique
+  - Histoire
+categories:
+  - À voir
+---
+<p><em>Dans la brume électrique</em> est le dernier film où Tommy Lee Jones joue le rôle principal. Toutes ses dernières contributions s'étant révélées excellentes, ce film me donnait bien envie, mais le nom de Bertrand Tavernier sur l'affiche me faisait hésiter. Je sais à quel point les Français peuvent donner le pire d'eux-mêmes en singeant le cinéma américain. Avec ce nouveau film cependant, le réalisateur démontre, pour mon plus grand bonheur, que je me trompais. Dans la brume électrique est un excellent film, à ne rater sous aucun prétexte</p>
+<div style="text-align: center;"><a href="http://www.allocine.fr/film/fichefilm_gen_cfilm=125128.html"><img src="https://voiretmanger.fr/wp-content/uploads/2009/04/brume-electrique-tavernier.jpg" border="0" alt="brume-electrique-tavernier.jpg" width="600" height="812" /></a></div>
+<p><em>Dans la brume électrique</em> commence... dans la brume. Celle du bayou en l'occurrence, ces marais si typiques de la Louisiane et qui passent si bien sur la pellicule. Le décor est immédiatement planté, on sent d'emblée l'ambiance moite, la chaleur et les moustiques. Puis vient une voix off qui ne quittera plus ensuite le film, et qui nous raconte que l'on plaçait des pierres sur les tombes pour éviter que les morts se déplacent, mais qu'il arrivait que l'on en rencontre dans les marais. Immédiatement, comme pour souligner ce message, la caméra présente le corps inerte d'une jeune femme que des policiers emmènent. Puis le héros du film, Robicheaux magnifiquement interprété (comme d'habitude dirais-je) par Tommy Lee Jones, apparaît, et fait un signe de croix.</p>
+<p>En quelques secondes à peine, Bertrand Tavernier plante le décor, le personnage principal, et l'intrigue. Ou, pour être plus excuse, ce qui servira d'excuse au film. Certes, <em>Dans la brume électrique</em> est vaguement un thriller, vaguement policier. Le film en conserve l'ambiance, les thématiques et cette mort justifie une intrigue basée essentiellement sur la recherche du coupable. Néanmoins, on sait très vite qui est le coupable, le film le désigne dès son apparition à l'écran, et l'affaire est réglée. En tout cas, Robicheaux ne doute pas une seconde de la culpabilité de la personne concernée, et son objectif est plutôt de trouver un biais pour l'accuser, que de déterminer s'il est coupable.</p>
+<p>Ce qui intéresse le héros, et le réalisateur, c'est plutôt une intrigue parallèle impliquant la mort d'un Noir quarante ans avant l'action. Le passé prend une place essentielle dans ce film qui semble même entièrement tourné vers lui. Ainsi, un commandant de la guerre de Sécession apparaît de manière régulière dans le film, sans que cela gêne outre mesure notre héros (même si les seuls à voir ces apparitions sont des alcooliques ou anciens alcooliques). Autre preuve du désintérêt du film pour son aspect purement thriller, le policier interroge d'abord des gens qui n'ont rien à voir avec l'intrigue, comme ce joueur de blues interprété par un très bon Buddy Guy ((Au passage, je recommande ses disques, ils sont vraiment très bien...)). Mais ces personnages ont quand même quelque chose à dire qui à, <em>in fine</em>, à voir avec l'intrigue, sans doute de manière plus indirecte. Ils évoquent le passé, ils évoquent les morts, comme si la solution ne se trouvait pas ici-bas.</p>
+<p>Néanmoins, il ne faudrait pas penser que <em>Dans la brume électrique</em> est totalement déconnecté de la réalité. Celle-ci est bien présente, essentiellement par le biais de Katrina. En effet, Bertrand Tavernier a eu la bonne idée d'actualiser l'histoire de base, inspirée du roman à peu près éponyme de James Lee Burke, pour la faire se dérouler après l'ouragan Katrina. Le paysage en porte encore les marques, et le film tend vers une dénonciation des détournements des aides de l'État par la mafia locale, même si le film évite (ouf) tout discours socialisant et critique, comme le cinéma français sait parfois en faire.</p>
+<p>À propos de cinéma français, il est difficile de classer un tel film. Si <em>Dans la brume électrique</em> est définitivement un film américain, par le lieu, par les acteurs, par l'intrigue aussi (des shérifs comme ça, il n'y a qu'aux États-Unis que cela peut exister). Mais pour un film américain, il est pour le moins atypique, à tel point qu'une version différente a été proposée en Europe et aux États-Unis où le film est sorti directement sur DVD. Manifestement, les producteurs ont pensé que les Américains n'apprécieraient pas un film un peu étrange, et je trouve que c'est bien dommage. Il est vrai, néanmoins, que la patte du réalisateur se sent et qu'il est plutôt à contre-courant des habitudes hollywoodiennes. Par exemple, il fait tout un film dans la Louisiane sans passer sa caméra dans le quartier français de la Nouvelle-Orléans, ce qui relève de l'exploit.</p>
+
+<div style="text-align: center;"><img src="https://voiretmanger.fr/wp-content/uploads/2009/04/dans-la-brume-1.jpg" border="0" alt="dans-la-brume-1.jpg" width="600" height="427" /></div>
+<p>Je pourrais encore parler longtemps du film, tant il est riche et passionnant. Néanmoins, je préfère me contenter de vous recommander à nouveau <em>Dans la brume électrique</em>, et de citer mes critiques préférées qui sont toutes unanimes sur le film, tant <strong><a href="http://www.critikat.com/Dans-la-brume-electrique.html">Critikat</a></strong>, que <em><a href="http://www.telerama.fr/cinema/films/dans-la-brume-electrique,377911,critique.php">Télérama</a></em> ou que les <em><a href="http://www.lesinrocks.com/cine/cinema-article/article/dans-la-brume-electrique/">Inrockuptibles</a></em>. C'est même pas drôle, il n'y a pas de débats acharnés, mais en même temps, quand un film est bon...</p>
+
+<div class="amazon">
+<h3>Vous voulez m'aider ? ((<a href="https://voiretmanger.fr/soutien/">À propos de la publicité…</a>))</h3>
+<ul>
+	<li><a href="http://www.amazon.fr/gp/product/B003L5CTEQ/ref=as_li_ss_tl?ie=UTF8&tag=leblogdenic07-21&linkCode=as2&camp=1642&creative=19458&creativeASIN=B003L5CTEQ">Acheter le film en Blu-Ray sur Amazon</a></li>
+	<li><a href="http://www.amazon.fr/gp/product/B002UTJIG6/ref=as_li_ss_tl?ie=UTF8&tag=leblogdenic07-21&linkCode=as2&camp=1642&creative=19458&creativeASIN=B002UTJIG6">Acheter le film en DVD sur Amazon</a></li>
+	<li><a href="http://itunes.apple.com/fr/movie/dans-la-brume-electrique/id467362655">Acheter le film sur l'iTunes Store</a></li>
+</ul>
+</div>
