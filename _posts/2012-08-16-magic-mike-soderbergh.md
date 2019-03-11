@@ -1,0 +1,46 @@
+---
+ID: 7312
+post_title: '<em>Magic Mike</em>, Steven Soderbergh'
+post_name: magic-mike-soderbergh
+author: Nicolas
+post_date: 2012-08-16 00:10:12
+layout: post
+link: >
+  https://voiretmanger.fr/magic-mike-soderbergh/
+published: true
+tags:
+  - Amour
+  - Drogue
+  - Prostitution
+  - Sexe
+  - Société
+  - Striptease
+categories:
+  - À voir
+---
+Quelques semaines après le surprenant thriller <a title="Piégée, Steven Soderbergh" href="https://voiretmanger.fr/2012/07/11/piegee-soderbergh/"><em>Piégée</em></a>, Steven Soderbergh revient dans les salles françaises avec un film qui pourrait être difficilement plus différent. <em>Magic Mike</em> ou l'histoire d'un "entrepreneur le jour, strip-teaser la nuit" comme le résume bien son affiche. Une plongée dans un univers méconnu au cinéma pour un long-métrage qui s'avère moins attendu que prévu. <em>Magic Mike</em> n'est pas un grand film, mais une œuvre très plaisante en cette fin d'été, surtout si vous aimez les pectoraux.
+
+<a href="http://www.allocine.fr/film/fichefilm_gen_cfilm=193339.html"><img class="aligncenter" title="magic-mike-soderbergh.JPG" src="https://voiretmanger.fr/wp-content/uploads/2012/08/magic-mike-soderbergh.jpg" alt="Magic mike soderbergh" width="100%" /></a>
+
+Mike, la trentaine, n'a pas vraiment de travail, mais il multiplie des petits boulots. Le jour, il est tantôt ouvrier de bâtiment, il s'occupe aussi d'une boîte spécialisée dans les pièces détachées automobiles ; la nuit, il se déshabille devant des femmes hystériques dans un club spécialisé. Mike est un strip-teaser, il aime ça et il plait énormément à toutes celles qui payent pour le voir. Avec sa carrure et ses muscles saillants, il incarne à merveille l'homme idéal, celui que ces femmes n'auront jamais, mais celui qu'elles peuvent faire danser sans inquiéter leur vrai mari. Il ne s'agit en effet que d'une danse pleine de sous-entendus, certes, mais il ne s'agit pas de prostitution. Ce qui n'empêche pas Mike de coucher avec toutes les filles qu'il veut, souvent plusieurs à la fois. En apparence, il mène la belle vie, celle que fantasment certainement de nombreux hommes qui n'ont pas un physique aussi facile. Sauf que le rêve de Mike n'est pas de se déshabiller et de baiser, il a un projet qui lui tient à cœur et qu'il ne parvient pas à réaliser : parmi ses nombreuses occupations, il construit aussi des meubles à partir de pièces récupérées, notamment des morceaux d'avions qui se sont crashés. Quand commence le film, Mike fait la rencontre d'Adam, un gamin de 19 ans un peu paumé. Sans formation, il ne sait pas trop quoi faire de sa vie, mais Mike repère immédiatement son point fort : il est beau. Il finit par lui proposer un rôle à ses côtés, dans la troupe de strip-teasers.
+
+<em>Magic Mike</em> offre une plongée dans un univers que l'on voit finalement assez peu au cinéma. En général, quand on dit strip-tease, on pense à une femme et si c'est un homme, c'est souvent dans une boîte gay. Steven Soderbergh s'intéresse à des strip-teasers hétérosexuels qui font hurler de plaisir des centaines de femmes. Ce métier est moins reconnu et il n'est pas entouré des mêmes préjugés que son pendant féminin. Le cinéaste permet en tout cas de s'y plonger pendant près de deux heures, dans une démarche qui rappelle par moment celles de Mathieu Amalric avec <a title="Tournée, Mathieu Amalric" href="https://voiretmanger.fr/2010/07/10/tournee-amalric/"><em>Tournée</em></a>, en plus sexe. On retrouve les mêmes scènes dans les coulisses, la préparation des artistes, mais aussi de nombreux plans du spectacle qui rassemble les danseurs dans des scénarios variés. Ils ne manquent pas d'imagination, même si la finalité est la même : finir en string. Ils reprennent parfois des fantasmes courants, comme l'uniforme militaire ou l'habit de marin, mais ils scénarisent aussi parfois leurs prestations et Mike notamment raconte un peu son histoire et ses débuts en survêtement et basket. L'ensemble est plaisant à regarder, même si on n'apprécie pas spécialement la plastique des corps, mais Steven Soderbergh n'oublie jamais l'arrière du décor pour autant. <em>Magic Mike</em> rappelle aussi que ce milieu n'est pas forcément très sain, la drogue circule librement et le sexe n'est pas toujours parfaitement maîtrisé. Mieux vaut savoir respecter quelques règles, et c'est justement cela que le jeune Adam se refusera à faire.
+
+<img class="aligncenter" title="magic-mike-tatum-mcconaughey.jpg" src="https://voiretmanger.fr/wp-content/uploads/2012/08/magic-mike-tatum-mcconaughey.jpg" alt="Magic mike tatum mcconaughey" width="100%" />
+
+Son titre l'indique bien, <em>Magic Mike</em> est d'abord l'histoire d'un homme. Mike est l'un des strip-teasers de cette boîte de Tampa, mais il n'est pas n'importe lequel. C'est la star, le clou du spectacle et le succès du show lui doit beaucoup. Quand le maître de cérémonie annonce son nom, la salle tout entière explose de joie et le jeune homme est vraiment adulé. Mike apprécie vraiment son boulot, cela se voit, mais le personnage de Steven Soderbergh est plus complexe. Ce job ne lui sert en fait qu'à économiser, mais le vrai but de Mike, c'est la fabrication de meuble qu'il aimerait transformer en business rentable. Par rapport à ses collègues, cette envie de quitter un jour le milieu lui donne un avantage incontestable : il boit, mais ne s'adonne jamais à la drogue et conserve ses distances par rapport au strip-tease. Une distance qu'Adam ne sait pas créer : le jeune homme à peine sorti de l'adolescence est dans un premier temps assez fermé sur lui-même, il n'est pas à l'aise avec les filles et n'a pas la moindre idée de ce qu'il veut faire de sa vie. Quand Mike lui propose un boulot dans le club, il accepte d'abord par commodité, mais Adam se prend très vite au jeu. <em>Magic Mike</em> montre bien comment il se métamorphose en trois mois : il fricote avec la drogue, développe ses muscles et devient le mec sexy que toutes les filles s'arrachent. C'est aussi lui qui permet à Mike de rencontrer Brooke, la sœur d'Adam. Cette jeune femme un peu austère lui résiste, c'est sans doute ce qui attire ce grand séducteur dans un premier temps. Très vite, Steven Soderbergh instille de l'amour entre ces deux personnages, un amour gêné et timide tant ils sont différents. <em>Magic Mike</em> évolue en tout cas doucement avec cette rencontre qui ne devait mener nulle part, mais qui pourrait bien se terminer en grande histoire…
+
+La sortie rapprochée de deux films si différents en est une preuve de plus : Steven Soderbergh est un cinéaste touche-à-tout. Cette fois, il propose un film assez léger, ponctué de séquences de strip-tease qui plantent bien le sujet. Léger, mais <em>Magic Mike</em> propose aussi quelques thématiques plus sérieuses, autour de la drogue et du milieu de Mike, mais aussi du regard porté par la société sur ce métier. Le réalisateur maîtrise en tout cas bien son sujet et propose une plongée particulièrement convaincante dans ce milieu. Steven Soderbergh semble avoir pris du plaisir à filmer ces corps sculptés et leurs mouvements pleins de sens, les amateurs apprécieront. L'ensemble ne fait pas des étincelles côté mise en scène, mais ce n'est pas l'idée non plus. Dans ce genre de film, le talent des acteurs fait beaucoup et <em>Magic Mike</em> ne déçoit pas. Channing Tatum surprend même : est-ce parce que le scénario s'inspire directement de son histoire personnelle ? Toujours est-il que l'acteur qui a parfois été embauché pour ses muscles plus que pour ses talents d'acteur fait ici preuve d'une surprenante subtilité et son personnage est sincère et réussi. À ses côtés, Alex Pettyfer campe un Adam séduisant et Matthew McConaughey en impose dans son rôle d'organisateur.
+
+<img class="aligncenter" title="soderbergh-magic-mike-pettyfer.jpg" src="https://voiretmanger.fr/wp-content/uploads/2012/08/soderbergh-magic-mike-pettyfer.jpg" alt="Soderbergh magic mike pettyfer" width="100%" />
+
+Steven Soderbergh propose avec <em>Magic Mike</em> une plongée réussie dans l'univers méconnu des strip-teasers masculins. On suit avec plaisir l'histoire de Mike et la découverte du milieu par Adam, un petit nouveau. Le récit est bien mené et l'ensemble toujours plaisant, même s'il est préférable d'apprécier les muscles des acteurs tant ils sont présents à l'écran. <em>Magic Mike</em> n'est pas le film de l'année, non, mais il n'en a pas les ambitions, il est par contre parfait pour une séance tranquille avant la rentrée…
+
+<div class="amazon">
+<h3>Vous voulez m'aider ?</h3>
+<ul>
+	<li><a href="http://www.amazon.fr/gp/product/B0093K65A2/ref=as_li_ss_tl?ie=UTF8&tag=leblogdenic07-21&linkCode=as2&camp=1642&creative=19458&creativeASIN=B0093K65A2">Acheter le film en Blu-Ray sur Amazon</a></li>
+	<li><a href="http://www.amazon.fr/gp/product/B0093K656G/ref=as_li_ss_tl?ie=UTF8&tag=leblogdenic07-21&linkCode=as2&camp=1642&creative=19458&creativeASIN=B0093K656G">Acheter le film en DVD sur Amazon</a></li>
+	<li><a href="https://itunes.apple.com/fr/movie/magic-mike-vost/id586075572">Acheter ou louer le film sur l'iTunes Store</a></li>
+</ul>
+</div>
