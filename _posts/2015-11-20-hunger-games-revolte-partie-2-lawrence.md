@@ -1,0 +1,38 @@
+---
+ID: 14776
+post_title: '<em>Hunger Games : La Révolte, Partie 2</em>, Francis Lawrence'
+post_name: hunger-games-revolte-partie-2-lawrence
+author: Nicolas
+post_date: 2015-11-20 12:48:12
+layout: post
+link: >
+  https://voiretmanger.fr/hunger-games-revolte-partie-2-lawrence/
+published: true
+tags:
+  - Action
+  - Adaptation littéraire
+  - Amour
+  - Blockbuster
+  - Dystopie
+  - Guerre civile
+  - Résistance
+  - Science-Fiction
+  - Sorties du moment
+categories:
+  - À voir
+---
+Suite et fin de la [saga *Hunger Games*](https://voiretmanger.fr/saga/hunger-games/), *Hunger Games : La Révolte, Partie 2* termine la grande révolte contre la dystopie en place attaquée dès [le deuxième volet](https://voiretmanger.fr/hunger-games-embrasement-lawrence/). Et après [un premier film](https://voiretmanger.fr/hunger-games-ross/) pas très convaincant, la saga avait réussi à trouver le ton juste sous la direction de Francis Lawrence, qui termine logiquement le travail. Chaque film tendait vers plus de sérieux et de noirceur, une direction inattendue qui fonctionnait bien, même si on pouvait regretter quelques scories liées au statut de *teen movie* de l'ensemble. Cette deuxième partie du final était attendu comme la grande victoire finale et on craignait un petit peu le pire, entre retour en force de la romance jusque-là tenue à l'écart, et victoire un peu molle. Et là encore, la saga réussit à surprendre avec un ultime chapitre très sombre et très politique. *Hunger Games : La Révolte, Partie 2* n'est pas un grand film, certes, et la fin qui s'étire en longueur aurait mérité quelques coupes, mais Francis Lawrence s'en tire plutôt bien et propose un spectacle plus sérieux qu'escompté.
+
+<a href="http://www.allocine.fr/film/fichefilm_gen_cfilm=204925.html" rel="attachment wp-att-14777"><img src="https://voiretmanger.fr/wp-content/uploads/2015/11/hunger-games-revolte-partie-2-lawrence.jpg" alt="hunger-games-revolte-partie-2-lawrence" width="2500" height="3704" class="aligncenter size-full wp-image-14777" /></a>
+
+Si vous n'avez pas vu [la première partie](https://voiretmanger.fr/hunger-games-revolte-partie-1-lawrence/), inutile de tenter de regarder la conclusion, car Francis Lawrence reprend précisément là où on en était et construit son film à partir de là. *Hunger Games : La Révolte, Partie 2* commence donc après la récupération des Vainqueurs au cœur de Capitole et juste après la tentative de meurtre de Peeta contre Katniss. Rappelons que le couple a été brisé à la fin du deuxième film, Katniss étant récupérée par les rebelles et Peeta par le camp ennemi. Ce dernier a reçu un intense lavage de cerveau tout au long de *Hunger Games : La Révolte, Partie 1* et il est désormais persuadé que sa fiancée est l'ennemi à abattre. Mais contrairement à ce que l'on pouvait penser, leur histoire n'est pas vraiment au cœur de ce film et c'est bien la guerre contre le Capitole qui prend d'emblée le dessus. Il faut dire que l'on est à un moment clé de la lutte, quand le District 13 parvient à unir tous les autres contre les dirigeants de Panem. La saga surprend à nouveau par son traitement très réaliste. Nonobstant la séparation en castes qui est toujours aussi simpliste et ressemble à ce qu'un enfant pourrait écrire, le film est étonnamment noir et plutôt crédible. Francis Lawrence doit composer avec le roman original, mais le cinéaste a plutôt bien su étouffer tout ce qui est vraiment grossier, pour présenter une guerre civile réaliste. Il y a donc beaucoup de morts, des deux côtés d'ailleurs, et c'est une lutte à mort qui est difficile, d'autant qu'il n'y a pas un camp vraiment meilleur que l'autre. C'est quelque chose que l'on pressentait déjà auparavant, mais qui est ici explicite : Snow, le président de Panem, est un salopard fini, mais la présidente Alma Coin à la tête du District 13 et surtout à la tête de la rébellion, n'est pas bien meilleure. Elle est prête à tout pour obtenir la victoire, ce qui est bien, mais aussi pour prendre la tête de Panem après la guerre, ce qui est nettement plus louche. On n'en dira pas plus pour ne rien dévoiler, mais la vision politique de *Hunger Games : La Révolte, Partie 2* est étonnamment cynique, et c'est une très bonne nouvelle.
+
+<img src="https://voiretmanger.fr/wp-content/uploads/2015/11/hunger-games-revolte-partie-2-francis-lawrence.jpg" alt="hunger games -revolte-partie-2-francis-lawrence" width="2100" height="1400" class="aligncenter size-full wp-image-14779" />
+
+La saga reste centrée sur Katniss Everdeen, héroïne malgré elle qui doit permettre à toutes les lectrices et spectatrices de s'identifier. Jennifer Lawrence accompagne le personnage depuis ses débuts et il faut bien reconnaître que l'actrice est excellente dans ce rôle : timide et un peu tête à claque dans le premier volet, elle s'affirme de plus en plus et surtout déploie une personnalité toujours plus riche. Dans *Hunger Games : La Révolte, Partie 2*, ses doutes quant à l'objectif de la guerre prennent encore plus de place et c'est la première fois que ce personnage s'affirme vraiment et choisit de mener sa propre vie, plutôt que de se faire guider. Elle décide ainsi de partir sur le front avec l'espoir de tuer elle-même le président Snow et d'abandonner ainsi son rôle de pion. Francis Lawrence montre très bien comment elle était toujours manipulée, d'abord par un camp, puis par l'autre et son autonomie dans ce volet est bien rendue, on y croit. Le scénario suit en permanence l'héroïne, essentiellement dans les rues piégées du Capitole et *Hunger Games : La Révolte, Partie 2* contient quelques scènes d'action convaincantes, avec une séquence en particulier très réussie sur la place ronde[^1]. La guerre est au cœur du film pendant la majeure partie du temps et il n'y a ainsi que très peu de place pour la romance. C'est une plutôt bonne nouvelle et le peu qui reste prend plus d'importance : l'émotion parvient à poindre ici ou là et le retour, très lent d'ailleurs, de Peeta est plutôt bien mené. Francis Lawrence marque des points et tant que la guerre reste active, son film est plutôt réussi. Hélas, la guerre finit par s'arrêter et on entre alors dans une dernière partie, fort heureusement assez courte, où l'on retombe dans les travers du genre, avec des tonnes d'images cliché dont on se serait bien passé. Peut-être que la saga ne pouvait pas se terminer autrement, mais cela reste dommage de ne pas rester sur la bonne lancée. 
+
+<img src="https://voiretmanger.fr/wp-content/uploads/2015/11/hunger-games-revolte-partie-2-jennifer-lawrence-elizabeth-banks.jpg" alt="hunger-games-revolte-partie-2-jennifer-lawrence-elizabeth-banks" width="2100" height="1400" class="aligncenter size-full wp-image-14780" />
+
+*Hunger Games* est une saga surprenante, qui a très mal commencé avec un épisode caricatural et raté, plein de bonnes idées jamais exploitées. Pourtant, elle a vite redressé la barre et les trois films qui ont suivi sont, dans leur genre, réussis. Francis Lawrence a été contraint de composer avec des idées pas toujours bien vues, mais il s'en est plutôt bien tiré et cette conclusion reste sur la lancée. *Hunger Games : La Révolte, Partie 2* est plus noir et plus politique qu'on ne l'aurait pensé et la domination de ces enjeux plutôt que de l'histoire d'amour sauve le long-métrage de la romance sans originalité et probablement caricaturale. À l'heure des bilans, c'est une réussite dans l'ensemble : on n'aurait pas parié dessus…
+
+[^1]: Une place qui, contre toute attente, n'a pas été imaginée et créée en studio ou avec un ordinateur. Le tournage s'est déroulé en banlieue parisienne, où l'on trouve effectivement des architectures disons… originales, comme celle-ci.
