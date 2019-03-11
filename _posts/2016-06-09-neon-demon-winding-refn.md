@@ -1,0 +1,34 @@
+---
+ID: 16176
+post_title: '<em>The Neon Demon</em>, Nicolas Winding Refn'
+post_name: neon-demon-winding-refn
+author: Nicolas
+post_date: 2016-06-09 23:48:07
+layout: post
+link: >
+  https://voiretmanger.fr/neon-demon-winding-refn/
+published: true
+tags:
+  - Apprentissage
+  - Beauté
+  - Drame
+  - Horreur
+  - Mode
+  - Sexe
+  - Sorties du moment
+categories:
+  - À voir
+---
+Depuis [*Drive*](https://voiretmanger.fr/drive-winding-refn/), le réalisateur danois est devenu une star et on pouvait avoir peur qu'il ne tombe dans la répétition, ce que [*Only God Forgives*](https://voiretmanger.fr/only-god-forgives-winding-refn/) pouvait laisser entrevoir. Mais cette fois, Nicolas Winding Refn est allé chercher du côté d'un autre genre : l'horreur. Le cinéaste est resté fidèle à sa réputation toutefois, et *The Neon Demon* n'a rien d'un film de genre déjà vu. De fait, il explique volontiers qu'il a voulu réaliser un film d'horreur, sans l'horreur. Un concept étrange, qui donne une œuvre étrange, à déconseiller aux épileptiques et à tous ceux qui veulent tout comprendre. Il y a bien une trame générale sur le milieu de la mode et ses dangers, mais elle reste simpliste et assez secondaire. Nicolas Winding Refn demande à son auditoire de se laisser porter et d'accepter de ne pas tout saisir. Son dernier long-métrage est sublime, avec des plans somptueux qui devraient rester dans les mémoires, mais il n'est pas toujours très clair. Est-ce gênant ? À vous d'en juger, mais on peut saluer l'originalité de ce film qui sort des sentiers battus. 
+
+<a href="http://www.allocine.fr/film/fichefilm_gen_cfilm=232793.html"><img src="https://voiretmanger.fr/wp-content/uploads/2016/06/neon-demon-winding-refn.jpg" alt="neon-demon-winding-refn" width="2500" height="3335" class="aligncenter size-full wp-image-16177" /></a>
+
+*The Neon Demon* ne demande pas beaucoup d'efforts pour être résumé : Jesse, une jeune fille qui vient à peine de fêter ses seize ans, débarque à Los Angeles avec l'espoir, comme tant d'autres, de devenir mannequin. Mais elle découvre rapidement que ce milieu est extrêmement exigeant et peu valorisant : elle doit accepter des propositions plus ou moins décentes de photographes. C'est aussi un monde où la compétition entre filles peut être redoutable, surtout quand on impose sa beauté naturelle face à des femmes qui ont énormément souffert pour devenir ce qu'elles sont. Rien de très original jusque-là et même si on sent que Nicolas Winding Refn connaît très bien son sujet, on reste dans le domaine du connu et à dire vrai, ce n'est pas le principal moteur du long-métrage. Plus que l'arrière du décor de la mode, *The Neon Demon* observe les transformations de son personnage principal, de cette orpheline venue du fin fond des États-Unis et qui est la parfaite incarnation de la naïveté au départ. La première séquence du film est très évocatrice : on découvre d'abord un corps inerte sur un canapé, sa gorge est tranchée, une flaque de sang au pied du meuble. La caméra recule très lentement et on découvre que l'on est dans un studio photo, pour la première séance du mannequin en herbe. Le shooting terminé, elle se retire dans la loge et retire péniblement tout le faux sang que l'on avait appliqué sur sa peau. Brusquement, sa jeunesse et son innocente sautent au visage : ce n'est qu'une enfant, mais qui est déjà soumise à un univers extrêmement violent. On ne peut pas évoquer ce rôle sans mentionner son interprète : Elle Fanning n'en est pas à sa première interprétation, mais elle trouve ici un rôle qui la révèle vraiment et elle est excellente, innocente et prédatrice à la fois.
+
+<img src="https://voiretmanger.fr/wp-content/uploads/2016/06/neon-demon-bella-heathcote-abbey-lee.jpg" alt="neon-demon-bella-heathcote-abbey-lee" width="3300" height="2200" class="aligncenter size-full wp-image-16179" />
+
+Même si Elle Fanning est excellente et même si elle est très bien entourée, avec une mention spéciale à Jena Malone, la vraie star de *The Neon Demon* reste sa mise en scène. Dès le départ, Nicolas Winding Refn impose son regard si atypique, avec ses plans colorés et ultra-contrastés, accompagnés par la musique — toujours aussi entêtante — de Cliff Martinez, un habitué depuis *Drive*. Loin de la redite, le cinéaste trouve une nouvelle manière de faire jouer les deux et il n'y a guère qu'une séquence ou deux de nuit, notamment lors d'une balade sous les étoiles de Los Angeles. Le plus gros de son travail se fait cette fois plus souvent en intérieur, avec deux séquences de fêtes vraiment époustouflantes. Juste après la séance photo qui ouvre le long-métrage, on embraye sur une fête cadrée à quatre épingles, avec des couleurs et des figures qui apparaissent au beau milieu du noir. C'est évidemment beaucoup plus difficile à décrire et *The Neon Demon* s'apprécie d'abord sur un (grand) écran et dans une pièce plongée dans le noir. Disons simplement que son créateur est allé encore plus loin dans son esthétique et que la mise en scène devient vertigineuse avec ce projet. On a évoqué une fête, mais on pourrait encore parler de la séquence du prisme où son héroïne se mêle à d'autres personnages. Et que dire de la scène de la piscine ? Nicolas Winding Refn crée des images souvent très géométriques et on pourrait lui reprocher cette esthétisation à outrance, mais c'est un choix assumé et qui colle parfaitement au milieu de la mode évoqué tout au long des deux heures. Et puis le sujet au cœur du scénario est la beauté : pourquoi est-ce que celle du film n'entrerait pas en ligne de compte ? *In fine*, chacun jugera de son intérêt pour le projet, mais on ne peut pas nier que c'est une expérience de cinéma originale et à ce titre intéressante.
+
+<img src="https://voiretmanger.fr/wp-content/uploads/2016/06/neon-demon-jena-malone.jpg" alt="neon-demon-jena-malone" width="3300" height="2200" class="aligncenter size-full wp-image-16178" />
+
+Et l'horreur dans tout ça ? Nicolas Winding Refn ne semble pas s'y intéresser pendant la majeure partie de son film, ou alors de façon métaphorique, pour évoquer les horreurs du milieu de la mode. *The Neon Demon* reste pourtant traversé par un sentiment de danger, parfois bien réel — le motel en est l'incarnation même —, et l'horreur n'est pas totalement oubliée. Elle ressurgit finalement à la toute fin, avec une explosion de gore qui confine au ridicule. Manière de dénoncer l'absurdité et la folie du monde de la mode, ou bien simple plaisir du réalisateur qui est aussi scénariste : difficile à savoir, mais au fond, ce n'est pas très important. *The Neon Demon* n'est pas une œuvre qui doit se déchiffrer totalement, et c'est très bien ainsi : si vous n'avez pas peur de vous faire bousculer par un film, ne ratez pas le dernier de Nicolas Winding Refn…
