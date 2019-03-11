@@ -1,0 +1,36 @@
+---
+ID: 19368
+post_title: Le Substrat à Lyon
+post_name: substrat-lyon
+author: Nicolas
+post_date: 2017-10-21 17:45:50
+post_excerpt: 'Adresse « bistronomique » de Croix-Rousse, dans le quatrième arrondissement à Lyon, le Substrat propose une cuisine inspirée par les bistrots, mais bien plus inventive et originale. Les prix sont très raisonnables et les assiettes excellentes : un restaurant qui mérite le détour !'
+layout: post
+link: https://voiretmanger.fr/substrat-lyon/
+published: true
+tags:
+  - "69004"
+  - Bistronomique
+  - Cuisine contemporaine
+categories:
+  - À manger
+---
+Le [**Substrat**](http://www.substrat-restaurant.com) revendique fièrement sa cuisine de bistrot, mais ce petit restaurant situé dans le quartier de la Croix-Rousse à Lyon en propose une relecture moderne et inventive. Même si l’esprit d’un bistrot et de la cuisine canaille est toujours là, ne serait-ce que dans le cadre un petit peu rustique, les plats dégustés ici sont beaucoup plus fins et originaux que la tradition. Avec une carte qui change chaque semaine, des produits toujours exclusivement frais et des prix très raisonnables, c’est une excellente adresse dans le quatrième arrondissement lyonnais. Elle mérite même un détour !
+
+
+<img src="https://voiretmanger.fr/wp-content/uploads/2017/10/substrat-salle.jpg" alt="" width="3300" height="2200" class="aligncenter size-full wp-image-19370" />
+
+Difficile de trouver de grands restaurants dans ce vieux quartier de Lyon, mais le **Substrat** est particulièrement petit. Une vingtaine de couverts installés sur des tables en bois brut se partagent la salle unique avec les cuisines ouvertes qui mettent dans l’ambiance dès que l’on entre dans les lieux. Tout est très simple ici, mais ce n’est pas une critique, bien au contraire : c’est sobre et moderne. On apprécie de voir les cuisines et les deux chefs s’affairer aux fourneaux, tandis que la présence d’une réserve en hauteur rassure sur l’origine des produits. Tout est préparé sur place, même les bocaux de légumes ou les produits séchés. Il faut dire que l’un des paris des propriétaires des lieux est de proposer reposer autant que possible sur des produits issus de la cueillette, qu’il s’agisse de champignons ou d’herbes, et ces produits sont traités et stockés sur place avant d’être intégrés dans les recettes. On ne vient pas dans un restaurant pour le décor, mais la salle très chaleureuse de **Substrat** est très plaisante et elle donne envie de s’installer.
+
+[gallery type="square" size="large" ids="19372,19371"]
+
+La carte change en permanence, mais elle est toujours composée autour de deux parties. D’un côté, un menu traditionnel avec, au choix, deux entrées, deux plats, un fromage travaillé et deux desserts. De l’autre, un menu surprise concocté par le chef autour de quelques ingrédients clés qui évoluent au fil des saisons. Les tarifs sont toujours très raisonnables, comptez une trentaine d’euros pour un trio entrée/plat/dessert, une quarantaine pour le menu surprise en quatre étapes, environ 70 pour ce même menu avec un accord de vin. Et si vous y mangez un midi en semaine, les prix sont encore plus bas, mais dans tous les cas, c’est une excellente affaire au vu de la qualité proposée. Cette semaine-là, [la carte automnale](https://voiretmanger.fr/wp-content/uploads/2017/10/Substrat-menu.pdf) nous attire vers le menu simple, extrêmement alléchant dès la lecture des intitulés. Avant même de choisir quoi que ce soit, on nous apporte des tranches de *pastrami* maison, du bœuf cuit basse température, fumé et séché qui ouvre les papilles pour la suite. La suite, justement, c’est un amuse-bouche qui donne déjà une idée de ce qui nous attend : un velouté de champignons et de pâte feuilletée, avec quelques oignons croustillants et du cerfeuil pour relever le tout. C’est original, certes, mais c’est aussi gourmand et savoureux et parfaitement assaisonné. L’entrée arrive bien vite : tout le monde a choisi le jarret de veau confit et le résultat est à nouveau très bon. La viande cuite très longtemps est présentée sous la forme d’un haché fin, elle est relevée par quelques cacahuètes qui ajoutent aussi un petit peu de croustillant et par des artichauts encore légèrement croquants ainsi qu’une salade bien fraiche. Une entrée froide solide qui donne envie d’en voir plus.
+
+[gallery type="square" size="large" ids="19374,19375" orderby="rand"]
+
+Le cœur du menu arrive bientôt à notre table. Nous avons testé les deux plats proposés ce jour-là, le poisson et la viande. Côté mer, un filet de flétan bien épais et indéniablement très frais, qui aurait pu être légèrement sous-cuit pour les amateurs, mais qui est ferme comme il se doit. Le filet est accompagné d’une soupe de poissons avec beaucoup de caractère, surtout quand on ajoute les pointes de rouille qui réveillent le plat. Des gnocchis de semoule complètent cette assiette qui aurait pu être un petit peu lourde si le chef n’avait pas pensé à utiliser quelques baies de goji pour injecter une touche de fraicheur. L’ensemble est très équilibré et vraiment excellent. La hampe de bœuf est peut-être encore plus réussie. La pièce de viande est très bien cuite, grillée et encore saignante, mais c’est surtout l’accompagnement qui la sublime. La sauce a beaucoup de goût pour la relever, la crème d’ail sur le coin de l’assiette est comme un coup de fouet gustatif et l’idée d’associer le bœuf à des algues joue sur l’association terre-mer avec finesse. C’est un plat exceptionnel, qui élève le repas à un tout autre niveau : chapeau ! On termine le repas avec des desserts qui ne sont pas en reste. Pas de chef pâtissier à **Substrat**, à la place des desserts très originaux imaginés par les cuisiniers qui n’hésitent pas à sortir des sentiers battus. C’est le cas pour le fromage, des tranches fines de mimolette affinée accompagnées d’une crème aigre et de quelques pointes de confiture de potimarron. C’est aussi le cas pour le dessert autour de la mousse à la noix de coco, assez classique en apparence, mais réveillé par le goût des fleurs utilisées en sirop. C’est toujours le cas pour ce dessert à base de composée de pommes et de tuile au chocolat qui n’est pas étonnant à regarder, mais très surprenant à manger. Les pommes sont cuites avec du [*garam masala*](https://fr.wikipedia.org/wiki/Garam_masala), un mélange d’épices originaire d’Inde et qui est utilisé traditionnellement pour des plats salés. Les tuiles de chocolat sont associées à du poivre en petite quantité, mais qui ajoute indéniablement une saveur, tout comme le jus au porto qui vient aussi ajouter un autre goût encore. Le résultat est complexe, pas du tout sucré et c’est une curiosité très plaisante pour terminer un repas plein de surprises.
+
+
+[gallery type="rectangular" size="large" ids="19376,19377,19378" orderby="rand"]
+
+Comment ne pas s’enthousiasmer pour cette cuisine pas trop chère, ultra fraiche et inventive ? Si vous aimez sortir des sentiers battus et vous laisser porter par l’imagination d’un chef, ne ratez pas **Substrat**. Cette adresse ne paie pas forcément de mine de l’extérieur et la promesse d’une cuisine de bistrot ne fait pas nécessairement rêver. Ne vous y trompez pas néanmoins, le résultat est au niveau d’un restaurant étoilé. 
