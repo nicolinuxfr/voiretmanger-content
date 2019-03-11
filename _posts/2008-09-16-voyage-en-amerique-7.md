@@ -1,0 +1,75 @@
+---
+ID: 678
+post_title: 'Voyage en Amérique (août 2008) — Billet n°7 : Vancouver'
+post_name: voyage-en-amerique-7
+author: Nicolas
+post_date: 2008-09-16 10:55:57
+layout: post
+link: >
+  https://voiretmanger.fr/voyage-en-amerique-7/
+published: true
+tags:
+  - Famille
+  - Vacances
+  - Vancouver
+  - Ville
+categories:
+  - Voyage
+---
+<p>À bien des égards, Vancouver est une ville plus européenne qu'américaine. À la fois plus ancienne et plus grande ville de l'Ouest canadien, Vancouver détient plusieurs records dont celui de la vie la plus chère et, peut-être en lien avec ce dernier record, celui de la meilleure qualité de vie du Canada. En terme de qualité de vie, Vancouver serait même située, sur le plan mondial, au troisième rang derrière Zürich et Genève. Ce classement est sans nul doute lié au climat de Vancouver, bien éloigné de celui de <a href="https://voiretmanger.fr/voyage-en-amerique-5/">Calgary</a>. Ici, l'océan, même dépourvu de Gulf Stream joue son rôle et offre à la capitale occidentale du Canada des hivers plutôt doux (la température ne descend que très rarement en dessous de -10°) et des étés plutôt secs et chauds, même si nous n'y avons pas vraiment eu droit… Mais cette qualité de vie va de pair avec des prix, notamment dans l'immobilier, défiant pour ainsi dire toute concurrence puisque Vancouver est la ville la plus chère du pays. On l'imagine d'ailleurs très bien quand on se ballade le long du port de plaisance et que l'on voit les magnifiques gratte-ciels résidentiels construits au bord, souvent avec de grandes baies vitrées et terrasses face à la mer.</p>
+
+<img src="https://voiretmanger.fr/wp-content/uploads/2008/09/vancouver.jpg" alt="" width="1135" height="534" class="aligncenter size-full wp-image-2657" />
+
+<p>Une autre caractéristique assez européenne de la ville est en effet sa densité étonnamment forte pour une ville nord-américaine. Elle découle en fait d'une forte volonté politique de la part de la municipalité qui a cherché à densifier le centre et éviter l'étalement urbain habituel dans cette région du monde. Cette particularité semble si forte de ce côté du monde qu'un adjectif a été même formé à partir du nom de la ville pour désigner cette volonté de densifier l'habitat en construisant en hauteur des habitations : le vancouverisme. L'adjectif montre bien qu'il s'est agi d'un travail conscient de la part de la municipalité : en fait, Vancouver a connu de profondes transformations de son centre pour y implanter des habitations et non des bureaux. Résultat, non seulement la densité est en moyenne assez forte, mais Vancouver est aussi la ville où, en moyenne, les habitants font le moins de kilomètres en voiture. Si l'étalement urbain est malgré tout présent, Vancouver dispose aussi d'un réseau de transports publics assez développé, avec notamment un métro aérien.</p>
+
+<p>Mais la qualité de vie provient aussi sans aucun doute de la part importante d'espaces verts au cœur de la ville. Ainsi, le Stanley Park borde le downtown et représente plus de 400 hectares (soit un demi-Boulogne en gros) de forêt dense aux arbres parfois multi-centennaires mais aussi environ 200 kilomètres de chemins et routes dans le parc. Un demi-Boulogne, cela pourrait nous sembler peu, mais ce serait juger un parc américain à l'aune de nos propres standars : ce parc est en effet le troisième parc urbain d'Amérique du Nord en terme de superficie !</p>
+
+<p>Si Vancouver nous semble à nous, Européens, si proche, c'est d'abord parce que cette ville s'inscrit dans une longue histoire encore visible aujourd'hui, mais aussi parce que Vancouver est marqué par la diversité culturelle. Vancouver, je l'ai dit, est la plus ancienne ville du coin. Elle a été fondée en 1860, peu après la découverte du canyon Fraser et surtout de la découverte d'or dans ce canyon. Une énorme ruée vers l'or s'ouvrit alors et des centaines de milliers d"homme, essentiellement en provenance des États-Unis s'installèrent dans la région et dans ce qui devenait la ville de Vancouver. Ainsi, en 1861, 25 000 hommes arrivèrent de Californie et s'installèrent dans la ville. Pourtant, cette région n'était pas inconnue puisqu'elle avait été découverte par un certain Vancouver en 1792. Mais aucune ville ne fut installée avant les années 1860 du fait de la farouche opposition des Indiens présents dans la région depuis, d'après les archéologues, 9000 ans… Cet héritage indigène, un peiu écrasé au départ, est aujourd'hui mis en valeur par la ville avec notamment l'installation, dans le Stanley Park, de totems indiens. En effet, ce qui frappe quand on visite Vancouver, c'est aussi sa diversité culturelle. D'après un recensement de 2004, pour plus de la moitié des habitants du Downtown, l'anglais n'était pas leur langue maternelle. Vancouver a été notamment un point d'accueil de l'immigration asiatique en général et chinoise en particulier vers le Canada, avec une importante arrivée dans les années 1980 et 1990. En résulte le plus gros chinatown canadien notamment. Plus généralement, la diversité culturelle se sent à Vancouver à tel point que l'on peut évoquer le qualificatif de cosmopolite. Envers du décors, les quartiers aux abords immédiat du Downtown plutôt chic ne sont pas des quartiers où il ferait bon traîner seul tard le soir. Les sans-abris, décidément bien plus nombreux en Amérique du Nord (ou en tout cas plus visibles) squattent tous les espaces libres et on ne s'y sent pas rassuré, sans non plus tomber dans la paranoïa.</p>
+
+Mais Vancouver, c'est d'abord un port, et pas n'importe quel port. Situé au Nord du <a href="http://en.wikipedia.org/wiki/Pacific_Rim">Pacific Rim</a>, et à l'extrémité Ouest à la fois de l'autoroute transcontinentale et du chemin de fer transcontinental, mais profitant aussi du canal de Panama[^1], le port de Vancouver est le premier port du Canada à la fois en diversité et en valeur. Ce port occupe la majeure partie de la baie qui surmonte Vancouver mais s'étend aussi sur les côtes maritimes. Comme tout port moderne en effet, celui de Vancouver a besoin de place pour gérer chaque spécialisation. Depuis le Downtown, il est en tout cas bien visible des deux côtés de la baie. Outre le port de passagers d'où partent tous les ferries pour l'Alaska mais aussi des ferries de croisière qui font le tour du monde — on a ainsi assité au départ d'un navire de croisière qui venait de Hollande et qui repartait vers une nouvelle destination… — on trouve le port de plaisance du côté Downtown, offrant ainsi à Vancouver une sorte de marina, mais aussi un port à hydravion avec un traffic intense vers les îles situées autour de Vancouver. De l'autre côté de la baie et à l'Est de la ville, les différents ports industriels s'étendent sur des kilomètres. On repère facilement un port spécialisé dans le bois, rappelant au passage que le bois reste un domaine d'activité essentiel dans cette région du monde, et plus originalement un port chimique avec, quand nous y étions, un magnifique[^2] tas de soufre à la couleur jaune <a href="http://fr.wikipedia.org/wiki/Image:Sulfur-sample.jpg">typique</a>. Bon, ce port industriel n'est sans doute pas la partie la plus intéressante de la ville pour les touristes même si personnellement ça ne me dérange pas, j'ai toujours aimé les ports.
+
+<p>Au-delà du port, Vancouver est une ville également marquée par l'industrie, notamment sur la charmante presqu'île de Granville Island. Je dis charmante car il s'agit en fait d'un ancien tissu industriel (industrie lourde, avec des chemins de fer partout) reconverti aujourd'hui en quartier que l'on dirait ici bobo : un grand marché occupe désormais la majeure partie de cette ancienne zone industrielle, avec à la fois un marché à l'européenne et de nombreuses petits boutiques d'art. Le tout est coloré et constitue un quartier très sympathique pour s'y promener. Mais, plus étonnant, au cœur même de ce quartier très touristique, on trouve encore des ateliers et même une cimenterie, comme des vestiges d'un passé sinon révolu, du moins en grande partie absent.</p>
+
+<p>Vancouver est aujourd'hui une ville moderne, marquée par une importance croissante du tourisme et du secteur tertiaire plus généralement. Depuis l'exposition internationale de 1986 qui a eu lieu à Vancouver, Canada Place symbolise en quelque sorte la ville, au moins pour les touristes. Ce bâtiment tout en longueur, construit sur un quai et en forme de paquebot avec un toit aux formes représentant (vaguement) des voiles et qui rappelle l'opéra de Sydney. À l'intérieur, il s'agit essentiellement de salles d'exposition d'un intérêt très limité pour les touristes mais à son extrémité a été implanté un cinéma Imax qui dépanne bien en cas de mauvais temps (nous avons expérimenté pour vous).</p>
+
+<p>Le chinatown de Vancouver vaut le détour, contrairement à ceux de Seattle et Calgary que nous avons aussi visité à la recherche désespérée de mangas en japonais. Ce quartier est intéressant sans doute parce que la communauté chinoise est importante et anciennement implantée. Ainsi, le Chinatown de Vancouver est le second plus grand dans le monde occidental après celui de San Francisco, et le troisième en terme de population après New York et San Francisco. Les jardins du docteur Sun Yat-Sen, une personnalité locale, valent le détour dans leur genre.</p>
+
+<p>Pour dresser un tableau complet de la ville, il me faut aussi mentionner que la ville est très portée sur la culture en général, et la musique et le cinéma en particulier. Pour le cinéma, c'est si vrai que l'on évoque même, à son propos, de "Hollywood du Nord". Apparemment, de très nombreux films américains y sont tournés, en raison notamment d'un dollar canadien plus intéressant.</p>
+
+<h2 id="678_en-bref_1">En bref</h2>
+
+<h3 id="678_ce-que-lon-peut-fair_1">Ce que l'on peut faire à Vancouver</h3>
+
+<ul>
+	<li>Visiter Canada Place semble être un passage obligé, mais à faire plutôt par beau temps. Le bâtiment en lui-même est sympa, même s'il est préférable de le voir de loin. Depuis sa position, vous avez une vue sur la baie et le port. À l'intérieur, l'intérêt est plus limité : il s'agit de salles d'exposition et d'un hôtel. En cas de mauvais temps, vous pouvez aller jusqu'au bout de Canada Place pour profiter du cinéma Imax en 3D. Nous y avons vu un vrai dessin animé de 90 minutes : c'était, ma foi, pas désagréable au vu du temps extérieur. S'il fait beau ceci dit, je ne recommande pas ce cinéma qui n'a rien de plus que les versions que l'on trouve en Europe.</li>
+
+<li>Le Downtown lui-même vaut la peine de s'y promener. Vancouver est une ville originale par la concentration d'habitats en son centre : ainsi, le centre est plus intéressant que la moyenne régionale puisque vous n'y trouverez pas que des bureaux ! Par ailleurs, cette densité est un peu l'originalité de Vancouver, au point que l'on parle de "vancouverisme" donc autant voir en vrai ce que c'est…</li>
+
+<li markdown="1">Le front de mer, le long du port de plaisance, est vraiment sympa à faire par beau temps[^3]. Entre le Stanley Park et Canada Place, vous avez ainsi environ un kilomètre à vol d'oiseau de voies piétonnes le long de la mer.</li>
+
+<li>Stanley Park demande au moins un passage mais si vous en avez le temps, faites plus que le tour du parc en voiture. Faire ce tour est déjà pas mal ceci dit, essentiellement pour voir la ville depuis l'autre côté de la baie (au niveau des totems) puis voir la baie s'ouvrir de l'autre côté. Les balades dans le parc sont très sympathiques, et il y a de quoi y passer un bon moment ! À noter, sur Prospect Point, le restaurant qui dit servir les meilleurs Fish and Chips et les meilleures glaces de la ville (ils ont le chic pour toujours servir les meilleurs quelque chose) n'est en effet pas mauvais (même si on cherche toujours pourquoi ils seraient les meilleurs) et offre une belle vue en terrasse sur la ville, la baie et le pont.</li>
+
+<li>Chinatown vaut la peine de s'y arrêter, au moins pour visiter les jardins du docteur Sun Yat-Sen. Il s'agit d'un jardin chinois classique, avec petites mares d'eau et force bonsaïs. En plein milieu de la ville, c'est une sorte de havre de paix et si, malheureusement, les touristes en masse viennent perturber un peu les choses, il est quand même très sympa. Sinon, les portes qui ouvrent le quartier sont aussi majestueuses qu'attendu.</li>
+
+<li>Le quartier de Gastown, quartier le plus ancien de la ville, vaut aussi le déplacement, ne serait-ce que pour voir la fameuse horloge fonctionnant à la vapeur, véritable Joconde de Vancouver, l'élément que tous les touristes vont voir. Cette horloge est en fait récente (inaugurée en 1977) mais a été construite selon des plans de 1875 et est assez impressionnante puisqu'elle laisse voir son mécanisme complexe. Fonctionnant entièrement à la vapeur, elle sonne aussi à chaque quart d'heure et toutes les heures. C'est clairement LE quartier touristique, donc si vous voulez acheter n'importe quel produit à base de sirop d'érable, c'est là que ça se passe… ;)</li>
+
+<li>Enfin, le quartier de Granville Island vaut aussi le détour. Cet ancien quartier industriel reconverti en marché et piège à touriste est très intéressant à visiter, il est très plaisant de faire le tour de cette île très colorée où le passé industriel reste visible à travers des rails omniprésent mais aussi des ateliers qui résistent encore à ce qui semble être une boboïsation…</li>
+</ul>
+
+<h3 id="678_ce-que-lon-peut-ne-p_1">Ce que l'on peut ne pas faire à Vancouver</h3>
+
+<ul>
+	
+	<li>Aller à Vancouver en <em>RV</em>, voilà la plus mauvaise idée que nous aurons eu… La ville est aussi européenne par son manque de parkings adaptés à ces monstres, les seuls parkings adaptés étant en fait des parkings ouverts en plein cœur de quartiers où on ne resterait pas trop tard le soir. Nous avons fini par garer le véhicule dans n'importe quelle rue, sans même payer pour la place, et nous sommes repartis sans problème mais on a eu peur d'avoir au moins une amande, voire un sabot…</li>
+
+<li>Comme je l'ai déjà évoqué, certains quartiers à proximité immédiate des centres d'intérêt, et notamment entre Gastown et Chinatown craignent un peu. Disons que les bandes de sans-abris ajoutées aux immeubles manifestement sur le point de s'écrouler, le tout dans des rues très sales ne rassurent pas vraiment. Mais bon, on ne s'est pas fait agresser et les quartiers changent très rapidement d'ambiance…</li>
+
+<li>J'ai beau réfléchir, je ne vois pas grand chose qui m'ai déçu dans cette ville… Peut-être était-ce en raison d'un séjour plutôt court et raccourci encore par le temps… Toujours est-il que j'ai bien aimé Vancouver !</li>
+
+</ul>
+
+[^1]: Les exports américains de produits en provenance de l'Ouest sont passés par Vancouver et le canal de Panama, plutôt que de transiter par la côte Est.
+
+[^2]: Enfin, disons que je l'ai trouvé magnifique et l'ai pris en photo sous toutes ses coutures…
+
+[^3]: Nous avons expérimenté par un temps horrible, avec bourrasques de vent et trombes d'eau c'est, disons, moins bien…
