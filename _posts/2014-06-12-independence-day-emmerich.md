@@ -1,0 +1,41 @@
+---
+ID: 11740
+post_title: '<em>Independence Day</em>, Roland Emmerich'
+post_name: independence-day-emmerich
+author: Nicolas
+post_date: 2014-06-12 20:10:57
+post_excerpt: "Avec <em>Independence Day</em>, Roland Emmerich rassemble en un film tout ce qui fait un bon blockbuster estival : de l'action, une histoire simple et beaucoup d'explosions. Ce n'est pas très malin, mais c'est assez fun et c'est un classique dans le genre."
+layout: post
+link: >
+  https://voiretmanger.fr/independence-day-emmerich/
+published: true
+tags:
+  - Action
+  - Blockbuster
+  - Extra-terrestre
+  - Guerre
+  - Science-Fiction
+categories:
+  - À voir
+---
+Qui, mieux que Roland Emmerich, incarne le sommet du film catastrophe, du blockbuster décérébré qui n’a qu’un seul objectif : divertir avec de grosses explosions et un final patriotique comme il se doit ? Le cinéaste allemand a multiplié les productions estivales à gros budget et la réalisation qui représente peut-être le paroxysme de son art date du milieu des années 1990. *Independence Day* est le premier film de l’histoire du cinéma à dépasser les 100 millions de dollars pendant sa première semaine et, à bien des égards, il représente aujourd’hui encore l’archétype même du film catastrophe ? Son scénario tient sur un timbre poste, ses explosions boursouflées ont fait le bonheur de toutes les parodies, mais ce blockbuster a le bon goût de ne pas oublier son statut de divertissement stupide, et c’est ce qui le sauve. *Independence Day* a plutôt bien vieilli avec ses décors et ses effets spéciaux à l’ancienne et c’est un spectacle qui se regarde encore avec un plaisir coupable.
+
+<div style="text-align:center;"><a href="http://www.allocine.fr/film/fichefilm_gen_cfilm=15336.html"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2014/06/independence-day-emmerich.jpg" alt="Independence day emmerich" title="independence-day-emmerich.jpg" width="1000" height="1489" /></a></div>
+
+Comme tous les films de sa catégorie, *Independence Day* suit le destin de quelques personnages exceptionnels au milieu d’une catastrophe sans précédent. Ici, Roland Emmerich choisit la carte science-fiction avec une variante usée jusqu’à la corde, mais qui fait encore une fois ses preuves : l’invasion extra-terrestre. Quand l’histoire commence, un immense vaisseau spatial arrive dans l’orbite terrestre, puis envoie d’énormes plaques se positionner sur les plus grosses villes du monde. Le tout se faisant en quelques heures, personne n’a le temps de réagir et de déterminer s’ils sont gentils ou méchants. Film catastrophe oblige, les envahisseurs sont logiquement méchants et ils détruisent quelques villes et symboles — la Maison-Blanche, pour la première fois dans une longue série, est bien sûr détruite — avant que les humains puissent réagir. Dans cette déballe planétaire, *Independence Day* déploie pas moins de quatre intrigues en parallèle : on suit les pas du président de la République des États-Unis, mais aussi ceux d’un employé d’une chaîne télévisée qui est le premier à comprendre l’imminence de l’attaque, ajoutez encore un militaire et quelques individus apparemment lambdas et vous obtenez le panel nécessaire. Roland Emmerich ne fait pas semblant de réfléchir : il assume totalement le côté stupide de son scénario et on sait dès les premières scènes que ces destins en apparence isolés vont tous se réunir finalement. Le type de la télévision est l’ex-petit ami de la porte-parole du président, cela fait un lien ; le militaire descend un ennemi à deux pas de la zone 51 où se trouvent déjà le président : voilà un deuxième lien ; pour finir, les gens qui semblaient là par hasard jouent un rôle essentiel dans la sauvegarde des États-Unis, et donc du monde. Les fils de l’intrigue sont d’immenses câbles en acier, mais ce n’est pas très grave : l’originalité n’a jamais été le fort de Roland Emmerich, et *Independence Day* ne fait naturellement pas exception.
+
+<div style="text-align:center;"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2014/06/independence-day-jeff-goldblum-judd-hirsch.jpg" alt="Independence day jeff goldblum judd hirsch" title="independence-day-jeff-goldblum-judd-hirsch.jpg" width="1200" height="800" /></div>
+
+Si on regarde ce film, c’est pour le plaisir coupable de voir le monde exploser. Et niveau explosions, Roland Emmerich n’est jamais avare, quitte à en faire un petit peu trop. La parodie est facile, mais il faut dire que le cinéaste aime manifestement les gros pétards et il n’hésite pas à les utiliser, voire à en abuser. À une époque où les ordinateurs n’étaient pas aussi puissants et surtout pas aussi utilisés qu’aujourd’hui au cinéma, *Independence Day* a été en grande partie réalisé avec de vrais décors et de vraies explosions, même si à sa sortie, il était le film avec le plus d’effets numériques. Les vaisseaux sont des maquettes, comme dans la [trilogie *Star Wars*](https://voiretmanger.fr/saga/star-wars/), et cela se voit. Ils ne sont pas aussi impressionnants que ceux que l’on imaginerait aujourd’hui, mais ce n’est pas très grave, car le cinéaste a bien réussi à rendre leur côte impressionnant et surtout oppressant. La menace est lourde dès les premières minutes et tout le début du film, jusqu’au début de l’attaque, est d’ailleurs très réussi. La suite est beaucoup plus convenue, sans doute parce que l’on voit trop les extra-terrestres — la leçon d’[*Alien, le huitième passager*](https://voiretmanger.fr/alien-huitieme-passager-scott/ "Alien, le huitième passager, Ridley Scott") n’est manifestement pas passée — et puis aussi parce que l’on devine un peu trop le film à l’avance. Même si les explosions sont toujours un peu exagérées (un laser sur le sable crée une tout aussi grosse boule de feu que lorsqu’un avion explose) *Independence Day* reste spectaculaire et toujours divertissant. Malgré ses défauts, on passe un bon moment, certainement parce que le film sait ne jamais se prendre trop au sérieux. C’est frappant quand on compare le Roland Emmerich de 1996 à celui de [*2012*](https://voiretmanger.fr/2012-emmerich/ "2012, Roland Emmerich") (ou plutôt, de 2009) : le cinéaste a parfois perdu de vue que ses films ne sont que de grosses machines à divertir, pas plus. À cette époque où il avait connu quelques beaux succès, mais pas encore explosé les records, il se le rappelait et ses acteurs avec lui. Will Smith en particulier semble bien s’amuser, en particulier lorsqu’il affronte les extra-terrestres dans des scènes qui ne sont pas sans rappeler [*Men In Black*](https://voiretmanger.fr/men-in-black-sonnenfeld/), sorti à la même époque.
+
+<div style="text-align:center;"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2014/06/independence-day-will-smith.jpg" alt="Independence day will smith" title="independence-day-will-smith.jpg" width="1200" height="800" /></div>
+
+Dès que le film commence, on sait comment il se termine et *Independence Day* ne fait rien pour nous surprendre. Oui, c’est un blockbuster patriotique centré sur les États-Unis malgré quelques efforts assez ratés dans l’ensemble pour prendre de l’ampleur. Oui, le scénario est stupide, les personnages à peine esquissés et les situations improbables. Le long-métrage de Roland Emmerich est bourré de défauts, certes, mais ce blockbuster reste malgré tout fun et divertissant. *In fine*, la simplicité de son histoire et sa capacité à ne pas trop se prendre au sérieux sauvent le film qui reste intéressant, ne serait-ce que pour son statut d’archétype du genre.
+
+<div class="amazon" markdown="1">
+### Vous voulez [m’aider](https://voiretmanger.fr/soutien/) ?
+
+- [Acheter le film en Blu-ray sur Amazon](http://www.amazon.fr/gp/product/B003T0M5VU/ref=as_li_ss_tl?ie=UTF8&tag=leblogdenic07-21&linkCode=as2&camp=1642&creative=19458&creativeASIN=B003T0M5VU)
+- [Acheter le film en DVD sur Amazon](http://www.amazon.fr/gp/product/B00006CJPY/ref=as_li_ss_tl?ie=UTF8&tag=leblogdenic07-21&linkCode=as2&camp=1642&creative=19458&creativeASIN=B00006CJPY)
+- [Acheter ou louer le film sur l’iTunes Store](https://itunes.apple.com/fr/movie/independence-day-1996/id369359355)
+</div>
