@@ -1,0 +1,39 @@
+---
+ID: 3501
+post_title: 'France Inter : la fin d&rsquo;une époque'
+post_name: france-inter-fin-epoque
+author: Nicolas
+post_date: 2010-06-23 23:12:22
+post_excerpt: |
+  "France Inter : la différence, c'est l'indépendance" qu'ils disaient. Ça, c'était apparemment avant. Maintenant, on supprime tout ce qui dépasse, tout ce qui ennuie le pouvoir. Constat amer du déclin apparemment inexorable d'une radio de service public qui était, il n'y a pas si longtemps, indépendante. France Inter, la fin d'une époque…
+layout: post
+link: >
+  https://voiretmanger.fr/france-inter-fin-epoque/
+published: true
+tags:
+  - Censure
+  - Comique
+  - Humour
+  - Politique
+  - Société
+categories:
+  - En bref
+---
+<p>J'ai appris en fin de matinée, comme beaucoup sans doute, le licenciement de France Inter de Didier Porte ET de Stéphane Guillon. Depuis l'affaire DSK/Aubry provoquée par Guillon, les deux humoristes étaient pointés du doigt par le pouvoir. On sait que Nicolas Sarkozy en avait personnellement contre eux, et les nominations successives de Jean-Luc Hess et Philipe Val avaient sonné comme des formes de condamnations. Quand ce dernier a déclaré que Radio France coûtait cher et rapportait peu à l'actionnaire, le message était très clair. Si Didier Porte était moins directement menacé, sa fameuse chronique où il mettait en scène Dominique de Villepin enculant Nicolas Sarkosy l'a remis sur le devant de la scène avec un blâme de la direction.</p>
+<p>Mais voilà, naïvement je pensais ces deux humoristes trop exposés pour être touchés. Je pensais que le pouvoir se rappellerait la grande leçon des cours d'Ancien Régime : le fou du Roi est la soupape indispensable de tout système. Le soutien indéfectible et affiché tous les jours de Stéphane Bern dans son émission intelligemment nommée "Fou du roi" me rassurait. Je me disais que les dirigeants n'allaient pas oser toucher à cette émission qui rassemblait tant de Français derrière leur poste, que cette émission servirait de caution humoristique et libre à la station.</p>
+<p>Las, on a appris aujourd'hui de la bouche des deux concernés, Stéphane Guillon dans sa chronique de ce matin (ci-dessous) et Didier Porte dans sa chronique de midi, qu'ils étaient licenciés sans autre forme de procès. Une décision brutale, manifestement inattendue dans un climat qui semblait s'être apaisé, et qui n'est pas sans rappeler l'arbitraire royal et une basse vengeance digne d'un petit garçon vexé, pas d'un homme d'État.</p>
+<p style="text-align: center;"><object classid="clsid:d27cdb6e-ae6d-11cf-96b8-444553540000" width="690" height="594" codebase="http://download.macromedia.com/pub/shockwave/cabs/flash/swflash.cab#version=6,0,40,0"><param name="allowFullScreen" value="true" /><param name="allowScriptAccess" value="always" /><param name="src" value="http://www.dailymotion.com/swf/video/xdscy9_france-inter-en-burqa_fun" /><param name="allowfullscreen" value="true" /><embed type="application/x-shockwave-flash" width="690" height="594" src="http://www.dailymotion.com/swf/video/xdscy9_france-inter-en-burqa_fun" allowscriptaccess="always" allowfullscreen="true"></embed></object>
+<div style="text-align: center;">"<em>France Inter, écoutez l'indifférence</em>" (Stéphane Guillon)</div>
+<p>La dernière chronique de Stéphane Guillon était ce matin. On doit encore entendre Didier Porte demain matin, puis dans les deux derniers "Fou du roi" de la saison. Tous deux ont été très dignes aujourd'hui, Guillon retrouvant pour l'occasion un humour qu'il avait souvent perdu ces derniers temps, faisant un parallèle astucieux et très drôle avec la toile qui recouvre actuellement (et jusqu'en 2012 !) la Maison de la radio pour travaux.</p>
+<p>Cette purge, car il faut bien parler de purge, est vraiment insupportable. Quoi que l'on pense des deux humoristes, que l'on apprécie ou non leur humour ne change rien : leur éviction d'une chaîne publique alors que l'audience assurait tous les jours ou toutes les semaines leur légitimité, est un vrai scandale qui ne devrait pas exister dans une vraie démocratie. On se moque souvent de la situation catastrophique des médias italiens, mais je ne vois plus la différence. C'est même pire dans le cas de France Inter, car beaucoup plus discret. Au moins, Berlusconi ne se cache pas.</p>
+<p>J'avais déjà eu l'occasion de <a href="https://voiretmanger.fr/2009/03/22/sauvons-les-humoristes/">défendre les humoristes</a> à l'époque de "l'affaire DSK". Ma position n'a pas changé d'un <em>iota</em> : "<em>Il faut sauver les humoristes et j’encourage tous ceux pour qui la notion de liberté d’expression fait sens à soutenir tous les humoristes, quel que soit votre opinion à leur propos, même si vous trouvez qu’ils exagèrent, qu’ils vont trop loin, car n’oublions jamais que les dictatures se sont toujours instaurées en enlevant un bout de liberté, parfois totalement insignifiant.</em>" Je suggérais alors de les écouter en direct ou par podcast, ce qui sera évidemment difficile maintenant. Les deux ont aussi des spectacles que je vous encourage à voir si vous voulez les soutenir : Guillon tourne toujours à guichets fermés je crois, par contre Didier Porte aura besoin de nous. Son spectacle, présenté tous les mois au <a href="https://voiretmanger.fr/2009/04/14/didier-porte-cafe-de-la-gare/">Café de la gare</a>, est à voir.</p>
+
+<div style="text-align: center;"><img class="aligncenter" src="https://voiretmanger.fr/wp-content/uploads/2010/06/didier-porte-prie.jpg" border="0" alt="didier-porte-prie.jpg" width="690" height="460" /></div>
+<p>De mon côté, je ne sais pas que faire exactement. C'est agaçant de se dire que l'on a finalement que très peu de pouvoir sur une radio de service public qui est censé nous appartenir collectivement, et non appartenir au pouvoir en place. J'aime bien France Inter, cela me fait de la peine de la boycotter... et puis pour écouter quoi à la place ? Je tolère Fogiel autour de Canteloup sur Europe 1, mais je serais incapable de l'entendre plus de 10 secondes de suite. Je sens que je vais encore réduire mon (déjà très faible) temps d'écoute de la radio. Voilà qui ne fait, en tout cas, que confirmer mon opinion sur les médias traditionnels.</p>
+<p>Tout ce que l'on peut souhaiter aux dirigeants de France Inter désormais, c'est une chute libre des audiences aux heures où les humoristes avaient droit à la parole. Stéphane Bern a renouvelé aujourd'hui son soutien à Didier Porte : est-cele signe d'une démission ? Ce serait à n'en pas douter un signe fort…</p>
+<p></p>
+<p>Ajout du 26 juin : la dernière chronique de François Morel conclut de manière remarquable cette semaine un peu folle. À la manière de <a href="http://jamaisdaccord.com/2010/06/24/inter-minables/" target="_blank">Violette</a>, il évoque France Inter comme "[sa] radio", celle de son enfance, celle qui l'a toujours accompagné et celle qu'il ne retrouve plus aujourd'hui. Une chronique amère, pas drôle du tout (logique, Hess ne veut pas d'humour le matin), mais très juste. Morel a un talent fou pour trouver les bons mots et attaquer avec virulence, mais calme, sa direction (il compare Jean-Luc Hess avec Domenech).</p>
+<p style="text-align: center;"><object classid="clsid:d27cdb6e-ae6d-11cf-96b8-444553540000" width="690" height="594" codebase="http://download.macromedia.com/pub/shockwave/cabs/flash/swflash.cab#version=6,0,40,0"><param name="allowFullScreen" value="true" /><param name="allowScriptAccess" value="always" /><param name="src" value="http://www.dailymotion.com/swf/video/xdtar0_fini-de-rire_fun" /><param name="allowfullscreen" value="true" /><embed type="application/x-shockwave-flash" width="690" height="594" src="http://www.dailymotion.com/swf/video/xdtar0_fini-de-rire_fun" allowscriptaccess="always" allowfullscreen="true"></embed></object>
+
+<p></p>
+<p><em>Crédit image couverture : </em><a href="http://www.flickr.com/photos/lhirlimann/2938029987/" target="_blank"><em>lhirlimann @ FlickR</em></a></p>
